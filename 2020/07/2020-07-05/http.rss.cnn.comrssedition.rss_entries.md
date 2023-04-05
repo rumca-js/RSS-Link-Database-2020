@@ -1,0 +1,212 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## Video shows packed lake party in US despite warnings
+ - [https://www.cnn.com/videos/us/2020/07/05/july-4-large-gatherings-coronavirus-fears-sot-vpx.cnn](https://www.cnn.com/videos/us/2020/07/05/july-4-large-gatherings-coronavirus-fears-sot-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 20:49:46+00:00
+
+Video from a water park in Wisconsin, and parties in Lake of the Ozarks, Missouri, and Diamond Lake, Michigan, shows large groups of people celebrating the Fourth of July holiday despite warnings from health officials that such gatherings would likely lead to an increase in coronavirus cases. CNN's Polo Sandoval reports.
+
+## Illinois Sen. Tammy Duckworth says Trump's 'priorities are all wrong'
+ - [https://www.cnn.com/2020/07/05/politics/tammy-duckworth-donald-trump-cnntv/index.html](https://www.cnn.com/2020/07/05/politics/tammy-duckworth-donald-trump-cnntv/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 20:41:17+00:00
+
+Illinois Sen. Tammy Duckworth on Sunday condemned President Donald Trump's divisive message at Mount Rushmore over the weekend, saying his "priorities are all wrong" and adding that he has failed in his response to the coronavirus pandemic.
+
+## Woman dies after falling from a roller coaster in France
+ - [https://www.cnn.com/2020/07/05/europe/france-roller-coaster-woman-dies-trnd/index.html](https://www.cnn.com/2020/07/05/europe/france-roller-coaster-woman-dies-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 19:47:02+00:00
+
+A woman died Sunday after falling from a roller coaster in a theme park in Oise, in northern France.
+
+## This town replaced some cops with civilians 30 years ago. Here's what happened
+ - [https://www.cnn.com/2020/07/05/us/cahoots-replace-police-mental-health-trnd/index.html](https://www.cnn.com/2020/07/05/us/cahoots-replace-police-mental-health-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 19:46:16+00:00
+
+Around 30 years ago, a town in Oregon retrofitted an old van, staffed it with young medics and mental health counselors and sent them out to respond to the kinds of 911 calls that wouldn't necessarily require police intervention.
+
+## Crowds pack US beaches on Independence Day
+ - [https://www.cnn.com/2020/07/05/health/us-coronavirus-sunday/index.html](https://www.cnn.com/2020/07/05/health/us-coronavirus-sunday/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 19:33:35+00:00
+
+Parts of the country marked a very different Independence Day this year, with many celebrations going virtual or canceled amid the global coronavirus pandemic.
+
+## Liverpool gets Premier League title celebrations back on track with victory over Aston Villa
+ - [https://www.cnn.com/2020/07/05/football/liverpool-aston-villa-premier-league-spt-intl/index.html](https://www.cnn.com/2020/07/05/football/liverpool-aston-villa-premier-league-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 19:08:18+00:00
+
+Liverpool got its Premier League title-winning celebrations back on track with a 2-0 win over Aston Villa, just days after being on the receiving end of a record-equaling defeat.
+
+## Girl, 7, and teens among the victims in Chicago's violent July 4 weekend
+ - [https://www.cnn.com/2020/07/05/us/chicago-shootings-july-4-weekend/index.html](https://www.cnn.com/2020/07/05/us/chicago-shootings-july-4-weekend/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 19:01:08+00:00
+
+A 7-year-old visiting a relative on Chicago's West Side was fatally shot while playing with a group of kids -- among the victims of a violent holiday weekend, the Chicago Police Department said Sunday.
+
+## This country saw a 600% jump in virus cases
+ - [https://www.cnn.com/videos/tv/2020/07/05/exp-iraq-coronavirus.cnn](https://www.cnn.com/videos/tv/2020/07/05/exp-iraq-coronavirus.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 18:55:06+00:00
+
+Iraq's largest cemetery receives 70-80 bodies a day, but those numbers are expected to get much worse in a country whose infrastructure has been wrought by decades of sanctions, war, and corruption. CNN's Arwa Damon reports.
+
+## They envisioned a world without police. Inside Seattle's CHOP zone, protesters struggled to make it real
+ - [https://www.cnn.com/2020/07/05/us/chop-seattle-police-protesters-public-safety/index.html](https://www.cnn.com/2020/07/05/us/chop-seattle-police-protesters-public-safety/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 17:49:41+00:00
+
+In Wednesday's early morning hours, Seattle police cleared the Capitol Hill Organized Protest area, a relatively quiet end to a demonstration that had evolved into an art party, a garden, a tourist attraction, a tent city, a presidential fixation and the scene of multiple shootings, two of them fatal.
+
+## The US President used his stage to make a mystifying -- and dangerously misleading claim
+ - [https://www.cnn.com/2020/07/05/politics/donald-trump-july-4-coronavirus/index.html](https://www.cnn.com/2020/07/05/politics/donald-trump-july-4-coronavirus/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 17:13:59+00:00
+
+As the nation marked a somber Fourth of July with many Americans confined to their homes amid an alarming rise in coronavirus cases, President Donald Trump used his stage on the White House's South Lawn Saturday to put forward a mystifying -- and dangerously misleading claim -- that 99% of coronavirus cases in America are "totally harmless."
+
+## Miami broke its all-time heat record for June, but no warnings were issued. Here's why
+ - [https://www.cnn.com/2020/07/05/weather/miami-heat-advisory-florida-record/index.html](https://www.cnn.com/2020/07/05/weather/miami-heat-advisory-florida-record/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 17:00:36+00:00
+
+On Tuesday, the temperature at Miami International Airport reached 98 degrees Fahrenheit, making it the hottest day on record for the month of June. Yet no heat advisories or excessive heat warnings were issued.
+
+## Bash presses GOP Senator: You criticized Obama in 2014 for this
+ - [https://www.cnn.com/videos/politics/2020/07/05/senator-joni-ernst-iowa-obama-trump-coronavirus-sotu-vpx.cnn](https://www.cnn.com/videos/politics/2020/07/05/senator-joni-ernst-iowa-obama-trump-coronavirus-sotu-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 16:54:51+00:00
+
+CNN's Dana Bash questions Sen. Joni Ernst (R-IA) over her criticism of former President Obama over his handling of the Ebola outbreak in 2014, compared to President Trump's current handling of the coronavirus crisis.
+
+## Formula One drivers divided as several choose not to kneel in support of Black Lives Matter movement
+ - [https://www.cnn.com/2020/07/05/motorsport/f1-austrian-grand-prix-drivers-kneel-and-stand-hamilton-bottas-spt-intl/index.html](https://www.cnn.com/2020/07/05/motorsport/f1-austrian-grand-prix-drivers-kneel-and-stand-hamilton-bottas-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 15:58:40+00:00
+
+The Formula One grid was divided ahead of the sport's return as several drivers, including Charles Leclerc and Max Verstappen, chose not to kneel in support of the Black Lives Matter movement.
+
+## FDA commissioner refuses to defend Trump's unfounded claim
+ - [https://www.cnn.com/2020/07/05/politics/fda-commissioner-coronavirus-trump-cnntv/index.html](https://www.cnn.com/2020/07/05/politics/fda-commissioner-coronavirus-trump-cnntv/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 15:30:26+00:00
+
+The commissioner of the US Food and Drug Administration on Sunday declined to defend President Donald Trump's unfounded claim that 99% of coronavirus cases are "totally harmless" and repeatedly refused to say whether Trump's remark is true or false.
+
+## Strongmen rush to remake the world order as Trump faces potential election defeat
+ - [https://www.cnn.com/2020/07/05/politics/strongmen-world-order-trump-election-intl/index.html](https://www.cnn.com/2020/07/05/politics/strongmen-world-order-trump-election-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 15:10:04+00:00
+
+This past week, on US President Donald Trump's watch Russia and China have effectively re-aligned the coming world order. They didn't do it together, but both took advantage of uncertainty and unpredictability that Trump has helped create.
+
+## Trump distracts from the real threat and uses his stage to make a dangerously misleading claim
+ - [https://www.cnn.com/collections/intl-trump-mount-rushmore-0407/](https://www.cnn.com/collections/intl-trump-mount-rushmore-0407/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 13:53:44+00:00
+
+
+
+## Texas mayor on Trump's coronavirus claim: It makes me angry
+ - [https://www.cnn.com/videos/politics/2020/07/05/austin-texas-mayor-steve-adler-coronavirus-trump-masks-sotu-vpx.cnn](https://www.cnn.com/videos/politics/2020/07/05/austin-texas-mayor-steve-adler-coronavirus-trump-masks-sotu-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 13:48:03+00:00
+
+Austin, Texas Mayor Steve Adler tells CNN's Dana Bash that President Donald Trump is sending the wrong message to Americans about coronavirus.
+
+## Trump invites fear to the party
+ - [https://www.cnn.com/2020/07/05/opinions/trump-invites-fear-to-the-party-opinion-weekly-column-galant/index.html](https://www.cnn.com/2020/07/05/opinions/trump-invites-fear-to-the-party-opinion-weekly-column-galant/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 13:39:55+00:00
+
+At just about every virtual birthday party in the coronavirus era, there comes an awkward moment when people gamely try to sing Happy Birthday in unison over Zoom -- and the voices don't quite sync up.
+
+## At least 2 killed in a shooting at a Greenville, South Carolina, club, police say
+ - [https://www.cnn.com/2020/07/05/us/greenville-south-carolina-shooting/index.html](https://www.cnn.com/2020/07/05/us/greenville-south-carolina-shooting/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 13:07:43+00:00
+
+At least two people were killed and eight others injured in an early Sunday shooting at a Greenville, South Carolina, nightclub, police said.
+
+## London pubs reopened and it was 'absolute madness'
+ - [https://www.cnn.com/travel/article/england-pubs-reopening-police-gbr-intl/index.html](https://www.cnn.com/travel/article/england-pubs-reopening-police-gbr-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 11:32:02+00:00
+
+Drunk people can't properly socially distance, a UK police officer warned after finishing a late shift Saturday -- the first day that pubs reopened in England after the coronavirus shutdown.
+
+## US protesters toppled a Christopher Columbus statue and threw it in a harbor
+ - [https://www.cnn.com/2020/07/05/us/baltimore-protests-christopher-columbus-statue-trnd/index.html](https://www.cnn.com/2020/07/05/us/baltimore-protests-christopher-columbus-statue-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 10:56:45+00:00
+
+While much of the country celebrated Independence Day Saturday, protesters in Baltimore toppled a statue of Christopher Columbus and threw it into the Inner Harbor, CNN affiliate WBAL reported.
+
+## Protesters topple Christopher Columbus statue in Baltimore
+ - [https://www.cnn.com/videos/us/2020/07/05/christopher-columbus-statue-baltimore-vpx.cnn](https://www.cnn.com/videos/us/2020/07/05/christopher-columbus-statue-baltimore-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 10:55:11+00:00
+
+While much of the country celebrated Independence Day, protesters in Baltimore toppled a statue of Christopher Columbus and threw it into the Inner Harbor, CNN affiliate WBAL reported.
+
+## Woman arrested for sharing depictions of women's bodies on Russian social media
+ - [https://www.cnn.com/style/article/yulia-tsvetkova-pornography-gay-propaganda-law-lgbtq-activism-russia/index.html](https://www.cnn.com/style/article/yulia-tsvetkova-pornography-gay-propaganda-law-lgbtq-activism-russia/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 10:10:16+00:00
+
+Yulia Tsvetkova is unsure about her future. She has been criminally charged with the "production and dissemination of pornographic materials," after sharing stylized depictions of vaginas on social media. The resident of a remote city in Russia's Far East, she was released from house arrest on March 16 after four months, but is still under strict travel restrictions and faces up to six years in jail.
+
+## Photo drags the British royal family into the Jeffrey Epstein scandal once again
+ - [https://www.cnn.com/2020/07/04/uk/maxwell-spacey-throne-gbr-intl/index.html](https://www.cnn.com/2020/07/04/uk/maxwell-spacey-throne-gbr-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 08:46:14+00:00
+
+The British royal family has been dragged once again into the Jeffrey Epstein scandal as a photograph emerged showing the late financier's alleged accomplice posing on a throne at Buckingham Palace.
+
+## One of India's richest minority groups enjoys some of Mumbai's best rents. Here's why
+ - [https://www.cnn.com/2020/07/04/india/india-parsi-colony-intl-hnk/index.html](https://www.cnn.com/2020/07/04/india/india-parsi-colony-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 06:44:37+00:00
+
+"Imagine a world within a world." That is how Hormuz Bana describes the centuries-old community where he lives in Mumbai -- and which is in danger of vanishing.
+
+## Man killed by shark in same waters a great white launched deadly attack in April
+ - [https://www.cnn.com/2020/07/05/australia/australia-shark-queensland-fraser-island-intl-hnk/index.html](https://www.cnn.com/2020/07/05/australia/australia-shark-queensland-fraser-island-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 06:20:05+00:00
+
+A 36-year-old man died after being attacked by a shark off the coast of Fraser Island in the Australian state of Queensland on Saturday, local police said in a statement.
+
+## Why tick season could be worse in the summer of Covid-19
+ - [https://www.cnn.com/2020/07/05/us/ticks-lyme-disease-covid-summer-scn-trnd/index.html](https://www.cnn.com/2020/07/05/us/ticks-lyme-disease-covid-summer-scn-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 05:55:09+00:00
+
+After more than three months of shutdowns, mandatory quarantines, self-imposed exile from society and working from home, nature-lovers looking for a well-earned breath of fresh air could face a possible collision course between coronavirus and tick-borne illnesses this summer.
+
+## Teen's coronavirus-themed prom dress made of duct tape is a work of art
+ - [https://www.cnn.com/2020/07/05/us/duct-tape-dress-coronavirus-trnd/index.html](https://www.cnn.com/2020/07/05/us/duct-tape-dress-coronavirus-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 05:12:44+00:00
+
+In January, 18-year-old Peyton Manker embarked on her journey to make a prom dress entirely out of duct tape for a contest to win a scholarship. After weeks of working on her submission, the Covid-19 outbreak not only canceled her prom but altered the course of her senior year.
+
+## Russian democracy is a farce. Putin wants the same fate for America
+ - [https://www.cnn.com/2020/07/05/opinions/russian-democracy-is-a-farce-kasparov/index.html](https://www.cnn.com/2020/07/05/opinions/russian-democracy-is-a-farce-kasparov/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 05:10:33+00:00
+
+The Kremlin bullied and bribed Russians to the ballot box again on Wednesday, the latest episode of what long ago became a painful mockery of democracy. Democracy means choices, and there has been no real choice in Russia for many years. All roads, all votes, lead to Vladimir Putin.
+
+## Chinese telecom giant Huawei is finally feeling the heat
+ - [https://www.cnn.com/2020/07/04/tech/huawei-5g-india-europe-intl-hnk/index.html](https://www.cnn.com/2020/07/04/tech/huawei-5g-india-europe-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-05 01:44:32+00:00
+
+
+

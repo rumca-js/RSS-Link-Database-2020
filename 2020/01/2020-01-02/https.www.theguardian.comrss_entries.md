@@ -1,0 +1,737 @@
+# Source:The Guardian, URL:https://www.theguardian.com/rss, language:en-UK
+
+## US sends asylum seekers to Mexico to await hearings held 350 miles away
+ - [https://www.theguardian.com/us-news/2020/jan/02/us-asylum-seekers-mexico-arizona-remain](https://www.theguardian.com/us-news/2020/jan/02/us-asylum-seekers-mexico-arizona-remain)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 23:28:19+00:00
+
+<p>Authorities are expanding the Remain in Mexico program, which critics say puts migrants into dangerous border towns</p><p>The US government has started sending asylum seekers back to Nogales, Mexico, to await court hearings that will be scheduled roughly 350 miles (563 kilometers) away in Ciudad Juárez.</p><p>Authorities are expanding a program known as Remain in Mexico that <a href="https://www.theguardian.com/us-news/2019/dec/20/immigration-remain-in-mexico-policy-border-migrants">requires tens of thousands of asylum seekers to wait out their immigration court hearings in Mexico</a>. Until this week, the government was driving some asylum seekers from Nogales, Arizona, to El Paso, Texas, so they could be returned to Juárez.</p> <a href="https://www.theguardian.com/us-news/2020/jan/02/us-asylum-seekers-mexico-arizona-remain">Continue reading...</a>
+
+## More than 200 members of Congress urge US supreme court to reconsider Roe v Wade
+ - [https://www.theguardian.com/us-news/2020/jan/02/congress-supreme-court-roe-v-wade-appeal](https://www.theguardian.com/us-news/2020/jan/02/congress-supreme-court-roe-v-wade-appeal)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 23:09:15+00:00
+
+<p>Appeal in an amicus brief in a Louisiana case was signed by 205 Republicans and two Democrats </p><p>More than two hundred members of Congress have urged the US supreme court to reconsider the landmark 1973 Roe v Wade ruling which legalized abortion nationwide.</p><p>The appeal came in an <a href="https://www.republicanwhip.gov/wp-content/uploads/2020/01/18-1323-Amicus-Brief-of-207-Members-of-Congress.pdf">amicus brief</a> in a Louisiana case, and was signed by 205 Republicans and two Democrats, and calls on the high court to revisit the ruling, which affirmed that access to safe abortion is a constitutional right.</p> <a href="https://www.theguardian.com/us-news/2020/jan/02/congress-supreme-court-roe-v-wade-appeal">Continue reading...</a>
+
+## Female paedophile Angela Allen to be released next month
+ - [https://www.theguardian.com/uk-news/2020/jan/02/female-paedophile-angela-allen-to-be-released-next-month](https://www.theguardian.com/uk-news/2020/jan/02/female-paedophile-angela-allen-to-be-released-next-month)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 23:01:14+00:00
+
+<p>Allen’s release will be subject to strict licence conditions and adherence to ‘exclusion zones’</p><p>A female paedophile who operated as part of a “sickening ring” of child abusers is set to be released next month, the Parole Board has confirmed.</p><p>Angela Allen was part of a ring including three other women, who were convinced by IT consultant Colin Blanchard to share photographs of themselves abusing children.</p> <a href="https://www.theguardian.com/uk-news/2020/jan/02/female-paedophile-angela-allen-to-be-released-next-month">Continue reading...</a>
+
+## FA Cup third round: 10 things to look out for this weekend
+ - [https://www.theguardian.com/football/blog/2020/jan/02/fa-cup-third-round-10-things-to-look-out-for-this-weekend](https://www.theguardian.com/football/blog/2020/jan/02/fa-cup-third-round-10-things-to-look-out-for-this-weekend)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 22:56:33+00:00
+
+<p>Minamino’s Merseyside derby baptism, Woodgate’s Tottenham reunion and non-league Fylde take on Sheffield United</p><p>Considering they have been fairly regular visitors over the years, Derby’s record at Selhurst Park is pretty miserable. Indeed in their past 15 trips – a run stretching back to 1983 – they’ve won only once. That victory came in 2002 when <a href="https://www.theguardian.com/football/2002/sep/18/match.sport">Georgi Kinkladze scored the only goal of the game</a>. A big-name big-money player past his peak helping the Rams to an unlikely win in south London? You might be able to spot where this is going. Wayne Rooney made his playing return to English football on Thursday night and played a full 90 minutes <a href="https://www.theguardian.com/football/2020/jan/02/derby-barnsley-championship-match-report">in the 2-1 defeat of Barnsley</a> in which his free-kick supplied Jack Marriott’s opening goal. Two games in four days might be aa stretch for a 34-year-old who had not played since October but he could prove quite the talisman: while Derby’s record at Selhurst is poor, Rooney’s is not – he has never been on the losing side at the ground. <strong>JA</strong></p> <a href="https://www.theguardian.com/football/blog/2020/jan/02/fa-cup-third-round-10-things-to-look-out-for-this-weekend">Continue reading...</a>
+
+## Peter Wright’s romantic tale from darts nearly man to world champion | Jonathan Liew
+ - [https://www.theguardian.com/sport/2020/jan/02/peter-wright-michael-van-gerwen-pdc-world-championships-darts](https://www.theguardian.com/sport/2020/jan/02/peter-wright-michael-van-gerwen-pdc-world-championships-darts)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 22:29:45+00:00
+
+<p>Peter Wright’s triumph on returning to darts after a string of dead-end jobs will remain one of the year’s great stories</p><p>Almost everything is different. For one thing the BBC graphic bills him as English, not Scottish. The throwing motion is not taut and measured but quick and impetuous. The hair is not spiked into a lurid Mohican but sensibly gelled and tousled, making him look less an elite sportsman and more the backing singer in an Irish pop group. The year is 1995 and, as a 24‑year‑old Peter Wright loses 3-1 against Ritchie Burnett in the first round at Lakeside, there is virtually nothing to suggest that we are watching a <a href="https://www.theguardian.com/sport/2020/jan/01/peter-wright-beats-michael-van-gerwen-pdc-world-championship-final" title="">future world champion</a> in the gestation.</p><p> <span>Related: </span><a href="https://www.theguardian.com/sport/2020/jan/01/peter-wright-beats-michael-van-gerwen-pdc-world-championship-final">Peter Wright beats Michael van Gerwen to win his first PDC world title</a> </p> <a href="https://www.theguardian.com/sport/2020/jan/02/peter-wright-michael-van-gerwen-pdc-world-championships-darts">Continue reading...</a>
+
+## Lib Dem MP Layla Moran announces same-sex relationship
+ - [https://www.theguardian.com/world/2020/jan/02/lib-dem-mp-layla-moran-announces-same-sex-relationship](https://www.theguardian.com/world/2020/jan/02/lib-dem-mp-layla-moran-announces-same-sex-relationship)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 22:00:45+00:00
+
+<p>MP decides to go public after being approached by journalists</p><p>The Liberal Democrat MP Layla Moran has announced she is in a “really happy, loving, stable relationship” with a woman, saying she decided to go public after being approached by journalists.</p><p>The MP for Oxford West and Abingdon said she found attributing labels to people’s sexuality contrived, but that the term she most identified with was pansexual, meaning she is attracted to people regardless of their sex or gender identity.</p> <a href="https://www.theguardian.com/world/2020/jan/02/lib-dem-mp-layla-moran-announces-same-sex-relationship">Continue reading...</a>
+
+## Wayne Rooney takes debut director’s role in Derby’s winning production
+ - [https://www.theguardian.com/football/2020/jan/02/derby-barnsley-championship-match-report](https://www.theguardian.com/football/2020/jan/02/derby-barnsley-championship-match-report)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 21:45:18+00:00
+
+<p>Wayne Rooney’s arrival at Derby might have looked like a gimmick but his debut proved he will be a telling influence in the Championship by inspiring his teammates with actions and words on the pitch.</p><p>Although he had a hand in both goals against Barnsley his most obvious impact was as a leader. There was no power or pace to his performance, instead he relied on his guile, cunning and passing. Jack Marriott and Martyn Waghorn scored for Derby, either side of an Elliott Simões equaliser, with Rooney at the heart of both home goals.</p> <a href="https://www.theguardian.com/football/2020/jan/02/derby-barnsley-championship-match-report">Continue reading...</a>
+
+## More women than ever working in film – but men still dominate key roles
+ - [https://www.theguardian.com/film/2020/jan/02/women-film-industry-hollywood-2019](https://www.theguardian.com/film/2020/jan/02/women-film-industry-hollywood-2019)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 21:14:46+00:00
+
+<p>Men outnumber women 4 to 1 in roles such as director and cinematographer, study finds</p><p>The number of women working in the film industry reached a historic high in 2019, but men still outnumber women four to one in key roles.</p><p>Women made up 20% of behind-the-scenes roles on the top 100 domestic grossing films of 2019, a sharp uptick from 16% in 2018, a study by the Center for the Study of Women in Television and Film at San Diego University revealed. However, when it comes to key jobs like director and cinematographer, men continue to dominate.</p> <a href="https://www.theguardian.com/film/2020/jan/02/women-film-industry-hollywood-2019">Continue reading...</a>
+
+## Dominic Cummings calls for 'weirdos and misfits' for No 10 jobs
+ - [https://www.theguardian.com/politics/2020/jan/02/dominic-cummings-calls-for-weirdos-and-misfits-for-no-10-jobs](https://www.theguardian.com/politics/2020/jan/02/dominic-cummings-calls-for-weirdos-and-misfits-for-no-10-jobs)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 21:08:55+00:00
+
+<p>Boris Johnson’s chief adviser touts for ‘unusual’ applicants outside of the Oxbridge set</p><p>Dominic Cummings, Boris Johnson’s chief adviser, has written <a href="https://dominiccummings.com/2020/01/02/two-hands-are-a-lot-were-hiring-data-scientists-project-managers-policy-experts-assorted-weirdos/">a rambling blog</a> calling for “weirdos and misfits with odd skills” to apply for new jobs within No 10.</p><p>In a move way outside the usual recruitment procedures of Whitehall, the key architect of Johnson’s election victory has outlined a set of “unusual” qualities he wishes to see in applicants in the blog post which runs to nearly 3,000 words.</p> <a href="https://www.theguardian.com/politics/2020/jan/02/dominic-cummings-calls-for-weirdos-and-misfits-for-no-10-jobs">Continue reading...</a>
+
+## Alan Bennett reveals 'surprise' open-heart surgery last year
+ - [https://www.theguardian.com/stage/2020/jan/02/alan-bennett-reveals-surprise-open-heart-surgery-last-year](https://www.theguardian.com/stage/2020/jan/02/alan-bennett-reveals-surprise-open-heart-surgery-last-year)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 21:07:39+00:00
+
+<p>Playwright says shock operation ‘knocked him out for three months’</p><p>Alan Bennett has revealed that he underwent open-heart surgery last year.</p><p>The author, playwright and broadcaster broke the news in a diary column, called What I Did in 2019, published in the London Review of Books on Thursday.</p> <a href="https://www.theguardian.com/stage/2020/jan/02/alan-bennett-reveals-surprise-open-heart-surgery-last-year">Continue reading...</a>
+
+## Detroit firefighters face backlash over photo in front of a burning home
+ - [https://www.theguardian.com/us-news/2020/jan/02/detroit-firefighters-facebook-photo](https://www.theguardian.com/us-news/2020/jan/02/detroit-firefighters-facebook-photo)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 20:48:43+00:00
+
+<p>The image was featured on a local Facebook page, showing 18 people posing in front of a blazing vacant building</p><p>A controversial Facebook photo of 18 Detroit firefighters posing in front of a burning home was “inappropriate and unprofessional” and will result in disciplinary action, the city’s fire commissioner said.</p><p>The photo was posted Tuesday just before midnight on the Facebook page Detroit Fire Incidents Page. It included a caption: “Crews take a moment to get a selfie on New Years!”</p> <a href="https://www.theguardian.com/us-news/2020/jan/02/detroit-firefighters-facebook-photo">Continue reading...</a>
+
+## TS Eliot’s hidden love letters reveal intense, heartbreaking affair
+ - [https://www.theguardian.com/books/2020/jan/02/ts-eliot-hidden-love-letters-reveal-intense-heartbreaking-affair-emily-hale](https://www.theguardian.com/books/2020/jan/02/ts-eliot-hidden-love-letters-reveal-intense-heartbreaking-affair-emily-hale)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 19:50:34+00:00
+
+<p>‘I tried to pretend that my love for you was dead, though I could only do so by pretending myself that my heart was dead,’ the poet wrote to Emily Hale</p><ul><li><a href="https://www.theguardian.com/books/2020/jan/01/ts-eliot-intimate-letters-to-confidante-emily-hale-unveiled-after-60-years">TS Eliot’s intimate letters to confidante unveiled after 60 years</a></li></ul><p><a href="https://www.theguardian.com/books/ts-eliot">TS Eliot</a>’s love letters to scholar Emily Hale, the great poet’s muse and source of “supernatural ecstasy” for more than 30 years, were released on Thursday amid fevered <a href="https://www.theguardian.com/books/2020/jan/01/ts-eliot-intimate-letters-to-confidante-emily-hale-unveiled-after-60-years">speculation</a> and under tight security at an elegant library on the campus of the Ivy League’s Princeton University.</p><p>The Nobel laureate’s correspondence to Hale, whom he met when both were studying at Harvard University in 1912, has long been the fascination of Eliot scholars but remained hidden, on both the poet and Hale’s wishes, for 50 years after Hale’s death in 1969.</p> <a href="https://www.theguardian.com/books/2020/jan/02/ts-eliot-hidden-love-letters-reveal-intense-heartbreaking-affair-emily-hale">Continue reading...</a>
+
+## Keir Starmer calls to rebuild party as 'force for good'
+ - [https://www.theguardian.com/politics/2020/jan/02/labour-leader-favourite-starmer-calls-to-rebuild-party-as-force-for-good](https://www.theguardian.com/politics/2020/jan/02/labour-leader-favourite-starmer-calls-to-rebuild-party-as-force-for-good)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 19:49:48+00:00
+
+<p>YouGov poll shows Starmer in lead to head party over nearest rival Rebecca Long-Bailey</p><p>Sir Keir Starmer, the favourite to succeed Jeremy Corbyn as Labour leader, has called for the party to become a “trusted force for good” as up to nine rival candidates consider whether to stand next week.</p><p>The shadow Brexit secretary is seen as the candidate to beat following a YouGov poll showing he has a commanding lead over nearest rival and Corbyn ally <a href="https://www.theguardian.com/politics/2019/dec/31/can-rebecca-long-bailey-vision-revive-labour-fortunes">Rebecca Long-Bailey</a>, the shadow business secretary.</p> <a href="https://www.theguardian.com/politics/2020/jan/02/labour-leader-favourite-starmer-calls-to-rebuild-party-as-force-for-good">Continue reading...</a>
+
+## Commuters gather at Bolton station in protest over increased rail fares
+ - [https://www.theguardian.com/uk-news/2020/jan/02/commuters-gather-at-bolton-station-in-protest-over-increased-rail-fares](https://www.theguardian.com/uk-news/2020/jan/02/commuters-gather-at-bolton-station-in-protest-over-increased-rail-fares)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 19:36:16+00:00
+
+<p>Campaigners lead national day of action amid months of delays and cancellations</p><p>Frustrated commuters gathered outside Bolton train station on Thursday evening as part of a national day of action to protest against increased rail fares.</p><p>The demonstration was organised by campaign group Northern Resist in partnership with the Association of British Commuters and Bring Back British Rail.</p> <a href="https://www.theguardian.com/uk-news/2020/jan/02/commuters-gather-at-bolton-station-in-protest-over-increased-rail-fares">Continue reading...</a>
+
+## Grant Shapps has two ideas for Northern rail. Neither is exactly radical | Nils Pratley
+ - [https://www.theguardian.com/business/nils-pratley-on-finance/2020/jan/02/grant-shapps-has-two-ideas-for-northern-rail-neither-is-exactly-radical](https://www.theguardian.com/business/nils-pratley-on-finance/2020/jan/02/grant-shapps-has-two-ideas-for-northern-rail-neither-is-exactly-radical)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 19:28:21+00:00
+
+<p>The transport secretary should save the promises to ‘frustrated commuters’ until he has a real plan</p><p>What does a transport secretary do on a day when rail passengers are grumbling about <a href="https://www.theguardian.com/money/2020/jan/02/call-for-rethink-on-rail-fares-after-latest-above-inflation-increase">annual increases in fares</a>? One diversionary tactic is to put the boot into one of the most unpopular franchises in the country – Arriva-operated Northern rail – to give the impression the government is primed for radical intervention.</p><p>Thus Grant Shapps talked excitedly on Thursday about how he is not prepared to tolerate Northern’s “completely unacceptable” service. The contract would be <a href="https://www.theguardian.com/uk-news/2020/jan/02/northern-rail-to-be-stripped-of-franchise-says-grant-shapps">“brought to an end”</a> and “frustrated commuters will not have to wait long” for action. Fine, so what’s your plan?</p> <a href="https://www.theguardian.com/business/nils-pratley-on-finance/2020/jan/02/grant-shapps-has-two-ideas-for-northern-rail-neither-is-exactly-radical">Continue reading...</a>
+
+## Financial markets surge after £87bn Chinese cash increase
+ - [https://www.theguardian.com/business/2020/jan/02/financial-markets-surge-after-87bn-chinese-cash-boost](https://www.theguardian.com/business/2020/jan/02/financial-markets-surge-after-87bn-chinese-cash-boost)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 19:15:26+00:00
+
+<p>Record high on Wall Street and share rises in Europe following US-China trade deal progress</p><p>Financial markets around the world have started the year on a high, with stocks rallying in Europe and setting fresh records on Wall Street as optimism grows over the improving global economic outlook.</p><p>On the first trading day of the decade, shares surged after China’s central bank announced an 800bn yuan (£87bn) cash increase for the economy, and <a href="https://www.theguardian.com/us-news/donaldtrump">Donald Trump</a> said <a href="https://www.theguardian.com/business/2019/dec/13/china-confirms-phase-one-trade-deal-us-tariffs">phase one</a> of a trade deal between Washington and Beijing would be signed on <a href="https://www.theguardian.com/business/2019/dec/31/donald-trump-says-he-will-sign-first-phase-of-us-china-trade-deal">15 January</a>.</p> <a href="https://www.theguardian.com/business/2020/jan/02/financial-markets-surge-after-87bn-chinese-cash-boost">Continue reading...</a>
+
+## England’s Rory Burns out of ‘cursed’ tour after rolling ankle playing football
+ - [https://www.theguardian.com/sport/2020/jan/02/england-rory-burns-ankle-injury-before-second-test-south-africa](https://www.theguardian.com/sport/2020/jan/02/england-rory-burns-ankle-injury-before-second-test-south-africa)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 19:14:21+00:00
+
+• Management ban football after opener’s training injury<br />• Jofra Archer to miss second Test with elbow problem<p>Ben Stokes revealed this week that England’s players are calling their assignment in South Africa “the cursed tour” and yet more evidence that is the case presented itself on Thursday when Rory Burns was ruled out of the rest of the series after injuring an ankle during a game of football on the eve of the second Test.</p><p>The news, which leaves a sizeable hole at the top of England’s batting order, came soon after it emerged Jofra Archer is all but certain to miss this Cape Town Test with an elbow injury that flared up on New Year’s Day. Unlike Burns, who will return home for treatment on the left ankle that has sustained ligament damage, it is hoped Archer will be fit for the final two Tests of the four-match series.</p> <a href="https://www.theguardian.com/sport/2020/jan/02/england-rory-burns-ankle-injury-before-second-test-south-africa">Continue reading...</a>
+
+## Man arrested after mother stabbed in front of child in Streatham
+ - [https://www.theguardian.com/uk-news/2020/jan/02/man-arrested-after-mother-stabbed-front-of-child-streatham](https://www.theguardian.com/uk-news/2020/jan/02/man-arrested-after-mother-stabbed-front-of-child-streatham)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 18:41:33+00:00
+
+<p>Suspect held over attempted murder after handing himself in at west London police station </p><p>A man has been arrested after handing himself in to police following the stabbing of a mother in front of her child in Streatham, south London.</p><p>The 43-year-old, who has not been named, was arrested on suspicion of attempted murder and suspected possession of offensive weapons. He visited a west London police station in the early hours of Thursday morning, the Metropolitan police said.</p> <a href="https://www.theguardian.com/uk-news/2020/jan/02/man-arrested-after-mother-stabbed-front-of-child-streatham">Continue reading...</a>
+
+## Martin Rowson on the Labour leadership race – cartoon
+ - [https://www.theguardian.com/commentisfree/picture/2020/jan/02/martin-rowson-on-the-labour-leadership-race-cartoon](https://www.theguardian.com/commentisfree/picture/2020/jan/02/martin-rowson-on-the-labour-leadership-race-cartoon)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 18:38:52+00:00
+
+<a href="https://www.theguardian.com/commentisfree/picture/2020/jan/02/martin-rowson-on-the-labour-leadership-race-cartoon">Continue reading...</a>
+
+## The Guardian view on civil service reform: a Cummings plan | Editorial
+ - [https://www.theguardian.com/commentisfree/2020/jan/02/the-guardian-view-on-civil-service-reform-a-cummings-plan](https://www.theguardian.com/commentisfree/2020/jan/02/the-guardian-view-on-civil-service-reform-a-cummings-plan)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 18:38:10+00:00
+
+Governments are entitled to deliver on their pledges. This requires proper levels of spending and openness to new ways of getting them on time and on budget<p>Britain’s civil service is often depicted, in <a href="https://blogs.lse.ac.uk/politicsandpolicy/the-lessons-of-tony-benn-as-a-cabinet-minister-breaking-the-rules-and-paying-the-price/" title="">fact</a> and in <a href="https://www.theguardian.com/commentisfree/2009/apr/20/in-praise-of-yes-minister" title="">fiction</a>, as an unchanging monolith. Yet for decades Whitehall has been an arena of repeated and often radical change. Governments of different colours – the Conservatives in 1951 and 1979, Labour in 1964 and 1997 – have come into office suspicious of what they saw as a kind of permanent Whitehall machine, dedicated to maintaining a continuity in policy which politicians are powerless to overthrow. Now, as a result of the 2019 election, Britain has another such government.</p><p>Boris Johnson’s government will soon unveil its own plans for public sector reform. <a href="https://www.theguardian.com/politics/2020/jan/02/cummings-likely-to-have-big-influence-over-whitehall-reforms" title="">In an article</a> on Thursday, the influential Conservative policy adviser <a href="http://www.publicfirst.co.uk/our-people/rachel-wolf" title="">Rachel Wolf</a> makes clear that these are not intended to be cosmetic. Instead, Ms Wolf argues that changing Whitehall will be a major and radical focus of the Johnson era. Too much of the early discussion about the possible changes, she warns, has focused on a departmental reshuffle, with the Brexit department closed down, and changes affecting the Home Office, justice and international development.</p> <a href="https://www.theguardian.com/commentisfree/2020/jan/02/the-guardian-view-on-civil-service-reform-a-cummings-plan">Continue reading...</a>
+
+## 'They do taste nice': consumers spoilt for choice for vegan fast-food options
+ - [https://www.theguardian.com/food/2020/jan/02/fast-food-outlets-launch-new-vegan-options-for-veganuary](https://www.theguardian.com/food/2020/jan/02/fast-food-outlets-launch-new-vegan-options-for-veganuary)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 18:27:47+00:00
+
+<p>KFC and Greggs among chains selling meat-free options to quarter of a million Britons set to embrace Veganuary</p><p>Forget food storage boxes with leftover nut roast and bean curries, the quarter of a million Britons set to ditch animal products for Veganuary this month are unlikely to be stuck for on-the-go options.</p><p>On the first working day of 2020 several food retailers started selling new meat-free options, including KFC, which launched its first vegan burger nationwide. Greggs, the UK’s largest bakery chain, <a href="https://www.theguardian.com/business/2020/jan/02/greggs-launches-meatless-steak-bake-beef-up-vegan-range">also launched a meat-free version of its popular steakbake</a> following the exceptional success of its meatless sausage roll last year.</p> <a href="https://www.theguardian.com/food/2020/jan/02/fast-food-outlets-launch-new-vegan-options-for-veganuary">Continue reading...</a>
+
+## Rural Colorado residents ‘nervous’ as mysterious drones loom in sky
+ - [https://www.theguardian.com/us-news/2020/jan/02/colorado-drones-nebraska-faa](https://www.theguardian.com/us-news/2020/jan/02/colorado-drones-nebraska-faa)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 18:27:04+00:00
+
+<p>Aircrafts spotted above north-east Colorado and south-west Nebraska fly in harmony, according to law enforcement</p><p>Residents of rural Colorado have been left “very nervous and anxious” by a group of unmanned drones that have been gathering in the sky over a period of weeks.</p><p>At least 17 of the drones have been spotted looming above north-east Colorado and south-west Nebraska. In the week before Christmas the unmarked drones appeared over Phillips county every night at 7pm.</p> <a href="https://www.theguardian.com/us-news/2020/jan/02/colorado-drones-nebraska-faa">Continue reading...</a>
+
+## Chef wrongly branded sex offender faces removal from UK
+ - [https://www.theguardian.com/politics/2020/jan/02/bangladesh-chef-saiful-islam-faces-removal-from-uk-despite-home-office-errors](https://www.theguardian.com/politics/2020/jan/02/bangladesh-chef-saiful-islam-faces-removal-from-uk-despite-home-office-errors)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 18:13:22+00:00
+
+<p>Home Office trying to deport Saiful Islam despite apology and offer of compensation</p><p>A chef from Bangladesh who was wrongly branded a sex offender by the Home Office is facing removal from the UK despite a court finding that officials had incorrectly linked three other people’s criminal records to him and failed to provide key documents to support his case.</p><p>Despite hoping to remove him from the UK the Home Office has apologised and offered £5,000 compensation for its errors.</p> <a href="https://www.theguardian.com/politics/2020/jan/02/bangladesh-chef-saiful-islam-faces-removal-from-uk-despite-home-office-errors">Continue reading...</a>
+
+## Patriotism cannot be progressive if it masks hostility and prejudice | Letters
+ - [https://www.theguardian.com/politics/2020/jan/02/patriotism-cannot-be-progressive-if-it-masks-hostility-and-prejudice](https://www.theguardian.com/politics/2020/jan/02/patriotism-cannot-be-progressive-if-it-masks-hostility-and-prejudice)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 18:07:12+00:00
+
+Former Europe minister <strong>Denis MacShane</strong> and <strong>Nick Moss</strong> take issue with Labour leadership candidate Rebecca Long Bailey’s call for the party to revive ‘progressive patriotism’<p>Rebecca Long Bailey (<a href="https://www.theguardian.com/commentisfree/2019/dec/29/rebecca-long-bailey-labour-party-britain" title="">Journal</a>, 30 December) cites, as an example of what she calls “progressive patriotism”, support by Lancashire mill workers in 1862 for Abraham Lincoln’s war to end slavery in the United States. It was indeed a generous act supported by the Liberal MP for Manchester, a mill owner, Sir Tom Bazley, and was part of a wider Manchester campaign for free trade – best exemplified today by the no-frontier trade of the EU.</p><p>However, in 1917, unions representing railway workers, miners and engineering workers passed a resolution to stop “coloured”, Chinese and other foreign workers coming to help Britain produce more arms and food in the first world war. In 1945, Polish soldiers who stayed in Britain were sent down mines to dig vital coal. British miners refused to work with them so separate shifts and even working men’s clubs were set up to keep them apart.</p> <a href="https://www.theguardian.com/politics/2020/jan/02/patriotism-cannot-be-progressive-if-it-masks-hostility-and-prejudice">Continue reading...</a>
+
+## Future of British Steel hangs on thread of taxpayers' cash
+ - [https://www.theguardian.com/business/2020/jan/02/future-of-british-steel-hangs-on-thread-of-taxpayers-cash](https://www.theguardian.com/business/2020/jan/02/future-of-british-steel-hangs-on-thread-of-taxpayers-cash)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 18:05:08+00:00
+
+<p>Since its insolvency 225 days ago, the firm is being propped up with £1m a day to buffer losses</p><p>British Steel <a href="https://www.theguardian.com/business/2019/may/22/british-steel-to-enter-insolvency-after-rescue-talks-with-government-fail">plunged into insolvency</a> 225 days ago.</p><p>Since then, taxpayers have funded its operational losses of an estimated £1m a day. It doesn’t take a mathematician to see that this can only go on for so long; a deal securing the future of the company’s 4,500 staff needs to be agreed – and fast.</p> <a href="https://www.theguardian.com/business/2020/jan/02/future-of-british-steel-hangs-on-thread-of-taxpayers-cash">Continue reading...</a>
+
+## Report shows betting industry's reliance on problem gamblers
+ - [https://www.theguardian.com/society/2020/jan/02/gambling-report-shows-industrys-reliance-on-loss-making-customers](https://www.theguardian.com/society/2020/jan/02/gambling-report-shows-industrys-reliance-on-loss-making-customers)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 18:00:40+00:00
+
+<p><strong>Exclusive: </strong>Regulator considers banning VIP schemes after betting firm data reveals widespread use</p><ul><li><strong><a href="https://www.theguardian.com/society/2020/jan/02/it-keeps-you-coming-back-the-rise-of-vip-gambling-schemes">‘It keeps you coming back’: the rise of VIP gambling schemes</a></strong></li></ul><p>The dependence of the UK gambling industry on high-spending VIPs, customers who are disproportionately likely to be addicts, has been laid bare in a secret report obtained by the Guardian.</p><p>The Gambling Commission is considering whether to ban VIP schemes in Britain after collecting data from betting firms, including one that took 83% of all deposits from 2% of its customers.</p> <a href="https://www.theguardian.com/society/2020/jan/02/gambling-report-shows-industrys-reliance-on-loss-making-customers">Continue reading...</a>
+
+## Leslie Baruch Brent obituary
+ - [https://www.theguardian.com/science/2020/jan/02/leslie-baruch-brent-obituary](https://www.theguardian.com/science/2020/jan/02/leslie-baruch-brent-obituary)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 17:47:22+00:00
+
+Immunologist whose groundbreaking work helped provide the basis for organ transplantation<p>Leslie Baruch Brent, who has died aged 94, was a PhD student at University College London when he co-authored the first of two groundbreaking papers. In 1953 he showed that immunological tolerance – the capacity to accept an unrelated tissue transplant – could be experimentally induced. This won lifelong fame for him and his two senior colleagues, Peter Medawar, the team leader, and <a href="http://www.theguardian.com/news/2002/dec/02/guardianobituaries.health" title="Rupert Billingham obituary">Rupert Billingham</a>, a postdoctoral researcher. They were nicknamed “the Holy Trinity” by American immunologists. We now take for granted that tissues and organs can be transplanted even if the recipient is genetically dissimilar and perpetually takes powerful drugs that suppress the immune response. This was unthinkable in the early 1950s.</p><p>In the 40s Medawar had proved that “foreign” tissues are usually rapidly destroyed by the same immune system that also fights infections. Billingham, Brent and Medawar began their landmark experiments inspired by previous observations. The US immunogeneticist Ray Owen had shown in 1945 that dizygotic (fraternal) twin calves have red blood cell chimerism, the red blood cells of each mingling with others originating from their twin while in the womb. Owen postulated that precursor red cells must have been exchanged before birth, that the foreign cells had been accepted, and that they had established their own lineage. </p> <a href="https://www.theguardian.com/science/2020/jan/02/leslie-baruch-brent-obituary">Continue reading...</a>
+
+## Tune-free pop and the new Katie Hopkins: our 2020 celebrity predictions
+ - [https://www.theguardian.com/lifeandstyle/lostinshowbiz/2020/jan/02/tune-free-pop-and-the-new-katie-hopkins-our-2020-celebrity-predictions](https://www.theguardian.com/lifeandstyle/lostinshowbiz/2020/jan/02/tune-free-pop-and-the-new-katie-hopkins-our-2020-celebrity-predictions)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 17:46:25+00:00
+
+<p>What does our crystal ball say the new year will bring for celebs? Sex tapes, terrible singing and off-the-cuff sofa jokes that ignite the far right. Sounds great! </p><p>There are two ways to spend New Year’s Eve, as best as I can tell: you either dirty the floor of a house party and spend the smallest of the small hours running desperately out of drinkable alcohol until you realise it’s 7am and the sun is up and you just watched yourself pour Pepsi Max into half a cup of Bailey’s until they both curdled into a sort of vomitty pâté; or you watched Jools at home with a blanket over your legs, in bed with your teeth brushed by 10 past 12. You get absolutely zero points for guessing which one of the two I saw the new year in with. My body is still shaking.</p><p>Fair to say, too, that celebrities have yet to emerge blinkingly into the new decade. In the Christmas lull, the famous go into one of two modes of hibernation: either posting a succession of matching-pyjama family selfies in million-pound mansions that are identically decorated with plush beige carpets and tasteful but anonymous tonal greys; or going on holiday somewhere unthinkably lush and posting: “How’s the weather back home!” while sizzling in a hammock over aquamarine Maldivian waters. What I am saying is that there is no news, all right, and we can’t spend 1,200 words having a go at Cats again, so we simply have to preview the year 2020 and have a stab at guessing what the world of fame has for us. Is it a cop-out? Or is it actually quite a decent effort for someone who still has “brandy” in his system and who many doctors would advise shouldn’t be sitting upright at this still-early stage in his hangover? Well exactly. Let’s get on with it.</p> <a href="https://www.theguardian.com/lifeandstyle/lostinshowbiz/2020/jan/02/tune-free-pop-and-the-new-katie-hopkins-our-2020-celebrity-predictions">Continue reading...</a>
+
+## Families pay tribute to couple found stabbed to death in Derbyshire
+ - [https://www.theguardian.com/uk-news/2020/jan/02/families-pay-tribute-to-couple-found-stabbed-to-death-in-derbyshire](https://www.theguardian.com/uk-news/2020/jan/02/families-pay-tribute-to-couple-found-stabbed-to-death-in-derbyshire)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 17:32:51+00:00
+
+<p>Man, 39, charged with double murder as victims are named by Derbyshire police</p><p>The families of two people who were found stabbed to death in Derbyshire on New Year’s Day have paid tribute to them.</p><p>Helen Hancock, 39, from Duffield, and Martin Griffiths, 48, from Derby, who were found at a property in Duffield, were formally named by Derbyshire police.</p> <a href="https://www.theguardian.com/uk-news/2020/jan/02/families-pay-tribute-to-couple-found-stabbed-to-death-in-derbyshire">Continue reading...</a>
+
+## Amazon threatened to fire employees for speaking out on climate, workers say
+ - [https://www.theguardian.com/technology/2020/jan/02/amazon-threatened-fire-employees-speaking-out-climate-change-workers-say](https://www.theguardian.com/technology/2020/jan/02/amazon-threatened-fire-employees-speaking-out-climate-change-workers-say)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 17:22:22+00:00
+
+<p>Revealed: emails show group of employees who called for stronger climate action by the company were told they risked dismissal </p><p>Amazon has threatened to fire employees for speaking publicly about the company’s role in the climate crisis, tech workers at the retail giant have revealed.</p><p> <span>Related: </span><a href="https://www.theguardian.com/us-news/live/2020/jan/02/trump-news-today-live-bernie-sanders-joe-biden-democrats-latest-updates">Trump campaign credits impeachment for helping to fundraise $46m – live</a> </p> <a href="https://www.theguardian.com/technology/2020/jan/02/amazon-threatened-fire-employees-speaking-out-climate-change-workers-say">Continue reading...</a>
+
+## Plan for landfill site near Rome airport sparks political row
+ - [https://www.theguardian.com/world/2020/jan/02/plans-for-landfill-site-near-rome-airport-sparks-political-row](https://www.theguardian.com/world/2020/jan/02/plans-for-landfill-site-near-rome-airport-sparks-political-row)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 17:03:31+00:00
+
+<p>Site is in area where previous rubbish dump was closed after failing to meet EU standards</p><p>Plans to build a landfill site close to Italy’s largest airport have triggered an outcry among local residents and sparked a political row, with one of the country’s governing parties under attack for backtracking on its environmental promises.</p><p>Rome’s mayor, Virginia Raggi, who is from the Five Star Movement (M5S), the party governing the city and ruling nationally alongside the Democratic party (PD), reached an agreement with Nicola Zingaretti, president of the Lazio region and the PD leader, on New Year’s Eve for the landfill to be built within the next 18 months. The proposed site is Monte Carnevale, in Valle Galeria, an area that hosted Malagrotta, a rubbish dump that was closed in 2013 after failing to meet EU standards.</p> <a href="https://www.theguardian.com/world/2020/jan/02/plans-for-landfill-site-near-rome-airport-sparks-political-row">Continue reading...</a>
+
+## Israel supreme court dismisses 'premature' Netanyahu petition
+ - [https://www.theguardian.com/world/2020/jan/02/israel-supreme-court-dismisses-premature-netanyahu-petition-indicted](https://www.theguardian.com/world/2020/jan/02/israel-supreme-court-dismisses-premature-netanyahu-petition-indicted)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 16:57:06+00:00
+
+<p>Ruling on whether indicted PM can return to role delayed until after March election</p><p>The supreme court in Israel has declined to weigh in on whether Benjamin Netanyahu can return to his post as prime minister now that he has been indicted, postponing any ruling on his political future until after March elections.</p><p>A three-judge panel said while the question of whether an indicted member of parliament could form a government was important, it would be premature to rule on the issue before the vote.</p> <a href="https://www.theguardian.com/world/2020/jan/02/israel-supreme-court-dismisses-premature-netanyahu-petition-indicted">Continue reading...</a>
+
+## German zoo fire: three women hand themselves in to police
+ - [https://www.theguardian.com/world/2020/jan/02/german-zoo-fire-three-women-hand-themselves-in-to-police](https://www.theguardian.com/world/2020/jan/02/german-zoo-fire-three-women-hand-themselves-in-to-police)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 16:55:59+00:00
+
+<p>Mother and two daughters investigated for setting off sky lanterns on New Year’s Eve</p><p>A mother and her two daughters have turned themselves in to police over a blaze that killed dozens of animals at a zoo in Germany on New Year’s Eve, police confirmed on Thursday.</p><p>The three women are being investigated for setting off flying lanterns, which are banned, to celebrate the New Year, Gerd Hoppmann, head of the Krefeld criminal police, said at a press conference.</p> <a href="https://www.theguardian.com/world/2020/jan/02/german-zoo-fire-three-women-hand-themselves-in-to-police">Continue reading...</a>
+
+## Julián Castro drops out of 2020 race: 'I've determined that it simply isn’t our time'
+ - [https://www.theguardian.com/world/2020/jan/02/julian-castro-drops-out-2020-race-president](https://www.theguardian.com/world/2020/jan/02/julian-castro-drops-out-2020-race-president)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 16:48:17+00:00
+
+<ul><li>Castro’s departure leaves contest without Latino candidate</li><li>45-year-old Texan seen as a possible vice-presidential pick</li></ul><p><a href="https://www.theguardian.com/world/julian-castro">Julián Castro</a>, the former housing secretary under <a href="https://www.theguardian.com/us-news/barack-obama">Barack Obama</a> and the only Latino candidate in the <a href="https://www.theguardian.com/us-news/us-elections-2020">2020</a> presidential race, has ended his bid for the Democratic nomination after struggling to break out in a crowded and diverse field of candidates.</p><p> <span>Related: </span><a href="https://www.theguardian.com/us-news/2020/jan/02/bernie-sanders-fundraising-fourth-quarter">Sanders raises $34.5m in fourth quarter, a major haul before Iowa caucuses</a> </p> <a href="https://www.theguardian.com/world/2020/jan/02/julian-castro-drops-out-2020-race-president">Continue reading...</a>
+
+## Broadway in 2020: big stars, big revivals and that Michael Jackson musical
+ - [https://www.theguardian.com/stage/2020/jan/02/broadway-2020-new-plays-musicals](https://www.theguardian.com/stage/2020/jan/02/broadway-2020-new-plays-musicals)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 16:45:10+00:00
+
+<p>After another smash hit year at the box office, the next 12 months promises more of the same ... with added controversy</p><p>The lights are bright on Broadway. Blinding even. With 35 plays and musicals now running, Broadway looks likely to have grossed over $1bn in 2019, having played to more than 8 million people. National tours have become de rigueur for every musical that doesn’t absolutely flop and satellite productions pop up across the globe.</p><p> <span>Related: </span><a href="https://www.theguardian.com/stage/2019/dec/03/broadway-in-2019-a-flashy-fractured-year-of-confused-highs-and-lows">Broadway in 2019: a flashy, fractured year of confused highs and lows</a> </p> <a href="https://www.theguardian.com/stage/2020/jan/02/broadway-2020-new-plays-musicals">Continue reading...</a>
+
+## Me … review – Emma Dodd's plucky penguin waddles into the big world
+ - [https://www.theguardian.com/stage/2020/jan/02/me-review-emma-dodd-plucky-penguin-little-angel-studios](https://www.theguardian.com/stage/2020/jan/02/me-review-emma-dodd-plucky-penguin-little-angel-studios)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 16:43:06+00:00
+
+<p><strong>Little Angel Studios, London</strong><br />A chick finds its feet in this gentle puppet adaptation of the popular book, aimed at children aged two to five</p><p>‘Winter is long,” sighs the baby penguin on stage. No need telling that to a crowd of bleary-eyed parents and carers, with their own squawking chicks in tow, for this adaptation of <a href="http://emmadodd.co.uk/">Emma Dodd</a>’s popular book.</p><p>The Little Angel puppet theatre does a reliably fun festive show – I have fond memories of the chatty stockings waiting to be filled in 2013’s <a href="https://www.theguardian.com/stage/2013/dec/29/moominland-midwinter-good-neighbour-night-before-christmas">The Night Before Christmas</a> (“Hope there’s a satsuma!”). First put on in 2016, Samantha Lane’s production Me … now has a run in its studio space. Children sprawl on soft mats before a stage that is framed by designer Simon Plumridge with slabs of cracked ice.</p> <a href="https://www.theguardian.com/stage/2020/jan/02/me-review-emma-dodd-plucky-penguin-little-angel-studios">Continue reading...</a>
+
+## Authoritarian leaders thrive on fear. We need to help people feel safe | Michele Gelfand
+ - [https://www.theguardian.com/commentisfree/2020/jan/02/authoritarian-leaders-people-safe-voters](https://www.theguardian.com/commentisfree/2020/jan/02/authoritarian-leaders-people-safe-voters)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 16:34:41+00:00
+
+Across the world, voters are falling prey to leaders who appeal to their worst instincts. Why?<p>With every new year, I typically set aside some time to write down what I’m grateful for. Health, family, friends, books, jazz, my dog, among other things. This year I added something I’ve been taking for granted. It’s democracy.</p><p>Like many of us, I have worried about the rising tide of rightwing populism, nationalism and polarisation across the world. Within just a few years, we’ve witnessed the election of Donald Trump in the US, the <a href="https://www.theguardian.com/politics/eu-referendum" title="">Brexit decision</a> in the UK, the rise of <a href="https://www.theguardian.com/world/matteo-salvini" title="">Matteo Salvini</a> in Italy, <a href="https://www.theguardian.com/world/viktor-orban" title="">Victor Orbán</a> in Hungary, the <a href="https://www.theguardian.com/world/2016/apr/24/austrian-far-right-wins-first-round-presidential-election-norbert-hofer" title="">Freedom party in Austria</a> and the <a href="https://www.theguardian.com/world/2019/oct/14/poland-populist-law-and-justice-party-increases-majority" title="">Law and Justice party</a> in Poland. The world’s largest democracy, India, is menaced by a newly virulent <a href="https://www.theguardian.com/commentisfree/2019/dec/22/bjp-citizenship-amendment-act-indians" title="">nationalism and xenophobia</a>.</p> <a href="https://www.theguardian.com/commentisfree/2020/jan/02/authoritarian-leaders-people-safe-voters">Continue reading...</a>
+
+## Lone wolf in Belgium gets potential love interest
+ - [https://www.theguardian.com/world/2020/jan/02/lone-wolf-in-belgium-gets-potential-love-interest](https://www.theguardian.com/world/2020/jan/02/lone-wolf-in-belgium-gets-potential-love-interest)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 16:25:31+00:00
+
+<p>Potential female mate spotted in habitat of wild male in east of country </p><p>A lone wolf in Belgium has a love interest, after a potential female mate was spotted in his habitat in the east of the country, authorities have said.</p><p>The Flemish Agency for Nature and Forests (ANB) revealed this week the first images of a she-wolf it has christened Noëlla, who was spotted in the north-eastern province of Limbourg, bordering the Netherlands.</p> <a href="https://www.theguardian.com/world/2020/jan/02/lone-wolf-in-belgium-gets-potential-love-interest">Continue reading...</a>
+
+## The most exciting movies of 2020 – biopics
+ - [https://www.theguardian.com/film/2020/jan/02/the-most-exciting-movies-of-2020-biopics](https://www.theguardian.com/film/2020/jan/02/the-most-exciting-movies-of-2020-biopics)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 16:02:31+00:00
+
+<p>Jennifer Hudson plays the queen of soul, Ethan Hawke tackles Tesla and Julianne Moore tells the story of Gloria Steinem</p><ul><li><a href="https://www.theguardian.com/film/series/the-most-anticipated-movies-of-2020">More of the most anticipated films of 2020</a></li></ul><p>Having wiped away her Catstoddler snot, Jennifer Hudson gives her pipes a wider airing in this Aretha Franklin biopic which – unlike other movies featuring the great lady – Franklin was happy to be involved with. Forest Whitaker plays her father, a civil rights activist preacher, while Marlon Wayans is her first husband, Ted White, and Mary J Blige is Dinah Washington. It’s the first feature film directed by stage staple Liesl Tommy who has already been signed to follow Respect with a Trevor Noah biopic.</p> <a href="https://www.theguardian.com/film/2020/jan/02/the-most-exciting-movies-of-2020-biopics">Continue reading...</a>
+
+## We need to redefine manhood. Our warped ideas are causing a mental health crisis | JJ Bola
+ - [https://www.theguardian.com/commentisfree/2020/jan/02/manhood-mental-health-masculinity](https://www.theguardian.com/commentisfree/2020/jan/02/manhood-mental-health-masculinity)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 16:01:15+00:00
+
+Our society reinforces the worst kinds of masculinity – I’ve seen it ruin lives, and it almost brought me down<p>One sunny afternoon, when I was around 13 or 14, I was walking down Tottenham High Road hand-in-hand with one of my uncles. He wasn’t a blood relative but, like many of the older men in my community, I called him uncle. I was born in Kinshasa in the Congo, a society in which men hold hands to show the affection and bond we feel for each other. As we walked on to his housing estate, a group of teenagers spotted us. I could see the looks of disgust on their faces. I heard one of them call out: “Yo, big man. You holding hands, yeah.” I looked over. His eyes punched through my chest. I felt my legs shake as if my knees were going to buckle. I can still remember the sting in my heart. The experience made me question what “normal” was, and highlighted contradictions in my own sense of masculinity. </p><p>I had a good childhood. I had a close family and felt love. But as I got older, I struggled with my mental health. From around 18 until my mid-20s, I experienced depression, anxiety and social isolation. When making a phone call, I’d have to rehearse the conversation before I could pick up and dial. There would be times when, if I didn’t want attention, I’d just avoid a situation altogether. At university, if I was late to a lecture, I just wouldn’t go in – pushing those doors open and letting people see me was the worst feeling in the world.</p> <a href="https://www.theguardian.com/commentisfree/2020/jan/02/manhood-mental-health-masculinity">Continue reading...</a>
+
+## Lust in translation: how we fell for the people giving arthouse auteurs a voice
+ - [https://www.theguardian.com/film/2020/jan/02/lust-in-translation-how-we-fell-for-the-people-giving-arthouse-auteurs-a-voice](https://www.theguardian.com/film/2020/jan/02/lust-in-translation-how-we-fell-for-the-people-giving-arthouse-auteurs-a-voice)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 16:00:37+00:00
+
+<p>When Bong Joon-ho went on the Jimmy Fallon show, the Parasite director’s interpreter made viewers swoon – casting a light on the people who speak English for the likes of Michael Haneke and Park Chan-wook</p><p>Just when you thought Bong Joon-ho – the affable maestro of Korean cinema and now, with his class-conscious Cannes winner <a href="https://www.theguardian.com/film/2019/may/21/parasite-review-bong-joon-ho" title="">Parasite</a>, champion of the people – could not get any more lovable, they let him on Jimmy Fallon. Foreign-language arthouse directors rarely, if ever, make it on to US talkshows; this was apparently the first ever Tonight Show interview conducted through an interpreter. With the director cheekily refusing to play ball at points, including breaking down what the film was actually about (“This is a talkshow – you have to say something!” Fallon chided him), the limelight improbably fell on the woman next to him: Sharon Choi.</p> <a href="https://www.theguardian.com/film/2020/jan/02/lust-in-translation-how-we-fell-for-the-people-giving-arthouse-auteurs-a-voice">Continue reading...</a>
+
+## Welsh Conservative assembly member suspended after arrest
+ - [https://www.theguardian.com/uk-news/2020/jan/02/welsh-conservative-assembly-member-suspended-after-arrest](https://www.theguardian.com/uk-news/2020/jan/02/welsh-conservative-assembly-member-suspended-after-arrest)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 15:36:06+00:00
+
+<p>Nick Ramsay arrested at his home in Monmouthshire after ‘incident’</p><p>A Welsh Conservative politician has been suspended from his party after he was arrested by police.</p><p>It is understood that assembly member Nick Ramsay was arrested on Wednesday evening at his home in Raglan, Usk, Monmouthshire.</p> <a href="https://www.theguardian.com/uk-news/2020/jan/02/welsh-conservative-assembly-member-suspended-after-arrest">Continue reading...</a>
+
+## Green suits: nature prints bring hope for fashion industry
+ - [https://www.theguardian.com/fashion/2020/jan/02/green-suits-nature-prints-bring-hope-for-fashion-industry](https://www.theguardian.com/fashion/2020/jan/02/green-suits-nature-prints-bring-hope-for-fashion-industry)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 15:18:31+00:00
+
+<p>Experts predict green will be the colour of the decade, but industry’s eco awareness is still lagging</p><p>There’s nothing new about fashion using nature as its muse – see Miranda Priestley’s withering put-down in The Devil Wears Prada: “Florals for Spring? Groundbreaking.” This year, however, it’s not flowers but foliage that will have a major fashion moment.</p><p>At the spring/summer 2020 collections several major brands have taken leaves and plants as their inspiration.</p> <a href="https://www.theguardian.com/fashion/2020/jan/02/green-suits-nature-prints-bring-hope-for-fashion-industry">Continue reading...</a>
+
+## 'It was a dump': locals and ecologists clash over future of Spanish island resort
+ - [https://www.theguardian.com/world/2020/jan/02/isla-de-valdecanas-locals-ecologists-clash-over-future-of-spanish-island-resort](https://www.theguardian.com/world/2020/jan/02/isla-de-valdecanas-locals-ecologists-clash-over-future-of-spanish-island-resort)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 14:28:16+00:00
+
+<p>Battle rages for 12 years over half-built tourist complex that some say should be returned to nature</p><p>“Paradise found”, reads a sign at one of Spain’s more exclusive, and unlikely, beach bars. Another touts piña coladas, mojitos and caipirinhas while an adjacent notice reminds guests that shirts must be worn.</p><p>On a cold, clear December afternoon, however, the artificial beach on the Isla de Valdecañas is deserted, the bar shuttered and the dog days of the year a distant memory.</p> <a href="https://www.theguardian.com/world/2020/jan/02/isla-de-valdecanas-locals-ecologists-clash-over-future-of-spanish-island-resort">Continue reading...</a>
+
+## All Federico Fellini's films – ranked!
+ - [https://www.theguardian.com/film/2020/jan/02/all-federico-fellinis-films-ranked](https://www.theguardian.com/film/2020/jan/02/all-federico-fellinis-films-ranked)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 14:00:35+00:00
+
+<p>To celebrate the centenary of the birth of the great Italian director, here’s a cavalcade of his extraordinary feature films</p><p>A gentle, episodic Fellini, with Roberto Benigni playing Ivo, a madcap character who travels far and wide across the Italian landscape on a romantic, fantastical quest to capture the moon.</p> <a href="https://www.theguardian.com/film/2020/jan/02/all-federico-fellinis-films-ranked">Continue reading...</a>
+
+## Buffalo's ageless Frank Gore: the bell-cow back who's doing the impossible
+ - [https://www.theguardian.com/sport/2020/jan/02/buffalos-ageless-frank-gore-the-bell-cow-back-whos-doing-the-impossible](https://www.theguardian.com/sport/2020/jan/02/buffalos-ageless-frank-gore-the-bell-cow-back-whos-doing-the-impossible)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 14:00:35+00:00
+
+<p>Today’s pass-first NFL claims to have no place for a lunch-bucket grinder like Gore and yet he abides, quietly scaling the record book as the Bills aim for a first playoff win in 24 years</p><p>A great running back has a career that’s easily reduced to a 10-second highlight. For Cleveland’s Jim Brown, it’s a black-and-white montage of him barreling through <a href="https://www.youtube.com/watch?v=LD_sqMKZRmQ">wall after wall of humanity</a> to paydirt. For Chicago’s Walter Payton, we smash-cut from Sweetness <a href="https://youtu.be/KfFE5Ou0Txo?t=24">sloughing off would-be tacklers</a> like <a href="https://www.youtube.com/watch?v=4TuEWtXBT_0">George Costanza fleeing a smoking kids’ party</a> to Sweetness <a href="https://youtu.be/LD_sqMKZRmQ?t=75">dolphin-diving over a stacked front</a> onto a concrete end zone. For Detroit’s Barry Sanders, roll that <a href="https://youtu.be/gSCG6NGUCE8?t=161">clip from the 1992 playoffs</a> of him going all <a href="https://punchout.fandom.com/wiki/Great_Tiger">Great Tiger</a> on the eventual Super Bowl champion Dallas Cowboys.</p><p>As for the Buffalo Bills’ Frank Gore? Well, his greatness isn’t easily GIF’d. Look up the five-time Pro Bowler’s highlights on YouTube, and, sure, <a href="https://www.youtube.com/watch?v=dDD2rP2VLzk">the hits</a> – mostly of him jetting through scrums in his younger days and piling up yards after contact now – aren’t bad. It’s just not the kind of mental time-capsule fodder that autoplays at the very mention of his name.</p> <a href="https://www.theguardian.com/sport/2020/jan/02/buffalos-ageless-frank-gore-the-bell-cow-back-whos-doing-the-impossible">Continue reading...</a>
+
+## Isle of Wight’s rattling, rolling, charming ex-tube trains face end of the line
+ - [https://www.theguardian.com/uk-news/2020/jan/02/isle-of-wights-rattling-rolling-charming-ex-tube-trains-face-end-of-the-line](https://www.theguardian.com/uk-news/2020/jan/02/isle-of-wights-rattling-rolling-charming-ex-tube-trains-face-end-of-the-line)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 14:00:11+00:00
+
+<p>Passengers say change is sad but inevitable as time catches up with UK’s oldest train fleet</p><p>The train trip from Ryde Pier Head to Shanklin on the Isle of Wight in carriages built for the London Underground 80 years ago could never be described as a smooth one.</p><p>Passengers are jolted up and down and, if they are not used to the ride, are thrown around when they rise gingerly from their seats. It is a lurching, rolling experience – but locals and visitors relish it.</p> <a href="https://www.theguardian.com/uk-news/2020/jan/02/isle-of-wights-rattling-rolling-charming-ex-tube-trains-face-end-of-the-line">Continue reading...</a>
+
+## ZSL London Zoo's annual stocktake – in pictures
+ - [https://www.theguardian.com/uk-news/gallery/2020/jan/02/zsl-london-zoos-annual-stocktake-in-pictures](https://www.theguardian.com/uk-news/gallery/2020/jan/02/zsl-london-zoos-annual-stocktake-in-pictures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 13:32:36+00:00
+
+<p>Zookeepers at ZSL London Zoo have conducted this year’s stocktake of the more than 500 species they care for. Keepers tallied up every mammal, bird, reptile, fish and invertebrate at the zoo, from inquisitive Humboldt penguins to endangered Asiatic lions and Bactrian camels</p> <a href="https://www.theguardian.com/uk-news/gallery/2020/jan/02/zsl-london-zoos-annual-stocktake-in-pictures">Continue reading...</a>
+
+## Tell us about your mixed-sex civil partnership plans
+ - [https://www.theguardian.com/uk-news/2020/jan/02/tell-us-about-your-mixed-sex-civil-partnership-plans](https://www.theguardian.com/uk-news/2020/jan/02/tell-us-about-your-mixed-sex-civil-partnership-plans)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 13:11:43+00:00
+
+<p>We want to hear from mixed-sex couples who have entered into or are thinking about going into a civil union</p><p>The first mixed-sex couples have started to become civil partners in the UK, following a landmark legal battle won by <a href="https://www.theguardian.com/uk-news/2019/dec/31/couple-who-won-battle-to-open-up-civil-unions-register-partnership">Rebecca Steinfeld and Charles Keidan in 2018</a>.</p><p>Previously, only same-sex couples were allowed to enter into civil partnerships but following the law change, an estimated 84,000 ceremonies are expected to take place in 2020.<br /><br />Those in civil partnerships are eligible for the same tax breaks and benefits as married couples. We want to hear from heterosexual couples who have become civil partners or those thinking about entering into civil unions, as a result of the law change.</p> <a href="https://www.theguardian.com/uk-news/2020/jan/02/tell-us-about-your-mixed-sex-civil-partnership-plans">Continue reading...</a>
+
+## The six-pack can wait: how to set fitness goals you will actually keep
+ - [https://www.theguardian.com/lifeandstyle/2020/jan/02/how-to-set-fitness-goals-you-will-actually-keep](https://www.theguardian.com/lifeandstyle/2020/jan/02/how-to-set-fitness-goals-you-will-actually-keep)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 13:00:33+00:00
+
+<p>Falling off the keep-fit wagon in February is as much a cliche as jumping on it in January – here, three experts explain how to boost your chances of staying on track<br /></p><p>Most of us have, at some point in our lives, looked in the mirror and decided we need a radical image overhaul – especially in January. Then, <a href="https://www.theguardian.com/lifeandstyle/2018/jun/27/get-shredded-in-six-weeks-the-problem-with-extreme-male-body-transformations" title="">when we don’t achieve the desired six-pack within a month</a>, we tumble off the fitness bandwagon. But is there a way to set realistic, useful fitness goals that will keep you motivated as the nights draw in and the prospect of an extra hour in bed trumps a workout?</p><p>First of all,<strong> </strong>think about the goals not to make – keep in mind that <a href="https://www.theguardian.com/science/2016/jan/28/study-reveals-that-exercise-alone-wont-cause-weight-loss" title="">exercise alone won’t change your body shape</a>. If you are looking for major fat loss, you will have to look at diet, too. “People underestimate the amount of effort physical transformations take,” says Hannah Lewin, a personal trainer. She advises clients to focus on positive fitness goals instead – running 5km or deadlifting 30kg – rather than aesthetic goals that will require drastic lifestyle overhauls.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/jan/02/how-to-set-fitness-goals-you-will-actually-keep">Continue reading...</a>
+
+## This one's for Lawrence of Arabia! Meet Sabaton, the heavy metal military historians
+ - [https://www.theguardian.com/music/2020/jan/02/sabaton-heavy-metal-military-historians](https://www.theguardian.com/music/2020/jan/02/sabaton-heavy-metal-military-historians)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 13:00:33+00:00
+
+<p>With songs about panzer divisions and Soviet bomber squadrons, the Swedish band are careful to respect the fallen – even as they party on a giant cruise ship</p><p>A vast crowd of people are singing raucously, raising large beer tankards skyward and grinning like they have just won the lottery. In this small and sweaty venue, a Swedish heavy metal band are opening their set with a song about the exploits of Field Marshall Rommel’s infamous 7th panzer division in the second world war. They follow it with a number about the horrors of Passchendaele in the first world war.</p><p>By the end of the night, we will have had exuberant hymns to Lawrence of Arabia, an all-female Soviet bomber squadron and the military genius King Gustavus Adolphus of Sweden. Everyone in the room, the vast majority of whom are wearing Sabaton shirts, sings along with absolutely everything. Meanwhile, the venue gently rocks from side to side, because we are on a ship in the middle of the Baltic Sea.</p> <a href="https://www.theguardian.com/music/2020/jan/02/sabaton-heavy-metal-military-historians">Continue reading...</a>
+
+## First transgender Marvel superhero coming 'very soon'
+ - [https://www.theguardian.com/film/2020/jan/02/first-transgender-marvel-superhero-coming-very-soon-kevin-feige](https://www.theguardian.com/film/2020/jan/02/first-transgender-marvel-superhero-coming-very-soon-kevin-feige)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 12:47:19+00:00
+
+<p>Kevin Feige says character will appear in a film currently being shot, while forthcoming The Eternals will feature deaf and gay superheroes</p><p>The first transgender character in a Marvel movie will probably appear in a film released next year. Speaking at an event at the New York Film Academy, Marvel president Kevin Feige said that a trans superhero would appear in a film “very soon, in a movie that we’re shooting right now”. He said that more transgender characters will feature in the future.</p><p>Such a development was expected from the post-<a href="https://www.theguardian.com/film/2018/apr/24/avengers-infinity-war-review-supremely-entertaining-showdown-in-the-grand-marvel-tradition">Avengers: Infinity War</a> iteration of the Marvel Cinematic Universe, with many expecting that the character will debut in Thor: Love and Thunder, released in 2021.</p> <a href="https://www.theguardian.com/film/2020/jan/02/first-transgender-marvel-superhero-coming-very-soon-kevin-feige">Continue reading...</a>
+
+## The plastic polluters won 2019 – and we're running out of time to stop them
+ - [https://www.theguardian.com/environment/2020/jan/02/year-plastic-pollution-clean-beaches-seas](https://www.theguardian.com/environment/2020/jan/02/year-plastic-pollution-clean-beaches-seas)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 12:46:07+00:00
+
+<p>Further steps have been taken to clean up beaches and seas in 2019 – but much more needs to be done </p><p>The beach at Muncar on the island of Java was revolting. The 400-yard wide, mile-long stretch of sand was feet deep in foul-smelling sauce sachets, shopping bags, nappies, bottles and bags, plastic clothes and detergent bottles. Bulldozers had cleared away and buried some of the huge mat of plastic and sand two years ago, but every tide since then had washed up more rubbish from the ocean, and every day tonnes more plastic was washed down the rivers from upstream towns and villages. Now it was fouling the fishing boats’ propellers.</p><p>“We fear for the future,” one elderly woman said. She remembered Muncar only a decade ago as one of the most picturesque towns in Indonesia and a tourist hotspot. “If it carries on like this we will be buried in plastic. We have no choice but to throw plastic into the rivers. Now we are angry. Something must be done,” she said.</p> <a href="https://www.theguardian.com/environment/2020/jan/02/year-plastic-pollution-clean-beaches-seas">Continue reading...</a>
+
+## Levels of child criminal exploitation 'almost back to Victorian times'
+ - [https://www.theguardian.com/society/2020/jan/02/levels-child-criminal-exploitation-almost-back-to-victorian-times](https://www.theguardian.com/society/2020/jan/02/levels-child-criminal-exploitation-almost-back-to-victorian-times)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 12:32:34+00:00
+
+<p><strong>Exclusive:</strong> police chief says problem is at a high for modern era amid lack of youth facilities</p><p>The criminal exploitation of children is at its highest level in modern times as gangs capitalise on a lack of youth facilities and school exclusions to groom children, a police chief has revealed.</p><p>Chief constable Shaun Sawyer said that as state provision for children receded in the last decade, driven in part by austerity, criminals had exploited the space between “the school gate and the front door”.</p> <a href="https://www.theguardian.com/society/2020/jan/02/levels-child-criminal-exploitation-almost-back-to-victorian-times">Continue reading...</a>
+
+## British Airways cabin crew killed in New Year's Eve crash named
+ - [https://www.theguardian.com/uk-news/2020/jan/02/british-airways-cabin-crew-killed-new-years-eve-crash-named](https://www.theguardian.com/uk-news/2020/jan/02/british-airways-cabin-crew-killed-new-years-eve-crash-named)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 12:29:27+00:00
+
+<p>Tributes paid to Dominic Fell, Joe Finnis and Rachel Clark after collision near Heathrow</p><p>Three British Airways cabin crew members killed on New Year’s Eve in a collision with a lorry have been named in tributes by friends and colleagues.</p><p>Dominic Fell, 23, Joe Finnis, 25, and Rachel Clark, 20, died at the scene of the crash close to Heathrow airport shortly before midnight. A 25-year-old who was travelling in the same car was taken to hospital in a serious condition.</p> <a href="https://www.theguardian.com/uk-news/2020/jan/02/british-airways-cabin-crew-killed-new-years-eve-crash-named">Continue reading...</a>
+
+## Bushfires, bombers and elephant nails: Thursday's best photos
+ - [https://www.theguardian.com/news/gallery/2020/jan/02/bushfires-bombers-and-elephant-nails-thursdays-best-photos](https://www.theguardian.com/news/gallery/2020/jan/02/bushfires-bombers-and-elephant-nails-thursdays-best-photos)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 11:34:56+00:00
+
+<p>The Guardian’s picture editors select photo highlights from around the world</p> <a href="https://www.theguardian.com/news/gallery/2020/jan/02/bushfires-bombers-and-elephant-nails-thursdays-best-photos">Continue reading...</a>
+
+## 'Unqualified, dangerous': the oddball officials running Bolsonaro's Brazil
+ - [https://www.theguardian.com/world/2020/jan/02/bolsonaro-brazil-government-oddball-officials](https://www.theguardian.com/world/2020/jan/02/bolsonaro-brazil-government-oddball-officials)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 10:05:30+00:00
+
+<p>While the far-right president has trashed norms the lower ranks of his administration have shown jaw-dropping offensiveness</p><p>Brazil’s far-right president, <a href="https://www.theguardian.com/world/jair-bolsonaro">Jair Bolsonaro</a>, and his gun-loving sons have hogged the headlines during his first year in power with their <a href="https://www.theguardian.com/world/2019/nov/01/brazili-president-son-jair-eduardo-bolsonaro-dictatorship-era-tactics-leftist-foes">incendiary declarations</a>, <a href="https://www.theguardian.com/world/2019/apr/28/turf-war-breaks-between-bolsonaro-sons-and-brazil-vice-president">social media meltdowns</a> and <a href="https://www.theguardian.com/world/2019/jan/22/jair-bolsonaro-flavio-brazil-davos-scandal-gangs">scandal-hit lives</a>.</p><p>Endless column inches have also been devoted to the eccentricities and extremist ideas of his top lieutenants, including the foreign minister <a href="https://www.theguardian.com/world/2018/nov/15/brazil-foreign-minister-ernesto-araujo-climate-change-marxist-plot">who insists </a><a href="https://www.theguardian.com/world/2018/nov/15/brazil-foreign-minister-ernesto-araujo-climate-change-marxist-plot">climate change is a Marxist plot</a> and <a href="https://www.theguardian.com/world/2019/apr/09/brazil-replaces-far-right-education-minister-with-conspiracy-theorist">the education minister</a> who enjoys <a href="https://twitter.com/AbrahamWeint/status/1190226260082987010?s=20">tweeting about</a> his dog’s habit of defecating on Brazil’s top newspapers.</p> <a href="https://www.theguardian.com/world/2020/jan/02/bolsonaro-brazil-government-oddball-officials">Continue reading...</a>
+
+## Can your phone keep you fit? Our writers try 10 big fitness apps – from weightlifting to pilates
+ - [https://www.theguardian.com/lifeandstyle/2020/jan/02/writers-try-10-big-fitness-apps-weightlifting-pilates](https://www.theguardian.com/lifeandstyle/2020/jan/02/writers-try-10-big-fitness-apps-weightlifting-pilates)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 10:00:31+00:00
+
+<p>There are a dizzying number of apps promising to get you in shape – even if you can’t get to a gym. But can any of them keep our writers moving?</p><p><strong>Price </strong>£15.49 a month.<br /><strong>What is it? </strong>A full-service experience from the Hollywood star <a href="https://www.theguardian.com/film/chris-hemsworth" title="">Chris Hemsworth</a>: not just workouts, but a complete meal planner – with food for breakfast, lunch and dinner – a daily guided meditation and a daily motivational article.<br /><strong>The experience</strong> I immediately regret declaring myself “intermediate” as the app launches into a punishing <a href="https://www.theguardian.com/lifeandstyle/2019/sep/07/reformer-pilates-zoe-williams-fit-in-my-40s" title="">pilates workout</a>. I am not very flexible at all, and it turns out that my baseline fitness leaves much to be desired in terms of core strength.<br />More frustrating is the fact that the various workouts are introduced as videos. Clearly, this is supposed to emulate a real pilates class, but when my phone tells me to lie face-down on the floor I can no longer see the screen. It is frustrating to have to repeatedly break out of the pose to check the next movement.<br /><strong>Worth a download?</strong> Only if you are single, enjoy cooking and are willing to hand control of your life to an app.<br /><em>AH</em></p> <a href="https://www.theguardian.com/lifeandstyle/2020/jan/02/writers-try-10-big-fitness-apps-weightlifting-pilates">Continue reading...</a>
+
+## Black, white, avant-garde, atheist – how did choirs become so cool?
+ - [https://www.theguardian.com/music/2020/jan/02/black-white-avant-garde-atheist-how-did-choirs-become-so-cool](https://www.theguardian.com/music/2020/jan/02/black-white-avant-garde-atheist-how-did-choirs-become-so-cool)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 10:00:30+00:00
+
+<p>From experimental sonic meditations to singing sessions for the homeless, there’s a new spirit of inclusiveness in choirs – and you don’t even need a good voice to join</p><p>I have joined a choir by mistake. This time last year, I was adamant I could not sing. But now, here I am, with 15 other people in the <a href="https://www.cafeoto.co.uk/events/how-to-get-out-of-your-head/" title="">Cafe Oto Experimental choir</a> in London, and we are each singing one long, even note, in whatever pitch comes naturally: this is the composer <a href="https://www.newyorker.com/culture/culture-desk/listening-as-activism-the-sonic-meditations-of-pauline-oliveros" title="">Pauline Oliveros’s Sonic Meditations</a>.</p><p>You are probably imagining a cacophony of bum notes, but it is the opposite. Our voices fall in together in a huge harmonious chorus that fills the space with beautiful sound. As we shake off any lingering self-consciousness, people reach for higher volumes, and the hair on my arms stands on end. My eyes are shut and I feel as if we are floating.</p> <a href="https://www.theguardian.com/music/2020/jan/02/black-white-avant-garde-atheist-how-did-choirs-become-so-cool">Continue reading...</a>
+
+## Vampires, gangsters and Keanu Reeves: our games picks for 2020
+ - [https://www.theguardian.com/games/2020/jan/02/games-most-anticipated-2020-preview](https://www.theguardian.com/games/2020/jan/02/games-most-anticipated-2020-preview)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 10:00:30+00:00
+
+<p>A remake of a beloved classic, long-awaited sequels, alien shooting and Minecraft adventure lead our preview of this year’s most anticipated releases</p><p>With its painterly, storybook aesthetic and promise of a wide-open hero’s adventure, this mythological Ubisoft adventure will intrigue anyone who’s patiently waiting for a sequel to <a href="https://www.theguardian.com/technology/2017/mar/03/the-legend-of-zelda-breath-of-the-wild-tips-and-tricks">Zelda: Breath of the Wild</a>. From the developers of <a href="https://www.theguardian.com/games/2018/oct/11/assassins-creed-odyssey-review-ubisoft">Assassin’s Creed: Odyssey</a>, it sends the player out to face creatures drawn from the gnarliest Greek legends and rescue the gods. <em>Release date: February (PC, PS4, Xbox One, Xbox Project Scarlett, Google Stadia, Nintendo Switch)</em></p> <a href="https://www.theguardian.com/games/2020/jan/02/games-most-anticipated-2020-preview">Continue reading...</a>
+
+## Stocks rise as Beijing pumps extra cash into China's economy - business live
+ - [https://www.theguardian.com/business/live/2020/jan/02/stocks-rise-as-beijing-pumps-extra-cash-into-chinas-economy-business-live](https://www.theguardian.com/business/live/2020/jan/02/stocks-rise-as-beijing-pumps-extra-cash-into-chinas-economy-business-live)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 09:58:25+00:00
+
+<p>Stocks rose after China said it would cut the reserve requirement ratio for banks next week, while traders also hailed progress in US-China trade talks</p><p class="block-time published-time"> <time datetime="2020-01-02T09:58:25.610Z">9.58am <span class="timezone">GMT</span></time> </p><p><strong>More on the continued suspension of M&amp;G’s £2.5bn UK property fund. </strong></p><p>The investment firm said the decision to keep the fund gated was taken “in the interest of protecting the fund’s investor,” and assured they were working hard to boost its cash position. </p><p>The immediate priority is to raise cash levels in a controlled manner. The fund managers and associated teams are working hard to increase the fund’s cash position and since the end of November, they have exchanged or completed on £70.4m of assets and a further £67.2m is either under offer or in solicitors’ hands. </p><p>Once cash levels have been sufficiently restored, the fund’s ACD [authorised corporate director] will re-open the Fund for dealing.</p><p class="block-time published-time"> <time datetime="2020-01-02T09:45:03.254Z">9.45am <span class="timezone">GMT</span></time> </p><p>M&amp;G Investments has confirmed it will keep its UK property fund and feeder fund gated until further notice, meaning investor cash is still trapped. </p><p>The firm is required to update investors every 28 days about the state of the fund. </p> <a href="https://www.theguardian.com/business/live/2020/jan/02/stocks-rise-as-beijing-pumps-extra-cash-into-chinas-economy-business-live">Continue reading...</a>
+
+## Labour leadership: Blow to 'continuity Corbyn' as poll of members suggests Starmer clear favourite - live news
+ - [https://www.theguardian.com/politics/live/2020/jan/02/labour-leadership-contest-blow-to-continuity-corbyn-project-as-poll-of-members-suggests-starmer-clear-favourite-live-news](https://www.theguardian.com/politics/live/2020/jan/02/labour-leadership-contest-blow-to-continuity-corbyn-project-as-poll-of-members-suggests-starmer-clear-favourite-live-news)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 09:57:21+00:00
+
+<p>Rolling coverage of the day’s political developments as they happen</p><p class="block-time published-time"> <time datetime="2020-01-02T09:51:41.188Z">9.51am <span class="timezone">GMT</span></time> </p><p>Good morning and Happy New Year to everyone.</p><p>It certainly is for supporters of Sir Keir Starmer as next Labour leader. Over the last three weeks he and Rebecca Long Bailey have been seen as more or less joint favourites for the post - but for different reasons. Starmer has been seen as a likely winner because he is highly regarded by the public at large and if ‘looking like a credible PM’ were the sole criterion for the job, he would probably easily beat the other candidates. But Long Bailey was seen as a likely winner because she was highly regarded by the Corbynites at the top of the party, and it was assumed that if they wanted her in the top job, the pro-Corbyn membership would duly vote for her too.</p><p> <span>Related: </span><a href="https://www.theguardian.com/politics/2020/jan/01/poll-of-labour-members-suggests-keir-starmer-is-first-choice">Poll of Labour members suggests Keir Starmer is first choice</a> </p><p><a href="https://www.theguardian.com/politics/keir-starmer">Keir Starmer</a> has emerged as an early frontrunner in the Labour leadership race to succeed Jeremy Corbyn after a poll of members suggested he was the first choice in all regions of the UK, age groups and social classes.</p><p>The shadow Brexit secretary is yet to formally launch his campaign but is expected to do so in the first few weeks of the new year. The new leader will be elected in March after Corbyn said he would step down following the party’s <a href="https://www.theguardian.com/politics/2019/dec/23/labour-mps-from-all-wings-of-party-launch-inquiry-into-election-defeat">catastrophic general election defeat</a>.</p><p dir="ltr" lang="en">This poll shows that Labour members want a leader who can inspire them with boldness and realism - not a Corbyn Continuity candidate <a href="https://t.co/ppHU85Mhyd">https://t.co/ppHU85Mhyd</a></p><p dir="ltr" lang="en">Sorry, much as I respect Keir and think he has a big role to play, electing as leader the man who drove Labour "quickly through the gears" to support a second referendum would be like a parody of how out of touch we are with the voters we need to win back.<a href="https://t.co/xL8WtmSj2n">https://t.co/xL8WtmSj2n</a></p> <a href="https://www.theguardian.com/politics/live/2020/jan/02/labour-leadership-contest-blow-to-continuity-corbyn-project-as-poll-of-members-suggests-starmer-clear-favourite-live-news">Continue reading...</a>
+
+## Northern rail to be stripped of franchise, says Grant Shapps
+ - [https://www.theguardian.com/uk-news/2020/jan/02/northern-rail-to-be-stripped-of-franchise-says-grant-shapps](https://www.theguardian.com/uk-news/2020/jan/02/northern-rail-to-be-stripped-of-franchise-says-grant-shapps)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 09:48:51+00:00
+
+<p>Transport secretary says he has started process after year of chaos and cancellations</p><p>The process to strip Northern rail of its franchise has begun after years of poor performance, the transport secretary has said.</p><p>Grant Shapps told the BBC he had started the process that could result in removing the firm’s routes, calling its service “completely unacceptable”.</p> <a href="https://www.theguardian.com/uk-news/2020/jan/02/northern-rail-to-be-stripped-of-franchise-says-grant-shapps">Continue reading...</a>
+
+## Turkish parliament to vote on sending troops to Libya
+ - [https://www.theguardian.com/world/2020/jan/02/turkish-parliament-to-vote-on-sending-troops-to-libya](https://www.theguardian.com/world/2020/jan/02/turkish-parliament-to-vote-on-sending-troops-to-libya)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 09:28:33+00:00
+
+<p>Lawmakers expected to approve action to back UN-supported Tripoli government</p><p>Turkey’s parliament is to vote on Thursday on whether to send troops to Libya to back the UN-supported government in Tripoli in its fight against forces loyal to a rival administration in eastern Libya seeking to capture the capital.</p><p>Lawmakers are expected to approve the motion at the emergency session called for later in the day, and grant a one-year mandate for the deployment, despite concerns that Turkish forces could aggravate Libya’s conflict further and destabilise the region.</p> <a href="https://www.theguardian.com/world/2020/jan/02/turkish-parliament-to-vote-on-sending-troops-to-libya">Continue reading...</a>
+
+## The wellness industry is selling you the myth that a healthy life is expensive | Margaret McCartney
+ - [https://www.theguardian.com/commentisfree/2020/jan/02/wellness-industry-selling-healthy-life-expensive](https://www.theguardian.com/commentisfree/2020/jan/02/wellness-industry-selling-healthy-life-expensive)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 09:12:12+00:00
+
+Ignore the wild claims for seaweed wraps and spin classes. Real wellbeing is about fun, fairness and relationships<p>I did not intend to have a spa experience. The plan was to go for afternoon tea, but the spa next door was included in the price. And so arrived a “wellbeing” menu, where one could choose between seaweed wraps to purify and a meditative steam room with energising lights to destress. I thought massage was the least worst option, but after it was explained to me how it would detoxify and re-energise me, I felt a potent mixture of despair and rage.</p><p> <span>Related: </span><a href="https://www.theguardian.com/lifeandstyle/2019/dec/31/resolution-avoid-quick-fix-diets-nhs-top-doctor">Make a resolution to avoid 'quick-fix' diets, says top NHS doctor</a> </p> <a href="https://www.theguardian.com/commentisfree/2020/jan/02/wellness-industry-selling-healthy-life-expensive">Continue reading...</a>
+
+## Confession With Blue Horses by Sophie Hardach review – behind the Berlin Wall
+ - [https://www.theguardian.com/books/2020/jan/02/confession-with-blue-horses-sophie-hardach-review](https://www.theguardian.com/books/2020/jan/02/confession-with-blue-horses-sophie-hardach-review)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 09:00:29+00:00
+
+Fragments of a childhood are pieced together in this moving depiction of a family’s struggle, shortlisted for the Costa novel award<p>Sophie Hardach’s thought-provoking third novel is one of four books shortlisted for the 2019 Costa novel award, to be announced next week . Born a decade before reunification, Hardach grew up near Frankfurt in West Germany; her book focuses on a family living on the other side of the border, in the GDR.</p><p>Now settled in London, adult siblings Ella and Tobi Valentin seldom talk of their childhood in East Berlin. While both have vivid and disturbing memories of their family’s failed attempt to flee across the Hungarian border into Austria in 1987, they know very little of their mother’s subsequent imprisonment and nothing at all about the fate of their baby brother Heiko, who was taken away by the authorities and never seen again. When their mother dies, leaving behind some tantalising scraps of information, Ella returns to Berlin, hoping to find answers.</p> <a href="https://www.theguardian.com/books/2020/jan/02/confession-with-blue-horses-sophie-hardach-review">Continue reading...</a>
+
+## Fingerkickin' good: the live show where the dancers are fingers
+ - [https://www.theguardian.com/stage/2020/jan/02/cold-blood-fingers-dance-kiss-and-cry-collective-interview](https://www.theguardian.com/stage/2020/jan/02/cold-blood-fingers-dance-kiss-and-cry-collective-interview)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 09:00:29+00:00
+
+<p>Can dancing digits really move an audience as much as real actors? Absolutely. Enter the miraculous, miniature world of Cold Blood, a dance and film show by Kiss &amp; Cry Collective</p><p>It’s the Fred and Ginger scene that is heartwarming. Cold Blood, a captivating live show, includes a sumptuous sequence in which dancers tap across a glassy stage, all silver and feathers. The floor is a crystal tray, all the dancers are pairs of fingers and their tap shoes are thimbles. <br /><br />This is the irresistible miniature world created by Belgian company Kiss &amp; Cry Collective. At stage level, we see a devoted concatenation of dancers, cameramen and technicians, filming the action unfolding on intricate, tiny sets. On the screen above they resolve into scenes of hushed beauty, tracing a series of unfortunate events in a chilly forest, a scarlet club or a lovingly imagined home. Cold Blood is structured around a series of fatal mishaps, mostly enacted by charismatic fingers, and the two-layered meditation on mortality is no less magical for letting us in on the magic.<br /><br />It premiered in 2015 and, following a much-loved run at the 2018 Edinburgh festival, it returns to the UK. At its heart are partners in art and life – choreographer Michèle Anne De Mey and film director Jaco Van Dormael.</p><p>Van Dormael grins when we all meet in a Brussels cafe: “What was fun was that everybody had to learn his own profession from scratch. It’s cinematography but not like in cinema. It’s dance but just with hands. It’s really funny, at 60 years old, to become incompetent and do something new.”</p> <a href="https://www.theguardian.com/stage/2020/jan/02/cold-blood-fingers-dance-kiss-and-cry-collective-interview">Continue reading...</a>
+
+## Manchester poet Tony Walsh performs tribute to children's hospital
+ - [https://www.theguardian.com/uk-news/2020/jan/02/manchester-poet-tony-walsh-tribute-childrens-hospital-every-child-counts](https://www.theguardian.com/uk-news/2020/jan/02/manchester-poet-tony-walsh-tribute-childrens-hospital-every-child-counts)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 09:00:29+00:00
+
+<p>Staff and patients appear in film for Every Child Counts, made to raise money for charity</p><p>The performance poet Tony Walsh, whose ode to Manchester became a worldwide hit after the Arena bomb, has written a moving tribute to Royal Manchester children’s hospital to mark a decade since it opened.</p><p>The poem, called Every Child Counts, is performed by Walsh in a 10-minute film to raise money for a charity run by the hospital, which is the biggest and busiest children’s hospital in the UK.</p> <a href="https://www.theguardian.com/uk-news/2020/jan/02/manchester-poet-tony-walsh-tribute-childrens-hospital-every-child-counts">Continue reading...</a>
+
+## Star debuts and happy returns: theatre, dance and comedy in 2020
+ - [https://www.theguardian.com/stage/2020/jan/02/theatre-dance-comedy-2020-preview](https://www.theguardian.com/stage/2020/jan/02/theatre-dance-comedy-2020-preview)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 09:00:29+00:00
+
+<p>Tom Stoppard gets personal, Cush Jumbo does Hamlet, Hollywood names bring everything from tragedy to comedy … plus dance confronts shame and there’s standup open heart surgery</p> <a href="https://www.theguardian.com/stage/2020/jan/02/theatre-dance-comedy-2020-preview">Continue reading...</a>
+
+## Women’s football has seen a decade of progress but there is much more to do | Suzanne Wrack
+ - [https://www.theguardian.com/football/blog/2020/jan/02/womens-football-decade-of-progress-2020](https://www.theguardian.com/football/blog/2020/jan/02/womens-football-decade-of-progress-2020)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 09:00:29+00:00
+
+<p>There is real optimism in the game but while attitudes generally have changed dramatically not everyone is on the same page</p><p>Women’s football has come a very long way in a decade. Ten years ago there existed an indifference towards the few women who chose to persevere in what many viewed a novel and headstrong manner to play the men’s game – because, let’s face it, that is what “the people’s game” actually meant. Now, Chelsea’s Fran Kirby can post photos on social media of her dog sitting in front of a Bentley. It may be a loaned Bentley (the gap hasn’t closed <em>that </em>much) but the England forward does have numerous sponsorship deals, with Nike and Swarovski among others.</p><p>If the Noughties was the decade in which players such as Alex Scott edged from washing the shirts and shorts of the Arsenal men’s team towards the possibility of scraping a living from football, then this last decade has been the one that has provided respect and with it professionalism, sponsorship, support and the chance to make a modest living out of the game.</p> <a href="https://www.theguardian.com/football/blog/2020/jan/02/womens-football-decade-of-progress-2020">Continue reading...</a>
+
+## Australia bushfires: tens of thousands stranded while attempting to flee
+ - [https://www.theguardian.com/australia-news/2020/jan/02/australia-bushfires-tens-of-thousands-stranded-while-attempting-to-flee](https://www.theguardian.com/australia-news/2020/jan/02/australia-bushfires-tens-of-thousands-stranded-while-attempting-to-flee)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 08:41:27+00:00
+
+<p>Visitors who were told to evacuate a vast area along the NSW south coast before even worse fire conditions return stuck for hours in gridlocked traffic <br /></p><p>Tens of thousands of people remained stranded on Thursday evening while attempting to flee bushfire-ravaged areas of the south-east Australian coast – having earlier been urged to leave before the return of extreme and dangerous weather conditions.</p><p>The mass evacuation of communities in New South Wales and Victoria is among the largest ever emergency movements of people in Australia. The numbers fleeing the bushfire crisis remain unclear, but are expected to compare to the 60,000 people who were flown out of Darwin after Cyclone Tracy in 1974.</p> <a href="https://www.theguardian.com/australia-news/2020/jan/02/australia-bushfires-tens-of-thousands-stranded-while-attempting-to-flee">Continue reading...</a>
+
+## Taiwan military chief among eight killed in helicopter crash landing
+ - [https://www.theguardian.com/world/2020/jan/02/taiwans-military-chief-missing-helicopter-crash](https://www.theguardian.com/world/2020/jan/02/taiwans-military-chief-missing-helicopter-crash)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 08:26:44+00:00
+
+<p>Air force general Shen Yi-ming died when aircraft carrying 13 people went down near Taipei</p><p>Taiwan’s top military official was among eight people killed when a helicopter crash-landed on Thursday in a mountainous area near the capital, Taipei, the defence ministry has said.</p><p>The chief of general staff, air force general Shen Yi-ming, died in the incident while five of the 13 people onboard survived, the military. </p> <a href="https://www.theguardian.com/world/2020/jan/02/taiwans-military-chief-missing-helicopter-crash">Continue reading...</a>
+
+## Tribunal to hear case of sacked ethical vegan
+ - [https://www.theguardian.com/money/2020/jan/02/tribunal-to-hear-case-of-sacked-ethical-vegan](https://www.theguardian.com/money/2020/jan/02/tribunal-to-hear-case-of-sacked-ethical-vegan)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 08:17:47+00:00
+
+<p>Jordi Casamitjana argues veganism is a philosophical belief and thus protected in law</p><p>A legal hearing is due to get under way in Norwich on Thursday to determine whether veganism is a “philosophical or religious belief” and thus protected in law.</p><p><a href="https://www.theguardian.com/lifeandstyle/2019/dec/29/ethical-vegan-jordi-casamitjana-protected-status-court-tribunal">Jordi Casamitjana</a> says he was sacked by the League Against Cruel Sports after raising concerns that its pension fund was being invested in companies involved in animal testing.</p> <a href="https://www.theguardian.com/money/2020/jan/02/tribunal-to-hear-case-of-sacked-ethical-vegan">Continue reading...</a>
+
+## In the Line of Duty review – race-against-time cop thriller
+ - [https://www.theguardian.com/film/2020/jan/02/in-the-line-of-duty-review-aaron-eckhart](https://www.theguardian.com/film/2020/jan/02/in-the-line-of-duty-review-aaron-eckhart)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 08:00:28+00:00
+
+<p>Troubled detective Aaron Eckhart is forced to team up with a young citizen journalist in this run-of-the-mill action spectacle</p><p>There’s a straight-to-video feel to this cop thriller, directed by action veteran Steven C Miller, written by Jeremy Drysdale (who scripted the indie hit Grand Theft Parsons) and starring its exec producer, <a href="https://www.theguardian.com/film/aaron-eckhart">Aaron Eckhart</a>.</p><p>He plays Detective Frank Penny, a troubled but decent police officer with a reputation for shooting first and asking questions later. He accidentally ruins an anti-kidnap operation by killing the kidnapper who was about to pick up the ransom money in a public square, and now it’s a race against time to find out where the hostage is being held before she dies. And this tough, old-school cop finds himself having to tolerate a young citizen journalist, Ava Brooks (Courtney Eaton), who tags along, live streaming the whole thing on her phone, thus putting in place the ingredients for an odd-couple situation with both people involved learning to respect and like each other.</p> <a href="https://www.theguardian.com/film/2020/jan/02/in-the-line-of-duty-review-aaron-eckhart">Continue reading...</a>
+
+## Palette cleansers: our photography, art and architecture picks for 2020
+ - [https://www.theguardian.com/artanddesign/2020/jan/02/photography-art-architecture-2020-preview](https://www.theguardian.com/artanddesign/2020/jan/02/photography-art-architecture-2020-preview)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 08:00:28+00:00
+
+<p>Warhol is revealed as a prophet, London goes down the rabbit hole and Don McCullin takes his masterworks to Merseyside</p> <a href="https://www.theguardian.com/artanddesign/2020/jan/02/photography-art-architecture-2020-preview">Continue reading...</a>
+
+## How Tracey Emin is giving Munch the mother he never had
+ - [https://www.theguardian.com/artanddesign/2020/jan/02/tracey-emin-interview-munch-mother-statue-oslo](https://www.theguardian.com/artanddesign/2020/jan/02/tracey-emin-interview-munch-mother-statue-oslo)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 08:00:27+00:00
+
+<p>A lifelong fascination with the Norwegian creator of The Scream has been turned into 15 tonnes of bronze, soon to be installed at a new museum in Oslo</p><p>‘Munch’s mother died when he was very young,” says Tracey Emin. “So I want to give him a mother.” And what a mother she is giving him. The artist’s nine-metre bronze colossus will be unveiled in 2020, at the new Munch Museum in Oslo harbour. Emin has been fascinated by Edvard Munch’s brokenhearted art all her life. Now her giant Mother will be a permanent feature of the fjord he so famously depicted under a blood red sky in The Scream.</p><p>Yet this monumental image of a naked woman kneeling and hunched over an invisible child began as a small, fragile, handmade object. “It started off with me playing with clay,” says Emin, who didn’t think she had a chance when she entered the international competition to find a public artwork for Oslo’s Museum Island. Other candidates included the acclaimed Scandinavian artists Olafur Eliasson and Ragnar Kjartansson. But intimacy won.</p> <a href="https://www.theguardian.com/artanddesign/2020/jan/02/tracey-emin-interview-munch-mother-statue-oslo">Continue reading...</a>
+
+## Swap till you drop? Call to 'swish' little-used clothes to cut waste
+ - [https://www.theguardian.com/money/2020/jan/02/swap-till-you-drop-call-to-swish-little-used-clothes-to-cut-waste](https://www.theguardian.com/money/2020/jan/02/swap-till-you-drop-call-to-swish-little-used-clothes-to-cut-waste)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 07:53:56+00:00
+
+<p>Poll for waste authority finds 83% of Britons have at least six items unworn for a year</p><p>Clothes swapping or “<a href="https://www.theguardian.com/environment/green-living-blog/2012/feb/20/clothes-swishing-parties">swishing</a>” is set to become mainstream this year, a poll predicts, as consumers try to reduce their waste amid growing awareness of the <a href="https://www.theguardian.com/fashion/2018/jun/22/mps-to-examine-environmental-footprint-of-uk-fashion-industry">environmental impact</a> of fashion.</p><p>The research suggests 83% of Britons have at least six items of clothing in their wardrobe that they have not worn in the last year. Some admit to owning 200 items that they don’t wear.</p> <a href="https://www.theguardian.com/money/2020/jan/02/swap-till-you-drop-call-to-swish-little-used-clothes-to-cut-waste">Continue reading...</a>
+
+## Golden Globes 2020: who will win – and who should win – the TV categories
+ - [https://www.theguardian.com/film/2020/jan/02/golden-globes-2020-tv-who-will-win-and-who-should-win](https://www.theguardian.com/film/2020/jan/02/golden-globes-2020-tv-who-will-win-and-who-should-win)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 07:20:27+00:00
+
+<p>Streaming giants and Hollywood heavyweights (Reese! Meryl!) go head-to-head for the decade’s first TV prizes</p><p>The Golden Globes kick off a new decade in television with a battle of the streaming titans – Netflix leads with 17 nominations in television – featuring some of film’s pre-eminent names, from Meryl Streep to Reese Witherspoon to Michael Douglas. The Emmys have already anointed Fleabag, The Marvelous Mrs Maisel and Chernobyl, but it’s unclear if their reign will continue at the Globes, which are notoriously difficult to predict. Game of Thrones is nowhere to be seen and with several freshman shows (The Morning Show, The Politician) represented, it’s a new era of TV – and could be anyone’s game.</p><p> <span>Related: </span><a href="https://www.theguardian.com/film/2019/dec/09/golden-globes-2020-full-list-of-nominations">Golden Globes 2020: full list of nominations</a> </p> <a href="https://www.theguardian.com/film/2020/jan/02/golden-globes-2020-tv-who-will-win-and-who-should-win">Continue reading...</a>
+
+## Ambushed: 15ft tumbleweeds trap drivers and force Washington state road closure
+ - [https://www.theguardian.com/us-news/2020/jan/01/tumbleweeds-trap-drivers-force-road-closure-washington](https://www.theguardian.com/us-news/2020/jan/01/tumbleweeds-trap-drivers-force-road-closure-washington)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 07:08:05+00:00
+
+<p>Mobile plants forced authorities to close a highway in both directions for hours in Washington state on New Year’s Eve</p><p>Unlucky drivers in Washington state saw in the new year trapped under a glut of 15ft tumbleweeds, after the desiccated but mobile plants forced authorities to close a highway in both directions.</p><p> <span>Related: </span><a href="https://www.theguardian.com/us-news/2020/jan/01/headless-torso-found-cave-identified-murderer-escaped-jail-1916">Headless torso found in cave identified as murderer who escaped jail in 1916</a> </p> <a href="https://www.theguardian.com/us-news/2020/jan/01/tumbleweeds-trap-drivers-force-road-closure-washington">Continue reading...</a>
+
+## 'The salt they pump back in kills everything': is the cost of Chile's fresh water too high?
+ - [https://www.theguardian.com/cities/2020/jan/02/the-salt-they-pump-back-in-kills-everything-is-the-cost-of-chiles-fresh-water-too-high](https://www.theguardian.com/cities/2020/jan/02/the-salt-they-pump-back-in-kills-everything-is-the-cost-of-chiles-fresh-water-too-high)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 07:00:27+00:00
+
+<p>Antofagasta, situated on the edge of the Atacama Desert, relies on a vast desalination plant which provides the city with drinking water – but the waste brine is killing wildlife, say fishermen</p><p>As Eduardo Muñoz drifts his ageing skiff into Antofagasta’s harbour, flecks of paint peeling from its prow, he looks disconsolate.</p><p>“I used to get twice as many clams from every dive,” he mutters bitterly, hauling two large sacks of shellfish on to the dock and ruffling the salt from his hair.</p> <a href="https://www.theguardian.com/cities/2020/jan/02/the-salt-they-pump-back-in-kills-everything-is-the-cost-of-chiles-fresh-water-too-high">Continue reading...</a>
+
+## A warm welcome? The wildlife visitors warning of climate disaster
+ - [https://www.theguardian.com/environment/2020/jan/02/a-warm-welcome-the-wildlife-visitors-warning-of-climate-disaster-aoe](https://www.theguardian.com/environment/2020/jan/02/a-warm-welcome-the-wildlife-visitors-warning-of-climate-disaster-aoe)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 07:00:27+00:00
+
+<p>Britain’s milder weather is attracting exotic guests. While we may celebrate their arrival now it should also alert us to what’s ahead </p><p>Mediterranean egrets balancing on the backs of cows, multicoloured moths the size of a human hand, and impossibly exotic bee-eaters hawking for insects under English skies. All are here as a direct consequence of the climate crisis, which has allowed continental European species to extend their ranges northwards, and then make the leap across the Channel to gain a foothold in southern Britain.</p><p>Whenever I take a walk along the disused railway line across the Avalon marshes, near my Somerset home, I can’t help noticing these new arrivals. Tall and elegant, great white egrets first arrived here from France just a few years ago; now I encounter them every time I visit. Down the road, at the Somerset Wildlife Trust’s reserve at Catcott Lows, flocks of cattle egrets – the same species we see in wildlife films from Africa – gather to feed, perched appropriately on the backs of cattle. Elsewhere on the marshes, secretive night herons and little bitterns have also bred in recent years.</p> <a href="https://www.theguardian.com/environment/2020/jan/02/a-warm-welcome-the-wildlife-visitors-warning-of-climate-disaster-aoe">Continue reading...</a>
+
+## Alerting Amazon about its unsafe lamp cost me £221
+ - [https://www.theguardian.com/money/2020/jan/02/alerting-amazon-about-its-unsafe-lamp-cost-me-221](https://www.theguardian.com/money/2020/jan/02/alerting-amazon-about-its-unsafe-lamp-cost-me-221)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 07:00:27+00:00
+
+<p>I bought a therapy lamp from China via Amazon but it didn’t meet EU regulatory standards</p><p><strong>I am a recently qualified acupuncturist and purchased through Amazon a £111 specialised heat lamp for therapy sessions. As with all equipment to do with traditional Chinese medicine, it came from China. To my surprise, it did not have the mandatory CE stamp. </strong></p><p><strong>I contacted the seller, via the Amazon site, to inform them that they were selling electrical items </strong><strong>that did not meet EU regulatory standards. Their response stated my “return request” had been “accepted” and that I should post it to an address in New York. The postage was a staggering £110.20! </strong></p> <a href="https://www.theguardian.com/money/2020/jan/02/alerting-amazon-about-its-unsafe-lamp-cost-me-221">Continue reading...</a>
+
+## Beaches, black power and beauty salons: contemporary African photography – in pictures
+ - [https://www.theguardian.com/artanddesign/gallery/2020/jan/02/contemporary-african-photography-bamako-biennial-mali-festival-photography-in-pictures](https://www.theguardian.com/artanddesign/gallery/2020/jan/02/contemporary-african-photography-bamako-biennial-mali-festival-photography-in-pictures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 07:00:27+00:00
+
+<p>Playful and bold, the images at the Bamako Encounters Photography Biennial subvert advertising tropes, interrogate beauty standards, examine the effects of urban life – and salute the clenched fist of the black power movement. Inaugurated in 1994, the festival celebrates contemporary photography in Africa. Here’s a selection of images from this year’s event</p><ul><li>Bamako Encounters Photography Biennial is at <a href="https://www.rencontres-bamako.com/?lang=en">various venues</a> around the capital of Mali until 31 January</li></ul> <a href="https://www.theguardian.com/artanddesign/gallery/2020/jan/02/contemporary-african-photography-bamako-biennial-mali-festival-photography-in-pictures">Continue reading...</a>
+
+## Amazonian chief Raoni Metuktire: 'Bolsonaro has been the worst for us'
+ - [https://www.theguardian.com/world/2020/jan/02/amazonian-chief-raoni-metuktire-bolsonaro-has-been-the-worst-for-us](https://www.theguardian.com/world/2020/jan/02/amazonian-chief-raoni-metuktire-bolsonaro-has-been-the-worst-for-us)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 07:00:26+00:00
+
+<p>Venerated indigenous leader speaks out on the threat posed by destruction of the rainforest</p><p>At close to 90 years old, Brazil’s most venerated indigenous leader, Raoni Metuktire, has returned to the spotlight to challenge the man he calls the worst president of his lifetime, Jair Bolsonaro.</p><p>In an interview with the Guardian, the Kayapó chief said he wanted to speak out about the far-right administration’s plans to allow mining in indigenous territory and he warned that Brazil’s Amazon policies threatened global efforts to protect nature and address the climate emergency.</p> <a href="https://www.theguardian.com/world/2020/jan/02/amazonian-chief-raoni-metuktire-bolsonaro-has-been-the-worst-for-us">Continue reading...</a>
+
+## Your favourite UK winter walks: reader suggestions
+ - [https://www.theguardian.com/travel/2020/jan/02/winter-walks-uk-pubs-cafes-reader-suggestions](https://www.theguardian.com/travel/2020/jan/02/winter-walks-uk-pubs-cafes-reader-suggestions)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 07:00:26+00:00
+
+<p>Hundreds of you commented on our recent <a href="https://www.theguardian.com/travel/2019/dec/28/10-best-winter-walks-uk-2019">winter walks feature</a>, adding your own great hikes. So we’ve selected 10 of your favourites, from Scottish beaches to Hampshire hills</p><p>Best walk for us: start in Thorpe Bay, on the eastern side of Southend and walk all along the coast to Leigh-on-Sea (about five miles). Stop for a warming drink in any of the pubs (<a href="https://www.greeneking-pubs.co.uk/pubs/essex/ye-olde-smack/" title="">Ye Olde Smack</a> or the <a href="https://the-peterboat.eastangliapubs.com/" title="">Peterboat </a>perhaps), or have fish and chips made with locally sourced fish, then return. You could make a longer route by walking Southend pier, the longest in the world – a mile out and a mile back: the seascapes are stunning at this time of year.<br /><strong>BabylonianSheDevil</strong></p> <a href="https://www.theguardian.com/travel/2020/jan/02/winter-walks-uk-pubs-cafes-reader-suggestions">Continue reading...</a>
+
+## Latin American female writers 'get literary place they deserve' in new collection
+ - [https://www.theguardian.com/world/2020/jan/02/latin-american-female-writers-books-collection](https://www.theguardian.com/world/2020/jan/02/latin-american-female-writers-books-collection)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 06:45:26+00:00
+
+<p>Project in Mexico to reprint books highlighting works of ‘great literary value’<br /></p><p>Tita Valencia’s first – and last – novel, Minotaur Fighting, was inspired by the end of a love affair.</p><p>Intimate, raw, and experimental, the 1976 book won Valencia the Xavier Villarrutia prize – the most prestigious award in Mexican literature. It also won her deep disapproval from the country’s male literati.</p> <a href="https://www.theguardian.com/world/2020/jan/02/latin-american-female-writers-books-collection">Continue reading...</a>
+
+## Carlos Ghosn prepares to speak as Japan comes to terms with saviour who fled
+ - [https://www.theguardian.com/world/2020/jan/02/carlos-ghosn-prepares-to-speak-as-japan-comes-to-terms-with-saviour-who-fled](https://www.theguardian.com/world/2020/jan/02/carlos-ghosn-prepares-to-speak-as-japan-comes-to-terms-with-saviour-who-fled)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 06:09:33+00:00
+
+<p>Wife dismisses reports husband escaped inside an instrument case as world awaits full explanation from fugitive</p><p>The world will have to wait until next week for what could be the only definitive account of how <a href="https://www.theguardian.com/business/carlos-ghosn">Carlos Ghosn</a> managed to leave <a href="https://www.theguardian.com/world/japan">Japan</a> months before he was due to stand trial for alleged financial misconduct.</p><p>The former <a href="https://www.theguardian.com/business/nissan">Nissan</a> chairman who <a href="https://www.theguardian.com/business/2019/dec/31/carlos-ghosns-escape-from-japan-was-aided-by-lebanese-officials">fled the country</a> to Lebanon while out on bail, will speak to the media in Beirut next Wednesday, media reports said, in a public appearance that could provide answers to myriad questions swirling around his daring escape.</p> <a href="https://www.theguardian.com/world/2020/jan/02/carlos-ghosn-prepares-to-speak-as-japan-comes-to-terms-with-saviour-who-fled">Continue reading...</a>
+
+## Sports stars: the best ethical sportswear – in pictures
+ - [https://www.theguardian.com/fashion/gallery/2020/jan/02/best-ethical-sportswear-in-pictures](https://www.theguardian.com/fashion/gallery/2020/jan/02/best-ethical-sportswear-in-pictures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 06:01:25+00:00
+
+<p>Whatever your workout, here is the best sustainable kit to get you in that ‘new year, new you’ feeling<br /></p> <a href="https://www.theguardian.com/fashion/gallery/2020/jan/02/best-ethical-sportswear-in-pictures">Continue reading...</a>
+
+## Overweight, unfit or shy? The British army still wants you
+ - [https://www.theguardian.com/uk-news/2020/jan/02/overweight-unfit-shy-british-army-still-wants-you](https://www.theguardian.com/uk-news/2020/jan/02/overweight-unfit-shy-british-army-still-wants-you)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 06:00:26+00:00
+
+<p>Borderline recruits are getting a second chance to make the grade on four-week boot camp</p><p>Overweight, unfit and shy recruits are being given a second chance to join the British army via a four-week boot camp as the military seeks new ways to increase troop numbers in its under-strength armed forces.</p><p>The “soldier development course” – which first ran in September – is designed to help borderline recruits make the grade and is one of a range of measures aimed at stemming a 10% shortfall in fully trained personnel.</p> <a href="https://www.theguardian.com/uk-news/2020/jan/02/overweight-unfit-shy-british-army-still-wants-you">Continue reading...</a>
+
+## Four in 10 GPs suggest seeking private care for mentally ill children
+ - [https://www.theguardian.com/society/2020/jan/02/four-10-gps-suggest-private-care-mentally-ill-children](https://www.theguardian.com/society/2020/jan/02/four-10-gps-suggest-private-care-mentally-ill-children)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 06:00:25+00:00
+
+<p>Survey finds 43% of doctors tell parents that NHS services are too overwhelmed to help</p><p>Four in 10 GPs are advising parents of children with mental health problems to pay for private care because NHS services are too overwhelmed to help.</p><p>In a survey, 43% of UK family doctors said they told parents whose children were struggling with anxiety, depression, self-harm or eating disorders to seek treatment privately if they could afford it because NHS care is heavily rationed and involves delays of up to 18 months.</p> <a href="https://www.theguardian.com/society/2020/jan/02/four-10-gps-suggest-private-care-mentally-ill-children">Continue reading...</a>
+
+## Sadiq Khan pledges free London travel for disabled people's carers
+ - [https://www.theguardian.com/politics/2020/jan/02/sadiq-khan-pledges-free-london-travel-disabled-people-carers](https://www.theguardian.com/politics/2020/jan/02/sadiq-khan-pledges-free-london-travel-disabled-people-carers)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 06:00:25+00:00
+
+<p>Mayor launches re-election bid with promise of companion pass on city’s transport network</p><p>Sadiq Khan has kickstarted his bid for a second term as London mayor by pledging free travel on the city’s transport for anyone accompanying a disabled person.</p><p>The promise came on the same day as rail passengers nationally were hit with annual fare increases, this year averaging 2.7%.</p> <a href="https://www.theguardian.com/politics/2020/jan/02/sadiq-khan-pledges-free-london-travel-disabled-people-carers">Continue reading...</a>
+
+## This can be the year when we recharge nature – and ourselves | George Monbiot
+ - [https://www.theguardian.com/commentisfree/2020/jan/02/nature-rewild-eco-anxiety-seas-climate-emergency-environment](https://www.theguardian.com/commentisfree/2020/jan/02/nature-rewild-eco-anxiety-seas-climate-emergency-environment)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 06:00:25+00:00
+
+<p>We can keep our eco-anxiety at bay by working to rewild our seas and restore our environment</p><p>It’s going to be a rough year. The fatal combination of escalating climate breakdown and the capture of crucial governments by <a href="https://www.theguardian.com/commentisfree/2019/jul/26/trump-johnson-nationalists-billionaire-oligarchs" title="">killer clowns</a> provokes a horrible sense of inevitability. Just when we need determined action, we know that our governments, and the powerful people to whom they respond, will do everything they can to stymie it.</p><p>Witness the disasters in Australia. In mid-December, on the day the nation’s lethal heatwave struck, Rupert Murdoch’s newspaper the Australian <a href="https://twitter.com/GeorgeMonbiot/status/1207180321885736960" title="">filled its front page</a> with a report celebrating new coal exports and a smear story about the chiefs of the state fire services, who were demanding an immediate end to the burning of fossil fuels. The response of the prime minister, Scott Morrison, to the escalating catastrophe was to embark on <a href="https://www.theguardian.com/australia-news/2019/dec/21/scott-morrison-hawaii-horror-show-pr-disaster-unfolded" title="">a holiday overseas</a> as his country burned.</p> <a href="https://www.theguardian.com/commentisfree/2020/jan/02/nature-rewild-eco-anxiety-seas-climate-emergency-environment">Continue reading...</a>
+
+## ‘Everyone thought I was mad’: how to make a life-changing decision – and stick to it
+ - [https://www.theguardian.com/lifeandstyle/2020/jan/02/how-to-make-a-life-changing-decision-and-stick-to-it](https://www.theguardian.com/lifeandstyle/2020/jan/02/how-to-make-a-life-changing-decision-and-stick-to-it)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 06:00:25+00:00
+
+<p>Whether it’s leaving your partner, retraining or moving abroad, taking a big leap can be terrifying. Here’s how to do it</p><p>When I was 26, I broke up with a long-term partner, got an ill-advised facial piercing and changed careers – all in the space of a month. What I learned during those four weeks is that life is like a cake: you can’t unbake it if you don’t like the flavour; sometimes, you need to chuck the entire thing in the bin and start again from scratch. It is harder that way, but who wants to spend the rest of their life eating cupcakes when really <a href="https://www.theguardian.com/lifeandstyle/australia-food-blog/2014/may/16/lamingtons-provenance-unproven-but-tastiness-unquestioned" title="">they wanted lamingtons</a>? Change is hard. Change is scary. Change is a tedious administrative nightmare. Unfortunately, change is also critical to our continued happiness as humans. Even if we can’t bring ourselves to embrace change, we should try not to avoid it at all costs.</p><p>But what about life-changing changes? How do you make the leap into unknown waters – whether it is swapping jobs, moving to the other side of the world or even leaving your marriage? We spoke to experts and people who have made major life changes to get the lowdown.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/jan/02/how-to-make-a-life-changing-decision-and-stick-to-it">Continue reading...</a>
+
+## Can Merkel and Macron get Franco-German relations back on track?
+ - [https://www.theguardian.com/world/2020/jan/02/can-merkel-and-macron-get-franco-german-relations-back-on-track](https://www.theguardian.com/world/2020/jan/02/can-merkel-and-macron-get-franco-german-relations-back-on-track)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 05:00:24+00:00
+
+<p>As a year of big EU decisions begins, the bloc’s most important relationship is stuck in a rut</p><p>In early December, Emmanuel Macron and Angela Merkel sat down opposite each other in Gordon Ramsay’s restaurant at the Savoy Hotel, central London, for a two-hour tête-à-tête dinner. They had some talking to do.</p><p>Cordial and constructive, diplomats in Paris and Berlin said, the evening apparently cleared the air. But it will take more than a dinner to clear the structural obstacles to a relationship that is critical to what Europe can achieve in 2020.</p> <a href="https://www.theguardian.com/world/2020/jan/02/can-merkel-and-macron-get-franco-german-relations-back-on-track">Continue reading...</a>
+
+## Tim Henman calls for 'perspective' as smoke haze threatens ATP Cup
+ - [https://www.theguardian.com/sport/2020/jan/02/tim-henman-calls-for-perspective-as-smoke-haze-threatens-tennis-inaugural-atp-cup](https://www.theguardian.com/sport/2020/jan/02/tim-henman-calls-for-perspective-as-smoke-haze-threatens-tennis-inaugural-atp-cup)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 04:52:57+00:00
+
+<ul><li>Britain due to open inaugural event against Bulgaria</li><li>Henman emphasises plight of bushfire victims</li></ul><p>Tim Henman has attempted to downplay concerns about the bushfire smoke and haze that will surely intrude on Great Britain’s opening match against Bulgaria in the inaugural ATP Cup on Friday.</p><p>“In the context of what this country is going through with the bushfires and for us having to deal with perhaps slightly poor air quality, I think right there is the perspective,” the team captain said at the same venue where he lasted less than an hour in the 2000 Sydney Olympics. “I don’t envisage it being a problem at all.</p> <a href="https://www.theguardian.com/sport/2020/jan/02/tim-henman-calls-for-perspective-as-smoke-haze-threatens-tennis-inaugural-atp-cup">Continue reading...</a>
+
+## Jakarta floods leave 21 dead and 30,000 homeless
+ - [https://www.theguardian.com/world/2020/jan/02/floods-inundate-jakarta-deaths-20000-homeless-indonesia](https://www.theguardian.com/world/2020/jan/02/floods-inundate-jakarta-deaths-20000-homeless-indonesia)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 03:20:05+00:00
+
+<p>Torrential rain triggers emergency in Indonesian capital with thousands moved into temporary shelter and more downpours forecast</p><p>Torrential rain has caused flash floods to inundate large parts of Indonesia’s capital and nearby towns, killing at least 21 people and forcing thousands more to evacuate.</p><p>Deaths were caused by hypothermia, drowning and landslides, while four died after being electrocuted by power lines, the country’s disaster mitigation agency (BNPB)<a href="https://bnpb.go.id/en/update-korban-banjir-jabodetabek-16-orang"> said on its website on Thursday morning</a>.</p> <a href="https://www.theguardian.com/world/2020/jan/02/floods-inundate-jakarta-deaths-20000-homeless-indonesia">Continue reading...</a>
+
+## Pharmaceuticals: who decides the price of life? – podcast
+ - [https://www.theguardian.com/news/audio/2020/jan/02/who-decides-the-price-of-a-life-saving-drug-cystic-fibrosis-drug-orkambi-podcast](https://www.theguardian.com/news/audio/2020/jan/02/who-decides-the-price-of-a-life-saving-drug-cystic-fibrosis-drug-orkambi-podcast)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 03:00:21+00:00
+
+<p>This week we are looking back at some of our favourite episodes from 2019. The cystic fibrosis drug Orkambi could extend the lives of thousands of children – but it comes with a price tag of £105,000 per patient per year. In this episode from February, the health editor Sarah Boseley<strong> </strong>explored how the cost of a life-extending drug could be weighed next to a person’s life</p><p>When <strong>Carlie Pleasant </strong>was nine, her parents were told she would not live beyond 15. Her diagnosis was cystic fibrosis, a genetic condition that results in a build-up of mucus in the lungs, making it hard to breathe. Pleasant, who is now 29 with a husband and a son, lives in fear that cystic fibrosis will cut short her life.</p> <a href="https://www.theguardian.com/news/audio/2020/jan/02/who-decides-the-price-of-a-life-saving-drug-cystic-fibrosis-drug-orkambi-podcast">Continue reading...</a>
+
+## Bushfire-ravaged communities return to ruins – in pictures
+ - [https://www.theguardian.com/australia-news/gallery/2020/jan/02/conjola-park-fire-residents-assess-remains-after-bushfire-rages-through-in-pictures](https://www.theguardian.com/australia-news/gallery/2020/jan/02/conjola-park-fire-residents-assess-remains-after-bushfire-rages-through-in-pictures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 01:16:01+00:00
+
+<p><strong>WARNING: GRAPHIC CONTENT </strong><br />Homes turned to rubble, dead livestock and burnt-out primary schools confront locals returning home after massive blazes swept through parts of New South Wales and Victoria </p><p><a href="https://www.theguardian.com/australia-news/live/2020/jan/02/nsw-fires-live-news-victoria-bushfires-australia-near-south-coast-tourists-latest-updates-">• Latest updates: NSW state of emergency declared as 17 missing in Victoria bushfires</a><br /></p> <a href="https://www.theguardian.com/australia-news/gallery/2020/jan/02/conjola-park-fire-residents-assess-remains-after-bushfire-rages-through-in-pictures">Continue reading...</a>
+
+## New Zealand rodeo season opens amid fresh animal rights protests
+ - [https://www.theguardian.com/world/2020/jan/02/new-zealand-rodeo-season-opens-amid-fresh-animal-rights-protests](https://www.theguardian.com/world/2020/jan/02/new-zealand-rodeo-season-opens-amid-fresh-animal-rights-protests)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 00:43:38+00:00
+
+<p>Activists claim the cowboy events are cruel to bulls and horses, but organisers say they are a lifeline for isolated rural communities</p><p>Rodeo season has got off to a rocky start in New Zealand, with protest numbers swelling outside events around the country.</p><p>Around three dozen protesters chanted outside the Wanaka rodeo in the South Island on Thursday – “there’s no excuse for animal abuse” – calling for an end to the sport, which they say is cruel and demeaning to the animals.</p> <a href="https://www.theguardian.com/world/2020/jan/02/new-zealand-rodeo-season-opens-amid-fresh-animal-rights-protests">Continue reading...</a>
+
+## Intermittent fasting is incredibly popular. But is it any better than other diets? | Gideon Meyerowitz-Katz
+ - [https://www.theguardian.com/commentisfree/2020/jan/02/intermittent-fasting-is-incredibly-popular-but-is-it-any-better-than-other-diets](https://www.theguardian.com/commentisfree/2020/jan/02/intermittent-fasting-is-incredibly-popular-but-is-it-any-better-than-other-diets)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 00:31:23+00:00
+
+<p>It’s possible we’ve simply yet to discover the best way to fast, especially considering that these diets are rarely tested against one another</p><p>Diets are funny things. They aren’t just a way to lose or gain weight – a diet is part of your life.</p><p>Eating is one of the fundamental human recreational activities, which means that food is family, food is friends, food is sharing, culture and life no matter where you go.</p> <a href="https://www.theguardian.com/commentisfree/2020/jan/02/intermittent-fasting-is-incredibly-popular-but-is-it-any-better-than-other-diets">Continue reading...</a>
+
+## Civil service told it is 'woefully unprepared' for Cummings' reforms
+ - [https://www.theguardian.com/politics/2020/jan/02/cummings-likely-to-have-big-influence-over-whitehall-reforms](https://www.theguardian.com/politics/2020/jan/02/cummings-likely-to-have-big-influence-over-whitehall-reforms)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 00:20:01+00:00
+
+<p>Staff could face regular exams under ‘seismic’ changes planned by PM and adviser, says manifesto author</p><p>Civil servants have been warned that they are “woefully unprepared” for the sweeping reforms of Whitehall being prepared by the prime minister and his special adviser, Dominic Cummings.</p><p>Officials could be made to take regular exams to prove that they are up to their Whitehall jobs under “seismic” changes being planned by No 10, Rachel Wolf, who helped draw up Boris Johnson’s election-winning manifesto, has said. </p> <a href="https://www.theguardian.com/politics/2020/jan/02/cummings-likely-to-have-big-influence-over-whitehall-reforms">Continue reading...</a>
+
+## Here's why the UK wants to strengthen its relationship with New Zealand Māori | Laura Clarke
+ - [https://www.theguardian.com/commentisfree/2020/jan/02/heres-why-the-uk-wants-to-strengthen-its-relationship-with-new-zealand-maori](https://www.theguardian.com/commentisfree/2020/jan/02/heres-why-the-uk-wants-to-strengthen-its-relationship-with-new-zealand-maori)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 00:09:22+00:00
+
+<p>The UK and Māori of Aotearoa New Zealand are looking to the past to build stronger relationships for the future</p><p>The connections between the UK and New Zealand are such that we feel instantly at home in each other’s countries, sipping a flat white<strong> </strong>or an English Breakfast tea. We have a similar sense of humour, a similar sense of adventure, similar tastes. There is so much that feels familiar. But perhaps the greatest joy of my first two years as British high commissioner to New Zealand has been getting to know that which is less familiar: learning about and building connections with te ao Māori whānui – the wider Māori community.</p><p>In my time here in Aotearoa New Zealand, I have been welcomed onto marae meeting houses from Bluff to Waitangi, and attended the annual coronation of the Māori king. I have <a href="https://www.theguardian.com/world/2018/nov/05/new-zealand-high-commission-to-recruit-maori-adviser-and-te-reo-teacher">learnt to speak (some!) Māori</a>. I have – with my team – learnt tikanga Māori (customary practices), as well as our shared and sometimes painful history. I have built friendships. And I have delighted in seeing my children absorb Māori culture: doing their introductory pepehā, throwing themselves into kapahaka dance, and fully at ease at a haka pōwhiri (welcome ceremony), greeting by hongi after hongi after hongi.</p> <a href="https://www.theguardian.com/commentisfree/2020/jan/02/heres-why-the-uk-wants-to-strengthen-its-relationship-with-new-zealand-maori">Continue reading...</a>
+
+## Greggs launches meatless steak bake to beef up its vegan range
+ - [https://www.theguardian.com/business/2020/jan/02/greggs-launches-meatless-steak-bake-beef-up-vegan-range](https://www.theguardian.com/business/2020/jan/02/greggs-launches-meatless-steak-bake-beef-up-vegan-range)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 00:01:18+00:00
+
+<p>Bakery chain hopes the £1.55 snack will prove as successful as its Quorn-based sausage roll</p><p><a href="https://www.theguardian.com/business/greggs">Greggs</a>, the UK’s largest bakery chain, will end speculation about its hotly anticipated new <a href="https://www.theguardian.com/food/vegan">vegan </a>snack by launching a meat-free version of its popular<a href="https://www.greggs.co.uk/bakes/steak-bake"> steak bake</a>.</p><p>Since the runaway success of its <a href="https://www.theguardian.com/business/2019/jan/02/greggs-launches-vegan-sausage-roll">meatless sausage roll</a>, the chain – which serves more than 6 million customers a week from its 2,000 outlets – has been working to develop vegan versions of its other bestselling items.</p> <a href="https://www.theguardian.com/business/2020/jan/02/greggs-launches-meatless-steak-bake-beef-up-vegan-range">Continue reading...</a>
+
+## Sharp rise in NHS hospital admissions for eating disorders
+ - [https://www.theguardian.com/society/2020/jan/02/sharp-rise-in-nhs-hospital-admissions-for-eating-disorders](https://www.theguardian.com/society/2020/jan/02/sharp-rise-in-nhs-hospital-admissions-for-eating-disorders)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 00:01:18+00:00
+
+<p>Expert say figures show condition is not being treated properly in its early stages</p><p>Hospital admissions for eating disorders have risen 37% across all age groups in the last two years, <a href="https://digital.nhs.uk/">NHS Digital</a> figures show.</p><p>Psychiatrists and experts in eating disorders say the figures are worrying and show that more needs to be done to support people before they reach crisis point.</p> <a href="https://www.theguardian.com/society/2020/jan/02/sharp-rise-in-nhs-hospital-admissions-for-eating-disorders">Continue reading...</a>
+
+## UK economy in stagnation at end of 2019, survey shows
+ - [https://www.theguardian.com/business/2020/jan/02/uk-economy-stagnation-end-2019-survey-shows](https://www.theguardian.com/business/2020/jan/02/uk-economy-stagnation-end-2019-survey-shows)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-01-02 00:01:18+00:00
+
+<p>British Chambers of Commerce report says long-term uncertainty is impeding growth</p><p>The UK economy <a href="https://www.theguardian.com/business/2019/dec/27/uk-economy-faces-weakest-growth-outside-of-recession-since-second-world-war">ended 2019 in stagnation</a>, under pressure from long-term uncertainty, mounting business costs and a global economic slowdown, according to a business survey.</p><p>The British Chambers of Commerce’s (BCC) latest quarterly economic snapshot, based on a poll of 6,500 firms across the country in November, painted a gloomy picture of the economy at the end of the last decade.</p> <a href="https://www.theguardian.com/business/2020/jan/02/uk-economy-stagnation-end-2019-survey-shows">Continue reading...</a>
+

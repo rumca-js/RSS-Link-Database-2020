@@ -1,0 +1,34 @@
+# Source:Pogo, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCn-K7GIs62ENvdQe6ZZk9-w, language:en-US
+
+## Cultures (Full Album)
+ - [https://www.youtube.com/watch?v=_dUbnb8mFCg](https://www.youtube.com/watch?v=_dUbnb8mFCg)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCn-K7GIs62ENvdQe6ZZk9-w
+ - date published: 2020-12-28 08:11:29+00:00
+
+DASH 0:00 
+Dash is a beat all about drive and persistence. It features a layer of lush, gorgeous analog stabs from Mary Poppins. When I made the drums and bass lines, I drew a lot of inspiration from the retro aesthetics of Dragonball Z and Astroboy. I even borrowed some energy from Australian songwriter Peter Combe whose music I loved as a kid. Dash reminded me so much of 'Happy As Larry' that I featured samples of Peter's voice. This track always left me feeling positive and energised after I worked on it, so I think it's a great way to start this album. To me, Dash represents the fast and vibrant culture of the 80s.
+
+MAZEL TOV 3:31
+This dancer features voices from Fiddler On The Roof and a lot of synths. I woke up at 4am for a few weeks because I was so excited to give it some more life. Mazel Tov actually began as a remix of the Disney TV movie 'Heidi'. I slowly introduced sounds from Fiddler On The Roof, until eventually that's all there was. I like this one because of its airiness and dreamy quality. I like to think Mazel Tov is a nod to the sturdy traditions and vibrant character of Jewish culture. It's also a salute to the wise words of Tevye as he tells us how important it is that we all learn to love each other.
+
+GANBATTE 8:21
+Ganbatte is all about electric and acoustic instruments. I pieced everything together note by note, and I was hugely inspired by a tiny musical passage that I sampled from The Muppet Movie (1979). I almost published this track without any drums. I think Ganbatte conveys a feeling of hardship, persistence and reward. That's why I called it Ganbatte, which is a Japanese word that roughly translates to "Come on!" or "Do your best!" Weirdly, it also makes me think of old school first-person shooters like Quake and Doom. The track plants me in an ancient ruin beneath a huge overcast sky and slaps a sword in my hand.
+
+WHATITDO 13:13
+This track started as a demo for a basketball company. I liked it so much that I withdrew it from the project and fleshed it out for myself. Throughout the beats, you can hear the deep velvety voice of American basketball player Kawhi Leonard. It's not terribly cultural, but I think this track can speak of American sportsmanship and humility.
+
+ALL YOU 15:14
+This one features my own voice and lyrics. I was very inspired by the work of The Streets. A lot of the lyrics are about ego management and spiritual health. I came very close to pulling this track from the album because I'm on the fence about my accent. After a dozen phone conversations and a lot of thinking, I decided to keep it in. I feel this this track is me, literally and spiritually. It picks up the pace from Whatitdo, it paints a culture, and it fits in to an already broad palette of genres. I think it adds more than it subtracts. All You is about spiritual and mental awareness in a world that's increasingly switched off and disconnected.
+
+DOUBTFIRE 18:43
+As the name suggests, this track is a remix of sounds and voices from Mrs. Doubtfire starring Robin Williams. I almost didn't feature this track because I don't think it's my best work, but when somebody told me it's their little daughter's favourite, I had to give it a place. 'All You' ends on a light-hearted, nostalgic note, so I think Doubtfire follows reasonably well.
+
+GREENDALE 22:20
+You're listening to a patchwork of sounds, voices and music from the original series of Postman Pat in 1981. I had the show on VHS when I was a toddler and it hypnotised me. I like this track because it feels fresh and different without hinging on vocals or gimmicks. It goes on a little journey, and I like the way it ends on a note that's ethereal and contemplative in contrast to the rest of the story. I would have happily placed Greendale at the start of this album, but I think it echoes the charm of Mrs. Doubtfire and injects an airy optimism into the final chapter.
+
+IRISH WINE 25:32
+I started making Irish Wine at the beginning of 2020. Like with Ganbatte, I pieced everything together note by note using instrument libraries. Originally, I was trying to make a remix of Black Books starring Dylan Moran and Bill Bailey. You can still hear Bernard's voice in the chorus and the sounds of wine glasses throughout the track. But as I chipped away for days, it evolved into something bigger and more personal. The mix is a little messy, but I'm happy with this track because it goes on a journey of different emotions.
+
+I'LL MISS YOU 29:46
+As you might tell, I was very inspired by Mike Oldfield's Tubular Bells when I made this one. I did everything using synths and instrument libraries. I hope this outro takes you through space and time, because for as long as I can remember, I've always had stirring dreams of floating through deep space and stroking the planets that pass me by. 2020 has been a very emotional year for me in good ways and bad, so I think this track closes the album nicely as we leave the madness on Earth in our space ship and return to the stars.
+

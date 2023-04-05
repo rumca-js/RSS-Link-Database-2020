@@ -1,0 +1,625 @@
+# Source:The Guardian, URL:https://www.theguardian.com/rss, language:en-UK
+
+## Sticking to UK diet advice cuts premature death and CO2  - study
+ - [https://www.theguardian.com/society/2020/aug/26/sticking-to-uk-diet-advice-cuts-premature-death-and-co2-study](https://www.theguardian.com/society/2020/aug/26/sticking-to-uk-diet-advice-cuts-premature-death-and-co2-study)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 22:30:35+00:00
+
+<p>Following guidelines associated with 7% lower mortality risk and 30% cut in carbon emissions</p><p>Sticking to official dietary advice, including the five-a-day maxim, could reduce the chance of premature death by an estimated 7% as well as help the environment, a study has suggested.</p><p>However, it found that while many people are able to follow some of the guidelines, next to no one follows them all.</p> <a href="https://www.theguardian.com/society/2020/aug/26/sticking-to-uk-diet-advice-cuts-premature-death-and-co2-study">Continue reading...</a>
+
+## 'Maybe it did just want to eat me': Australian surfer whose partner fought off great white shark tells why she wants to save them
+ - [https://www.theguardian.com/environment/2020/aug/27/chantelle-doyle-australian-surfer-survived-great-white-shark-bite-partner-fists-eat-me](https://www.theguardian.com/environment/2020/aug/27/chantelle-doyle-australian-surfer-survived-great-white-shark-bite-partner-fists-eat-me)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 17:30:30+00:00
+
+<p>Exclusive: Chantelle Doyle tells how a 2.5m shark lacerated her leg, how her partner fought it off with his fists and why we need to help the fish that bit her</p><p>Chantelle Doyle lies diagonally across her hospital bed with her heavily bandaged right leg propped up on a chair at a 30-degree angle.</p><p>She is trying to help her nerves heal. It might not work. Great white sharks can bite hard.</p> <a href="https://www.theguardian.com/environment/2020/aug/27/chantelle-doyle-australian-surfer-survived-great-white-shark-bite-partner-fists-eat-me">Continue reading...</a>
+
+## Businesses and customers: share your experiences of 'eat out to help out'
+ - [https://www.theguardian.com/business/2020/aug/26/businesses-and-customers-share-your-experiences-of-eat-out-to-help-out](https://www.theguardian.com/business/2020/aug/26/businesses-and-customers-share-your-experiences-of-eat-out-to-help-out)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 17:27:52+00:00
+
+<p>We’d like to hear to from staff, owners and customers on how they feel the scheme has been<br /></p><p>The government’s ‘eat out to help out’ scheme has meant more than <a href="https://www.theguardian.com/business/2020/aug/25/eat-out-to-help-out-64m-meals-claimed-in-uk-under-scheme">64m meals have been claimed</a> since the beginning of August.</p><p>When introduced, its aim was to incentivise the public to dine at restaurants by allowing customers to claim a half-price discount up to a cost of £10. </p> <a href="https://www.theguardian.com/business/2020/aug/26/businesses-and-customers-share-your-experiences-of-eat-out-to-help-out">Continue reading...</a>
+
+## Coronavirus live news: Italy hits new record in daily cases since May; Croatia reports record daily infections rise
+ - [https://www.theguardian.com/world/live/2020/aug/26/coronavirus-live-news-who-signals-slowing-of-infections-but-india-cases-still-soaring](https://www.theguardian.com/world/live/2020/aug/26/coronavirus-live-news-who-signals-slowing-of-infections-but-india-cases-still-soaring)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 16:59:29+00:00
+
+<p>Italy sees <a href="https://www.theguardian.com/world/live/2020/aug/26/coronavirus-live-news-who-signals-slowing-of-infections-but-india-cases-still-soaring?page=with:block-5f468ed88f08f9fdc758ec8c#block-5f468ed88f08f9fdc758ec8c">1,367 new cases</a>; Croatia reports <a href="https://www.theguardian.com/world/live/2020/aug/26/coronavirus-live-news-who-signals-slowing-of-infections-but-india-cases-still-soaring?page=with:block-5f46811f8f08767dd7f0f90f#block-5f46811f8f08767dd7f0f90f">record 358 new cases</a>; Lebanon’s caretaker PM country <a href="https://www.theguardian.com/world/live/2020/aug/26/coronavirus-live-news-who-signals-slowing-of-infections-but-india-cases-still-soaring?page=with:block-5f4643628f08c26134254897#block-5f4643628f08c26134254897">could ‘lose control’ of outbreak</a>; Belgium deaths <a href="https://www.theguardian.com/world/live/2020/aug/26/coronavirus-live-news-who-signals-slowing-of-infections-but-india-cases-still-soaring?page=with:block-5f465e4f8f08f9fdc758e9e6#block-5f465e4f8f08f9fdc758e9e6">lower than thought</a></p><ul><li><a href="https://www.theguardian.com/world/2020/aug/26/non-woven-masks-better-to-stop-covid-19-says-japanese-supercomputer">Non-woven face masks ‘better at stopping Covid spread’</a></li><li><a href="https://www.theguardian.com/world/2020/aug/26/obesity-increases-risk-of-covid-19-death-by-48-study-finds">Obesity increases risk of Covid-19 death by 48%, study finds</a></li><li><a href="https://www.theguardian.com/world/2020/aug/26/eu-trade-commissioner-phil-hogan-pressure-quit-covid-rules-breach-ireland">EU trade commissioner under pressure to quit over Covid breach</a></li><li><a href="https://www.theguardian.com/global-development/2020/aug/25/venezuela-coronavirus-covid-death-toll-maracaibo">‘They they’ll be left to die’: pandemic hits Venezuela</a></li><li><a href="https://www.theguardian.com/world/live/2020/aug/26/uk-coronavirus-live-news-covid-19-latest-updates-boris-johnson-u-turn-face-masks">UK coronavirus live: latest updates</a><br /></li></ul><p class="block-time published-time"> <time datetime="2020-08-26T16:56:31.961Z">5.56pm <span class="timezone">BST</span></time> </p><p>Italy reported 1,367 new coronavirus cases on Wednesday, its highest daily tally since May when the country was still in lockdown, bringing the total number to 262,540. </p><p>Authorities have also registered the highest number of tests: 93,529, almost 20,000 more than Tuesday and a record since the beginning of the pandemic. </p><p class="block-time published-time"> <time datetime="2020-08-26T16:32:40.608Z">5.32pm <span class="timezone">BST</span></time> </p><p>The Canadian prime minister <strong>Justin Trudeau </strong>has said his government will provide as much as C$2 billion to help students safely return to schools as the country prepares for a return to classes amid the coronavirus pandemic.</p><p>“Our children must be safe in the classroom. That’s non-negotiable ,” he told reporters Wednesday.<br /></p><p>Parents and staff are anxious about what the school year may hold. As a dad—and a former teacher— I get that. We all want what’s best for our kids, including a good education. School matters.</p> <a href="https://www.theguardian.com/world/live/2020/aug/26/coronavirus-live-news-who-signals-slowing-of-infections-but-india-cases-still-soaring">Continue reading...</a>
+
+## Gatwick airport to cut 600 jobs as Covid continues to hammer industry
+ - [https://www.theguardian.com/uk-news/2020/aug/26/gatwick-airport-to-cut-600-jobs-as-covid-continues-to-hammer-industry](https://www.theguardian.com/uk-news/2020/aug/26/gatwick-airport-to-cut-600-jobs-as-covid-continues-to-hammer-industry)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 16:53:26+00:00
+
+<p>Airport begins consultation that could see it lose around a quarter of its workforce</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p><a href="https://www.theguardian.com/uk-news/gatwick-airport">Gatwick airport</a> is planning to cut 600 jobs, around a quarter of its workforce, as it struggles to cut costs amid the pandemic’s continuing <a href="https://www.theguardian.com/world/2020/aug/15/jet2-to-axe-more-than-100-pilots-even-as-union-fights-to-save-jobs">impact on international travel</a>.</p><p>The airport is beginning a consultation process with affected employees from all areas of the business, as part of a wider restructuring plan.</p> <a href="https://www.theguardian.com/uk-news/2020/aug/26/gatwick-airport-to-cut-600-jobs-as-covid-continues-to-hammer-industry">Continue reading...</a>
+
+## Trevor Noah on the RNC: Republicans are 'seeing the glass of bleach half full'
+ - [https://www.theguardian.com/culture/2020/aug/26/trevor-noah-stephen-colbert-republican-national-convention](https://www.theguardian.com/culture/2020/aug/26/trevor-noah-stephen-colbert-republican-national-convention)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 16:52:17+00:00
+
+<p>Late-night hosts unpack the first two nights of the Republican national convention, which recast Trump’s handling of coronavirus as a victory</p><p>The coronavirus pandemic continues to wreak havoc on the school reopenings, work, and life in the US, but you wouldn’t know it from the first night of the <a href="https://www.theguardian.com/us-news/2020/aug/25/key-takeaways-rnc-night-two-melania-tiffany-trump-covid-19">Republican n</a><a href="https://www.theguardian.com/us-news/2020/aug/25/key-takeaways-rnc-night-two-melania-tiffany-trump-covid-19">ational c</a><a href="https://www.theguardian.com/us-news/2020/aug/25/key-takeaways-rnc-night-two-melania-tiffany-trump-covid-19">onvention</a>, which cast Donald Trump’s response to the crisis that has taken the lives of 178,000 Americans as a victory. “Essentially, they’re trying to convince everyone that this massive failure is actually a massive achievement,” said Trevor Noah on Tuesday’s Daily Show.</p> <a href="https://www.theguardian.com/culture/2020/aug/26/trevor-noah-stephen-colbert-republican-national-convention">Continue reading...</a>
+
+## Retail veterans could cash in on £4.5bn Hut Group flotation
+ - [https://www.theguardian.com/business/2020/aug/26/retail-veterans-cash-in-on-hut-group-flotation](https://www.theguardian.com/business/2020/aug/26/retail-veterans-cash-in-on-hut-group-flotation)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 16:50:25+00:00
+
+<p>Former bosses of Tesco, Debenhams and Matalan among backers of Manchester-based online firm</p><p>Retail veterans including former bosses of Tesco, Debenhams and Matalan could all cash in under a potential £4.5bn flotation of online business The Hut Group which could be announced this week.</p><p>The Manchester-based firm owns online retail sites Lookfantastic, Glossybox, Zavvi and Coggles, beauty brands including ESPA and Illamasqua and sports nutrition brand Myprotein.</p> <a href="https://www.theguardian.com/business/2020/aug/26/retail-veterans-cash-in-on-hut-group-flotation">Continue reading...</a>
+
+## 'We have to protect the whole of society': teachers on masks in schools
+ - [https://www.theguardian.com/world/2020/aug/26/protect-whole-society-teachers-masks-schools-u-turn](https://www.theguardian.com/world/2020/aug/26/protect-whole-society-teachers-masks-schools-u-turn)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 16:48:24+00:00
+
+<p>The government’s U-turn in England has mostly been welcomed but worries remain</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>Following the government’s latest U-turn, teachers and pupils in England will <a href="https://www.theguardian.com/politics/2020/aug/26/education-secretary-defends-school-face-masks-u-turn-tory-backlash-gavin-williamson">no longer be advised</a> against wearing face coverings in secondary schools. In areas with high levels of coronavirus or localised lockdowns, children will be recommended to wear face coverings in areas of the school where social distancing is not possible.</p><p>The Guardian spoke to teachers about their thoughts on the shift in policy.</p> <a href="https://www.theguardian.com/world/2020/aug/26/protect-whole-society-teachers-masks-schools-u-turn">Continue reading...</a>
+
+## Racism at BBC led to me having a breakdown | Letter
+ - [https://www.theguardian.com/world/2020/aug/26/racism-at-bbc-led-to-me-having-a-breakdown](https://www.theguardian.com/world/2020/aug/26/racism-at-bbc-led-to-me-having-a-breakdown)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 16:47:08+00:00
+
+<p><strong>Lakviar Singh</strong>,<strong> </strong>responding to David Olusoga’s MacTaggart lecture, says systemic racism at the broadcaster ruined his life</p><p>David Olusoga is right about not only a lost generation, but lost generations of black, Asian and minority ethnic people (<a href="https://www.theguardian.com/media/2020/aug/24/david-olusoga-racism-in-tv-has-led-to-lost-generation-of-black-talent" title="">David Olusoga: racism in British TV has led to ‘lost generation’ of black talent</a>, 24 August). The only surprising thing about his MacTaggart lecture is the headlines it has attracted.</p><p>I joined the BBC in 1986 on its graduate training scheme, alongside a certain Nick Robinson. I remember the day I told my family that I was going to work for the BBC – it was like all our Christmases had come at once. I had relatives from India, people I’d never set eyes on, sending congratulations, marriage proposals, and my parents handing out traditional sweets to family friends and strangers. To have a son working at the BBC – wow.</p> <a href="https://www.theguardian.com/world/2020/aug/26/racism-at-bbc-led-to-me-having-a-breakdown">Continue reading...</a>
+
+## Racing crowds to return next month with pilot event at St Leger
+ - [https://www.theguardian.com/sport/2020/aug/26/racing-crowds-to-return-next-month-with-pilot-event-at-st-leger](https://www.theguardian.com/sport/2020/aug/26/racing-crowds-to-return-next-month-with-pilot-event-at-st-leger)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 16:46:38+00:00
+
+<ul><li>More than 20,000 spectators to be allowed over four days</li><li>Warwick and Newcastle can also host limited numbers</li></ul><p>Spectators are to be allowed back on to a British racecourse in a fortnight’s time, ending a six-month barren spell that began in the week after the Cheltenham Festival. As expected, the St Leger meeting at Doncaster is to lead the way, with more than 20,000 people allowed to attend over its four days from 9 September as a pilot event for the return of crowds. Warwick and Newmarket have been cleared to allow some limited attendance later in the month.</p><p> <span>Related: </span><a href="https://www.theguardian.com/sport/blog/2020/aug/26/talking-horses-why-racing-abroad-could-be-key-to-british-recovery-plan">Talking Horses: why racing abroad could be key to British recovery plan</a> </p> <a href="https://www.theguardian.com/sport/2020/aug/26/racing-crowds-to-return-next-month-with-pilot-event-at-st-leger">Continue reading...</a>
+
+## ‘People are scared’: Texans brace for Hurricane Laura as storm approaches
+ - [https://www.theguardian.com/us-news/2020/aug/26/hurricane-laura-texas](https://www.theguardian.com/us-news/2020/aug/26/hurricane-laura-texas)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 16:32:15+00:00
+
+<p>Residents stock up on supplies as more than 385,000 people told to flee cities of Beaumont, Galveston and Port Arthur</p><p>Long lines wrapped around checkout counters at a Walmart in Cypress, Texas, as suddenly water and toilet paper become as scarce as when the coronavirus pandemic began.</p><p> <span>Related: </span><a href="https://www.theguardian.com/us-news/2020/aug/25/hurricane-laura-texas-louisiana-healthcare-workers-coronavirus">Hurricane Laura: storm to bring 'unsurvivable surge' of destruction to US gulf coast</a> </p> <a href="https://www.theguardian.com/us-news/2020/aug/26/hurricane-laura-texas">Continue reading...</a>
+
+## Chelsea confirm signing of Ben Chilwell from Leicester for £50m
+ - [https://www.theguardian.com/football/2020/aug/26/chelsea-confirm-signing-of-ben-chilwell-from-leicester-for-50m](https://www.theguardian.com/football/2020/aug/26/chelsea-confirm-signing-of-ben-chilwell-from-leicester-for-50m)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 16:28:15+00:00
+
+<ul><li>England left-back signs five-year deal at Stamford Bridge</li><li>Chelsea also expected to confirm Thiago Silva signing<br /></li></ul><p>Chelsea have confirmed the signing of Ben Chilwell from Leicester for £50m, with the England defender moving to Stamford Bridge on a five-year contract as Frank Lampard continues to stengthen his squad for the new season.</p><p> <span>Related: </span><a href="https://www.theguardian.com/football/2020/aug/24/chelsea-close-to-90m-kai-havertz-deal-and-expect-to-land-thiago-silva">Chelsea close to £90m Kai Havertz deal and expect to land Thiago Silva</a> </p> <a href="https://www.theguardian.com/football/2020/aug/26/chelsea-confirm-signing-of-ben-chilwell-from-leicester-for-50m">Continue reading...</a>
+
+## BBC comedy boss says diversity discussed in every conversation
+ - [https://www.theguardian.com/media/2020/aug/26/bbc-comedy-boss-says-diversity-discussed-in-every-conversation](https://www.theguardian.com/media/2020/aug/26/bbc-comedy-boss-says-diversity-discussed-in-every-conversation)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 16:28:12+00:00
+
+<p>Shane Allen says push for more diversity will soon produce noticeable changes in output</p><p>BBC bosses are discussing diversity in “every conversation” about new programmes, according to the corporation’s head of comedy, who said it would soon produce noticeable changes in output.</p><p>Shane Allen said the BBC’s director of content, Charlotte Moore, was constantly asking staff to make sure they include diverse voices. </p> <a href="https://www.theguardian.com/media/2020/aug/26/bbc-comedy-boss-says-diversity-discussed-in-every-conversation">Continue reading...</a>
+
+## Riley Gale: the death of thrash metal's great idealist is a terrible loss | Harry Sword
+ - [https://www.theguardian.com/music/2020/aug/26/riley-gale-power-trip-death-of-thrash-metals-great-idealist-is-a-terrible-loss](https://www.theguardian.com/music/2020/aug/26/riley-gale-power-trip-death-of-thrash-metals-great-idealist-is-a-terrible-loss)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 16:27:10+00:00
+
+<p>The frontman of Power Trip, who has died aged 34, mixed philosophy, economics and genuine empathy into a searingly potent vision for a better world</p><p>Fusing the technical prowess of thrash metal with the warp speed blast of hardcore – and a political stance that emphasised compassion and tolerance – Power Trip’s Nightmare Logic (2017) was one of the defining underground metal albums of the past decade. Central to their sound was the full throated vocals and open hearted spirit of Riley Gale, <a href="https://www.theguardian.com/music/2020/aug/26/riley-gale-frontman-with-thrash-metal-band-power-trip-dies">who died this week aged 34</a>.</p><p>His searingly intense delivery – alternating between sandpaper roar and mournful bellow, usually swathed in classic 1980s-style reverb – was tempered by a masterful command of rhythm and idiosyncratic phrasing. Just check the way he bounces off the lead riff on the anthemic <a href="https://www.youtube.com/watch?v=FOWf8uqGf8A">Executioner’s Tax</a> (Swing of the Axe) only to mimic the swing <em>of the axe itself </em>during the second chorus – it’s glorious stuff. A ball of energy onstage, offstage he was, by all accounts, approachable and affable, with a deep interest in the places he found himself and the people he met.</p> <a href="https://www.theguardian.com/music/2020/aug/26/riley-gale-power-trip-death-of-thrash-metals-great-idealist-is-a-terrible-loss">Continue reading...</a>
+
+## Hurricane Laura: storm to bring 'unsurvivable surge' of destruction to US gulf coast
+ - [https://www.theguardian.com/us-news/2020/aug/25/hurricane-laura-texas-louisiana-healthcare-workers-coronavirus](https://www.theguardian.com/us-news/2020/aug/25/hurricane-laura-texas-louisiana-healthcare-workers-coronavirus)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 16:21:10+00:00
+
+<p>Half a million people have been ordered to evacuate as storm is predicted to reach Texas and Louisiana as a category 4 hurricane Wednesday evening</p><p>Hurricane Laura is expected to bring an “unsurvivable storm surge with large and destructive waves” to parts of the US gulf coast late Wednesday or early Thursday, officials warned, as half a million people were ordered to evacuate.</p><p>The storm was roaring across the ocean on Wednesday afternoon and is predicted to hit Texas and Louisiana on Wednesday evening, the National Hurricane Center (NHC) said. Laura was on the verge of becoming a category 4 storm, NHC said, with winds that could exceed 110mph.</p> <a href="https://www.theguardian.com/us-news/2020/aug/25/hurricane-laura-texas-louisiana-healthcare-workers-coronavirus">Continue reading...</a>
+
+## No stampede for seats as blockbuster returns to Bristol's cinemas
+ - [https://www.theguardian.com/film/2020/aug/26/no-stampede-for-seats-as-blockbuster-returns-to-bristols-cinemas](https://www.theguardian.com/film/2020/aug/26/no-stampede-for-seats-as-blockbuster-returns-to-bristols-cinemas)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 16:17:54+00:00
+
+<p>While cinemas said film fans were ‘flocking back’, the mid-morning screening of Christopher Nolan’s Tenet was by no means full</p><p>Jack Twell, a 24-year-old film student, was first to arrive for the mid-morning screening of Tenet at the Showcase Cinema de Lux in Bristol city centre. His was no dramatic entrance for Christopher Nolan’s <a href="https://www.theguardian.com/film/2020/aug/25/tenet-review-christopher-nolan-head-scratchingly-ambitious">high-concept action romp</a>: he arrived on a folding bike and patiently waited for the doors to open. But, still, it felt significant.</p><p>“It is an important moment,” said Twell. “I’m super-excited. I don’t know if this is the film that will save cinema but it is wonderful to be here waiting to see a new Christopher Nolan film.”</p> <a href="https://www.theguardian.com/film/2020/aug/26/no-stampede-for-seats-as-blockbuster-returns-to-bristols-cinemas">Continue reading...</a>
+
+## Gospel-singing Brazilian politician may be expelled from congress to face murder charges
+ - [https://www.theguardian.com/world/2020/aug/26/brazil-flordelis-dos-santos-de-souza-calls-congress-husband-murder-charges](https://www.theguardian.com/world/2020/aug/26/brazil-flordelis-dos-santos-de-souza-calls-congress-husband-murder-charges)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 16:13:17+00:00
+
+<p>Lawmakers seek to strip Flordelis dos Santos de Souza, accused of orchestrating ‘barbaric’ murder of her husband, of parliamentary immunity</p><p>A gospel-singing Brazilian lawmaker accused of masterminding the assassination of the husband who was once her adopted son is facing calls for her expulsion from congress so she can face murder charges.</p><p>Flordelis dos Santos de Souza – a favela-born celebrity congresswoman whose rise to stardom was celebrated in <a href="https://www.youtube.com/watch?v=txtXtQ7Pn-s">a film featuring some of Brazil’s top actors</a> – is fighting to avoid jail after police claimed she had orchestrated her partner’s 2019 murder.</p> <a href="https://www.theguardian.com/world/2020/aug/26/brazil-flordelis-dos-santos-de-souza-calls-congress-husband-murder-charges">Continue reading...</a>
+
+## Harry Maguire to have retrial after appeal against conviction is accepted
+ - [https://www.theguardian.com/football/2020/aug/26/harry-maguire-lack-of-apology-shocking-says-police-officers-lawyer](https://www.theguardian.com/football/2020/aug/26/harry-maguire-lack-of-apology-shocking-says-police-officers-lawyer)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 16:11:46+00:00
+
+<ul><li>Prosecution lawyer in Greece calls on Maguire to say sorry</li><li>England player appeals against ‘wrong, misleading’ accusations</li></ul><p>Harry Maguire has begun the battle to clear his name and been told by the prosecution lawyer handling the case that an apology could help his appeal against his conviction following a brawl in Mykonos.</p><p>Ioannis Paradissis said by saying sorry Manchester United’s captain could pave the way for “a different sentiment” to prevail when he attempts to overturn his suspended 21-month sentence before a higher court. Paradissis believes accusations of aggravated assault and verbal assault could then be dropped. </p> <a href="https://www.theguardian.com/football/2020/aug/26/harry-maguire-lack-of-apology-shocking-says-police-officers-lawyer">Continue reading...</a>
+
+## Shock an aw: US teenager wrote huge slice of Scots Wikipedia
+ - [https://www.theguardian.com/uk-news/2020/aug/26/shock-an-aw-us-teenager-wrote-huge-slice-of-scots-wikipedia](https://www.theguardian.com/uk-news/2020/aug/26/shock-an-aw-us-teenager-wrote-huge-slice-of-scots-wikipedia)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 16:05:01+00:00
+
+<p>Nineteen-year-old says he is ‘devastated’ after being accused of cultural vandalism</p><p>The Scots Wikipedia entry on the Canada goose – or “Canadae guiss” – was at first honest about its provenance. A tag warned: “The ‘Scots’ that wis uised in this airticle wis written bi a body that’s mither tongue isna Scots. Please impruive this airticle gin ye can.”</p><p>But, as the author grew in confidence, so he removed the caveat, and continued on his Scots-writing spree.</p> <a href="https://www.theguardian.com/uk-news/2020/aug/26/shock-an-aw-us-teenager-wrote-huge-slice-of-scots-wikipedia">Continue reading...</a>
+
+## Marieke Lucas Rijneveld wins International Booker for The Discomfort of Evening
+ - [https://www.theguardian.com/books/2020/aug/26/marieke-lucas-rijneveld-wins-international-booker-for-the-discomfort-of-evening](https://www.theguardian.com/books/2020/aug/26/marieke-lucas-rijneveld-wins-international-booker-for-the-discomfort-of-evening)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 15:59:35+00:00
+
+<p>The 29-year-old Dutch author becomes youngest winner of £50,000 prize, for ‘virtuosic’ debut with translator Michele Hutchison</p><ul><li><a href="https://www.theguardian.com/books/2020/mar/07/shock-of-new-novelists-stories-europe">Interview: ‘It’s difficult for my parents to understand that I’m not the girl that they raised’</a><br /></li></ul><p>The 29-year-old Dutch author Marieke Lucas Rijneveld has become the youngest author ever to win the International Booker prize, taking the award for their “visceral and virtuosic” debut novel, <a href="https://www.theguardian.com/books/2020/mar/22/the-discomfort-of-evening-by-marieke-lucas-rijneveld-review">The Discomfort of Evening</a>.</p><p><a href="https://www.theguardian.com/books/2020/mar/20/the-discomfort-of-evening-by-marieke-lucas-review">Rijneveld, whose preferred pronouns</a> are they/them, beat titles including <a href="https://www.theguardian.com/books/2019/aug/23/the-memory-police-yoko-ogawa-review">Yōko Og</a><a href="https://www.theguardian.com/books/2019/aug/23/the-memory-police-yoko-ogawa-review">awa’s The Memory Police</a> and <a href="https://www.theguardian.com/books/2020/jun/05/the-enlightenment-of-the-greengage-tree-review-magic-realism-in-iran">Shokoofeh Azar’s The Enlightenment of the Greengage Tree</a> to win the £50,000 award for the best fiction translated into English, which will be split equally with their translator, Michele Hutchison. At 29, Rijneveld is the youngest winner of the International Booker, and narrowly older than the youngest Booker winner, Eleanor Catton, who was 28 when she won the 2013 prize for The Luminaries.</p> <a href="https://www.theguardian.com/books/2020/aug/26/marieke-lucas-rijneveld-wins-international-booker-for-the-discomfort-of-evening">Continue reading...</a>
+
+## John Foster obituary
+ - [https://www.theguardian.com/environment/2020/aug/26/john-foster-obituary](https://www.theguardian.com/environment/2020/aug/26/john-foster-obituary)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 15:59:10+00:00
+
+<p>Director of the UK’s first national park who become head of the Countryside Commission for Scotland on its creation in 1968</p><p>As the first director of the UK’s first national park, in the Peak District, and then as head of the Countryside Commission for Scotland, John Foster, who has died aged 99, was a pioneer of the protection and public enjoyment of landscapes in the UK. </p><p>At the Peak District National Park, which was <a href="https://www.peakdistrict.gov.uk/visiting/planning-your-visit/crow/crow-timeline">established in 1951</a> and covers 555 square miles, mainly in Derbyshire, Foster was necessarily a trailblazer – both metaphorically and literally.</p> <a href="https://www.theguardian.com/environment/2020/aug/26/john-foster-obituary">Continue reading...</a>
+
+## It's a dog's breakfast for Gavin Williamson and his owner | John Crace
+ - [https://www.theguardian.com/politics/2020/aug/26/its-a-dogs-breakfast-for-gavin-williamson-and-his-owner](https://www.theguardian.com/politics/2020/aug/26/its-a-dogs-breakfast-for-gavin-williamson-and-his-owner)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 15:57:02+00:00
+
+<p>The education secretary was sent to face the music of the masks U-turn, and the PM fared little better</p><p>“Do you take responsibility for what happened? Because last week my colleague on this programme, Louise Minchin, asked you several times if you had considered your resignation and you didn’t answer that then,” said BBC Breakfast’s Dan Walker. “So do you take responsibility for what happened over exams and what happened in the last 24 hours over the wearing of face coverings in schools?”</p><p>“Um ... unprecedented … er ... pandemic ...” replied Gavin Williamson as he wittered on for 30 seconds about nothing very much.</p> <a href="https://www.theguardian.com/politics/2020/aug/26/its-a-dogs-breakfast-for-gavin-williamson-and-his-owner">Continue reading...</a>
+
+## West Ham v Arsenal WSL fixture among new spectator test events
+ - [https://www.theguardian.com/sport/2020/aug/26/wsl-fixture-and-brighton-friendly-among-new-spectator-test-events-coronavirus-outbreak](https://www.theguardian.com/sport/2020/aug/26/wsl-fixture-and-brighton-friendly-among-new-spectator-test-events-coronavirus-outbreak)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 15:53:41+00:00
+
+<ul><li>Saturday’s Brighton v Chelsea friendly to have 2,500 fans<br /></li><li>Test events also in rugby union, cricket and basketball <br /></li></ul><p>A Women’s Super League fixture between West Ham and Arsenal plus a Brighton men’s friendly this weekend are among a list of sporting events which will act as new test events for spectators.</p><p>The Department for Digital, Culture, Media and Sport (DCMS) confirmed a raft of new events where spectators would be admitted on a socially-distanced basis, following the ban on mass gatherings introduced in March due to the coronavirus outbreak. The events, which cover football, rugby union, horse racing, cricket, basketball and speedway, will take place over the course of the remainder of August and September.</p> <a href="https://www.theguardian.com/sport/2020/aug/26/wsl-fixture-and-brighton-friendly-among-new-spectator-test-events-coronavirus-outbreak">Continue reading...</a>
+
+## Tiger Woods looking forward to 'fun', spectator-free Masters defence
+ - [https://www.theguardian.com/sport/2020/aug/26/tiger-woods-looking-forward-to-fun-spectator-free-masters-defence](https://www.theguardian.com/sport/2020/aug/26/tiger-woods-looking-forward-to-fun-spectator-free-masters-defence)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 15:53:09+00:00
+
+<ul><li>‘It was eye-opening how much room there is,’ Woods said</li><li>Women’s Open winner Popov gave herself two-year deadline</li></ul><p>Tiger Woods has acknowledged his spectator-free Masters defence will constitute a “very different” experience, with the 2019 champion endorsing Augusta National’s decision to go ahead with the event minus the galleries.</p><p>The Masters, originally scheduled for April, will take place from 12 November. In keeping with the PGA Tour’s post-lockdown scene, crowds will not be permitted.</p> <a href="https://www.theguardian.com/sport/2020/aug/26/tiger-woods-looking-forward-to-fun-spectator-free-masters-defence">Continue reading...</a>
+
+## Series of animal mutilations mystify French police
+ - [https://www.theguardian.com/world/2020/aug/26/series-of-animal-mutilations-mystify-french-police](https://www.theguardian.com/world/2020/aug/26/series-of-animal-mutilations-mystify-french-police)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 15:53:01+00:00
+
+<p>Police looking into whether attacks may be linked to satanic rituals or an online challenge</p><p>French police are hunting the perpetrators of a series of savage animal mutilations across the country in recent weeks.</p><p>Investigators have advised the owners of horses and donkeys to be particularly vigilant after more than a dozen attacks left animals dead or severely injured.</p> <a href="https://www.theguardian.com/world/2020/aug/26/series-of-animal-mutilations-mystify-french-police">Continue reading...</a>
+
+## Mercy Baguma's tragic death should mark a turning point for the Home Office | Claudia Webbe
+ - [https://www.theguardian.com/commentisfree/2020/aug/26/mercy-beguma-death-home-office-asylum-seeker](https://www.theguardian.com/commentisfree/2020/aug/26/mercy-beguma-death-home-office-asylum-seeker)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 15:37:07+00:00
+
+<p>The fate of an asylum seeker shows the inhumanity of our migration system</p><p>One would have thought that in the <a href="https://fullfact.org/economy/uk-sixth-or-ninth-richest-country/">sixth riches</a>t country in the world, malnourishment and hunger would be a thing of the past. Yet this week <a href="https://www.theguardian.com/uk-news/2020/aug/25/mercy-baguma-woman-in-extreme-poverty-found-dead-next-to-crying-baby-in-glasgow">Mercy Baguma</a>, an asylum seeker from Uganda who was living in “extreme poverty”, was found dead next to her malnourished baby in a Glasgow flat. Baguma’s body was only found because of the cries of her child.</p><p> <span>Related: </span><a href="https://www.theguardian.com/uk-news/2020/aug/25/mercy-baguma-woman-in-extreme-poverty-found-dead-next-to-crying-baby-in-glasgow">Woman in 'extreme poverty' found dead next to crying baby in Glasgow</a> </p> <a href="https://www.theguardian.com/commentisfree/2020/aug/26/mercy-beguma-death-home-office-asylum-seeker">Continue reading...</a>
+
+## Does Lionel Messi really want away from Barcelona? – Football Weekly
+ - [https://www.theguardian.com/football/audio/2020/aug/26/does-lionel-messi-really-want-away-from-barcelona-football-weekly](https://www.theguardian.com/football/audio/2020/aug/26/does-lionel-messi-really-want-away-from-barcelona-football-weekly)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 15:32:50+00:00
+
+<p>Melissa Rudd<strong> </strong>is joined by <a href="https://twitter.com/bglendenning">Barry Glendenning</a><strong>, </strong><a href="https://twitter.com/PhilippeAuclair">Philippe Auclair</a> and <a href="https://twitter.com/AnnemarieBatson">Anne-Marie Batson</a> to look into Lionel Messi’s transfer request, and Harry Maguire’s conviction in Greece. The pod also talk fixture chaos, Women’s Champions League, and explore Barry’s expensive nights out in Las Vegas</p><p><strong>Rate, review, share on </strong><a href="https://itunes.apple.com/podcast/football-weekly-the-guardian/id188674007?mt=2"><strong>Apple Podcasts</strong></a><strong>, </strong><a href="https://soundcloud.com/guardianfootballweekly"><strong>Soundcloud</strong></a><strong>, </strong><a href="https://audioboom.com/channel/football-weekly"><strong>Audioboom</strong></a><strong>, </strong><a href="https://www.mixcloud.com/guardianfootballweekly/"><strong>Mixcloud</strong></a><strong>, </strong><a href="https://www.acast.com/footballweekly"><strong>Acast</strong></a><strong> and </strong><a href="http://www.stitcher.com/podcast/guardianuk/football-weekly"><strong>Stitcher</strong></a><strong>, and join the conversation on </strong><a href="https://www.facebook.com/GuardianPodcasts/"><strong>Facebook</strong></a><strong>, </strong><a href="https://twitter.com/guardianaudio"><strong>Twitter</strong></a><strong> and </strong><a href="mailto:footballweekly@theguardian.com"><strong>email</strong></a><strong>.</strong></p><p><strong><a href="https://twitter.com/melissajrudd">Melissa Rudd</a></strong><strong> </strong>is joined by <strong><a href="https://twitter.com/bglendenning">Barry Glendenning</a>, <a href="https://twitter.com/PhilippeAuclair">Philippe Auclair</a> </strong>and<strong> <a href="https://twitter.com/AnnemarieBatson">Anne-Marie Batson</a></strong> to look into Lionel Messi’s transfer request, and <a href="https://www.theguardian.com/football/2020/aug/26/harry-maguire-lack-of-apology-shocking-says-police-officers-lawyer">Harry Maguire’s conviction in Greece</a> (admittedly before the defender was granted a full retrial). The pod also talk fixture chaos, Women’s Champions League, and explore Barry’s expensive nights out in Las Vegas. </p> <a href="https://www.theguardian.com/football/audio/2020/aug/26/does-lionel-messi-really-want-away-from-barcelona-football-weekly">Continue reading...</a>
+
+## Citriodiol-based spray can help protect against Covid-19, says MoD lab
+ - [https://www.theguardian.com/world/2020/aug/26/citriodiol-based-spray-can-help-protect-against-covid-19-says-mod-lab](https://www.theguardian.com/world/2020/aug/26/citriodiol-based-spray-can-help-protect-against-covid-19-says-mod-lab)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 15:17:36+00:00
+
+<p>DSTL reports ‘some loss of virus’ using bug repellent, but unclear how much difference it makes</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>A naturally derived mosquito repellent that was given to British soldiers in April is effective at providing protection against Covid-19, defence scientists have said.</p><p>But it is unclear whether the spray would make any practical difference beyond frequent hand-washing and the use of alcohol-based hand sanitisers and personal protective equipment in insulating against the virus.</p> <a href="https://www.theguardian.com/world/2020/aug/26/citriodiol-based-spray-can-help-protect-against-covid-19-says-mod-lab">Continue reading...</a>
+
+## Baby names: Dua doubles in popularity in England and Wales
+ - [https://www.theguardian.com/lifeandstyle/2020/aug/26/baby-names-dua-doubles-in-popularity-in-england-and-wales](https://www.theguardian.com/lifeandstyle/2020/aug/26/baby-names-dua-doubles-in-popularity-in-england-and-wales)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 15:07:29+00:00
+
+<p>ONS figures show rise in popularity of name following success of singer Dua Lipa </p><p>The name Dua has doubled in popularity in England and Wales since the singer Dua Lipa had her first number one single in 2017, official figures have revealed.</p><p>Olivia and Amelia remained top of the charts for girls in 2019, while Oliver and George also remained the most popular choices for boys.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/aug/26/baby-names-dua-doubles-in-popularity-in-england-and-wales">Continue reading...</a>
+
+## Antarctica: 60% of ice shelves at risk of fracture, research suggests
+ - [https://www.theguardian.com/world/2020/aug/26/antarctica-ice-shelves-risk-fracture-collapse](https://www.theguardian.com/world/2020/aug/26/antarctica-ice-shelves-risk-fracture-collapse)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 15:00:26+00:00
+
+<p>Collapse of shelves would accelerate loss of Antarctic ice sheet and increase sea-level rise</p><p>Approximately 60% of <a href="https://www.theguardian.com/world/antarctica">Antarctica’s</a> ice shelves could be vulnerable to fracture, accelerating the loss of the Antarctic ice sheet and increasing sea-level rise, according to a paper.</p><p>Antarctica’s ice shelves, floating extensions of the ice sheet, help slow the flow of ice into the ocean. But if these shelves fracture and then collapse, the flow of melting glaciers into the oceans accelerates.</p> <a href="https://www.theguardian.com/world/2020/aug/26/antarctica-ice-shelves-risk-fracture-collapse">Continue reading...</a>
+
+## New reports on the 2019 election show Labour's conflicts aren't over | Sienna Rodgers
+ - [https://www.theguardian.com/commentisfree/2020/aug/26/2019-election-labour-brexit-left-keir-starmer](https://www.theguardian.com/commentisfree/2020/aug/26/2019-election-labour-brexit-left-keir-starmer)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 14:55:22+00:00
+
+<p>Brexit was just one manifestation of the deep divides on the left that Keir Starmer must now tackle</p><p>Since the devastating 2019 general election result, few Labour members would disagree that their party’s campaign was chaotic. Confused messaging, panicky policy announcements and a forgettable slogan (“It’s time for real change”) all pointed towards that conclusion. But the messy details of the campaign are now <a href="https://www.thetimes.co.uk/article/aides-feared-jeremy-corbyn-was-sabotaging-his-own-campaign-in-labours-chaotic-ride-to-disaster-9n829p8hl">emerging</a> in a series of Times extracts from Left Out, a new book by two reporters from the paper, Gabriel Pogrund and Patrick Maguire.<strong> </strong></p><p>By the time of the December election, mistrust between party colleagues had already undermined Labour’s chances. Just two weeks before polling day, a new strategist was brought in to work up ideas for winning back leave voters, an alternative slogan was introduced (“We’re on your side”), and a defensive approach to targeting seats began.</p> <a href="https://www.theguardian.com/commentisfree/2020/aug/26/2019-election-labour-brexit-left-keir-starmer">Continue reading...</a>
+
+## Two dead in Kenosha after at least one gunman opens fire on BLM protesters
+ - [https://www.theguardian.com/us-news/2020/aug/26/jacob-blake-shooting-gun-battle-in-kenosha-on-third-night-of-unrest](https://www.theguardian.com/us-news/2020/aug/26/jacob-blake-shooting-gun-battle-in-kenosha-on-third-night-of-unrest)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 14:49:08+00:00
+
+<p>Three shot as Wisconsin city rocked by further violence on streets following shooting of Jacob Blake</p><p>Two people were shot dead and another injured when at least one gunman opened fire on protesters in Kenosha, Wisconsin, amid demonstrations against the police shooting of Jacob Blake three days ago.</p><p>David Beth, the county sheriff, said one person was shot in the head and another in the chest shortly before midnight on Tuesday. Another person was shot in the arm. The victims have not been identified.</p> <a href="https://www.theguardian.com/us-news/2020/aug/26/jacob-blake-shooting-gun-battle-in-kenosha-on-third-night-of-unrest">Continue reading...</a>
+
+## Girls Aloud singer Sarah Harding receiving chemotherapy for cancer
+ - [https://www.theguardian.com/music/2020/aug/26/girls-aloud-singer-sarah-harding-receiving-chemotherapy-for-cancer](https://www.theguardian.com/music/2020/aug/26/girls-aloud-singer-sarah-harding-receiving-chemotherapy-for-cancer)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 14:47:08+00:00
+
+<p>38-year-old singer, who had 21 Top 10 hits with Girls Aloud, says breast cancer ‘has advanced to other parts of my body’</p><p>Sarah Harding, former member of pop group Girls Aloud, has announced that she has been diagnosed with breast cancer.</p><p>In a series of tweets and an Instagram post, she wrote:</p> <a href="https://www.theguardian.com/music/2020/aug/26/girls-aloud-singer-sarah-harding-receiving-chemotherapy-for-cancer">Continue reading...</a>
+
+## Davos 2021 delayed until summer because of Covid-19
+ - [https://www.theguardian.com/business/2020/aug/26/davos-2021-delayed-until-summer-because-of-covid-19-world-economic-forum](https://www.theguardian.com/business/2020/aug/26/davos-2021-delayed-until-summer-because-of-covid-19-world-economic-forum)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 14:24:12+00:00
+
+<p>World Economic Forum’s gathering of global elite had been scheduled for January</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>The annual <a href="https://www.theguardian.com/business/davos">Davos</a> gathering of world leaders, billionaires and business executives on a mountain in Switzerland has been delayed by Covid-19 until the summer of next year.</p><p>Announcing the move because of health and safety concerns, the World Economic Forum – which has been putting on the meeting of the global elite at a Swiss ski resort for half a century – said it would hold several virtual events in January instead.</p> <a href="https://www.theguardian.com/business/2020/aug/26/davos-2021-delayed-until-summer-because-of-covid-19-world-economic-forum">Continue reading...</a>
+
+## Top DfE civil servant Jonathan Slater to step down after exams row
+ - [https://www.theguardian.com/politics/2020/aug/26/top-dfe-civil-servant-jonathan-slater-to-step-down-after-exams-row](https://www.theguardian.com/politics/2020/aug/26/top-dfe-civil-servant-jonathan-slater-to-step-down-after-exams-row)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 14:16:35+00:00
+
+<p>Slater’s departure follows that of Ofqual chief Sally Collier, whose resignation was announced on Tuesday</p><p>Jonathan Slater, the most senior civil servant in the Department for Education (DfE), is to step down from his post in the wake of the exams fiasco.</p><p>Slater will step down on 1 September after the “prime minister concluded that there is a need for fresh official leadership” in the department, the DfE said.</p> <a href="https://www.theguardian.com/politics/2020/aug/26/top-dfe-civil-servant-jonathan-slater-to-step-down-after-exams-row">Continue reading...</a>
+
+## Climate activism:  why university is a great place to get involved
+ - [https://www.theguardian.com/education/2020/aug/26/climate-activism-why-university-is-a-great-place-to-get-involved](https://www.theguardian.com/education/2020/aug/26/climate-activism-why-university-is-a-great-place-to-get-involved)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 14:00:25+00:00
+
+<p>If you want to take action on climate issues, you’ll find plenty of like-minded people while studying for a degree</p><p>There is nowhere better to get started with climate activism than at university, believes Kai Saunders, a Warwick University student and member of the UK Youth Climate Coalition (UKYCC). “The university space is incredible in terms of a lot of people collectivising around these issues they care about,” says the 20-year-old.</p><p>For that reason when you arrive at uni the chances are that you’ll quickly bump into like-minded people who have already set up active societies and groups you can join. Often these are affiliated with national campaigning organisations such as UKYCC, Extinction Rebellion (XR) and People &amp; Planet. They might also be independent, an option that gives them more freedom on what to focus on with their campaigns. Whichever form they take, they’re always looking for new and enthusiastic members.</p> <a href="https://www.theguardian.com/education/2020/aug/26/climate-activism-why-university-is-a-great-place-to-get-involved">Continue reading...</a>
+
+## Belfast and beyond: six of the best Northern Ireland day trips
+ - [https://www.theguardian.com/come-on-over-to-northern-ireland/2020/aug/26/belfast-and-beyond-six-of-the-best-northern-ireland-day-trips](https://www.theguardian.com/come-on-over-to-northern-ireland/2020/aug/26/belfast-and-beyond-six-of-the-best-northern-ireland-day-trips)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 13:51:53+00:00
+
+<p>Belfast makes an ideal base from which to explore many of Northern Ireland’s lesser-known treasures</p><p><strong>Murlough Bay<br /></strong>While many Game of Thrones locations have become besieged by fans in recent years, Murlough Bay on the North Antrim coast is a sight bypassed by even the most die-hard. Tucked off a hairy byway along the Torr Head scenic drive, the stunning bay, which wows with views stretching to Scotland, will be recognised by fans as Slavers’ Bay from season five of the series. For further coastal adventures, grab a sea safari with the water activity firm Aquaholics and journey around Antrim’s headlands, starting from Ballycastle. Skirt the coast from there to the Giant’s Causeway, taking in sights from Ballintoy Harbour (another Game of Thrones hotspot) to the Carrick-a-Rede rope bridge. The attraction is out of bounds on terra firma, so the boat tour offers the best chance to get up close. Weather permitting, you’ll even be invited to take a dip in its shadows. You may be joined by company en route – season depending, nature buffs should keep an eye out for dolphins, puffins and more. <br /><em>The Giant’s Causeway, Carrick-a-Rede boat trip costs £35pp (<a href="https://aquaholics.co.uk/" rel="nofollow">aquaholics.co.uk</a>).</em></p> <a href="https://www.theguardian.com/come-on-over-to-northern-ireland/2020/aug/26/belfast-and-beyond-six-of-the-best-northern-ireland-day-trips">Continue reading...</a>
+
+## 'I feel like she's penetrating my soul': the power of Our Bodies Back
+ - [https://www.theguardian.com/stage/2020/aug/26/our-bodies-back-black-woman-dance-film-jessica-care-moore-jonzi-d](https://www.theguardian.com/stage/2020/aug/26/our-bodies-back-black-woman-dance-film-jessica-care-moore-jonzi-d)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 13:50:51+00:00
+
+<p><strong>Available online<br /></strong>Commissioned by Sadler’s Wells, Jonzi D’s new black-and white film powerfully weaves poetry and dance in a tribute to black women who have suffered violence</p><ul><li><a href="https://www.theguardian.com/stage/2020/mar/17/hottest-front-room-seats-the-best-theatre-and-dance-to-watch-online">The best theatre and dance to watch online</a></li></ul><p>Under a blanket of white cloud on a Montreal rooftop, dancer Axelle “Ebony” Munezero’s hands clasp over her mouth while potent words ring out in the voice of poet <a href="https://poets.org/poet/jessica-care-moore">jessica Care moore</a>. “I got life. / <a href="https://www.theguardian.com/us-news/sandra-bland">Sandra Bland</a> got the death penalty / for a traffic stop. Her body was 28 / years young.” Munezero’s body flinches with every beat, each one a violent blow.<br /><br />The black-and-white film, Our Bodies Back, is only five minutes long, but it’s a rich and powerful weaving of poetry and dance. At once a moving tribute to Bland, <a href="https://www.theguardian.com/us-news/breonna-taylor">Breonna Taylor </a>and countless black women who’ve suffered violence, and a clear-eyed, undaunted demand for respect and urgent change.</p> <a href="https://www.theguardian.com/stage/2020/aug/26/our-bodies-back-black-woman-dance-film-jessica-care-moore-jonzi-d">Continue reading...</a>
+
+## Superhero movies have never seemed more obscene | Bidisha
+ - [https://www.theguardian.com/commentisfree/2020/aug/26/superhero-movies-have-never-seemed-more-obscene](https://www.theguardian.com/commentisfree/2020/aug/26/superhero-movies-have-never-seemed-more-obscene)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 13:47:33+00:00
+
+<p>They might save cinema, but the public doesn’t need vengeance and spandex right now – we need voting and vaccines. Batman and Wonder Woman just don’t cut it <br /></p><p>In tough times, you need a hero. But do you need a superhero? DC Comics’ <a href="https://www.theguardian.com/film/2020/aug/25/sing-hallelujah-batfleck-batman-and-chris-pines-steve-trevor-all-return-at-dc-fandome">recent virtual showcase, FanDome</a>, unveiled the trailers for Patty Jenkins’s forthcoming <a href="https://www.youtube.com/watch?v=sfM7_JLk-84">Wonder Woman 1984</a> and Matt Reeves’s <a href="https://www.youtube.com/watch?v=R5l8Mv5AmDo">The Batman</a>, which is expected next year. Also featuring was Zack Snyder’s four-hour director’s cut of Justice League, which will air on HBO Max in hour-long instalments.</p><p>I’m exhausted just typing that. Surely superheroes and their huge, vaulting, save-the-universe narratives look laughably unimportant at this time? I mean, I love spandex and cosmic plot-fuelling MacGuffins as much as anyone. But this slew of multimillion-dollar super-releases seems obscene. It emphasises the gap between the Hollywood hype machine and the real struggles of pretty much everyone on this pandemic-stricken planet – except a few very rich individuals.</p> <a href="https://www.theguardian.com/commentisfree/2020/aug/26/superhero-movies-have-never-seemed-more-obscene">Continue reading...</a>
+
+## Why do birds sing? Because they’re all on drugs
+ - [https://www.theguardian.com/environment/2020/aug/26/why-do-birds-sing-because-theyre-all-on-drugs](https://www.theguardian.com/environment/2020/aug/26/why-do-birds-sing-because-theyre-all-on-drugs)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 13:39:57+00:00
+
+<p>The dawn chorus is created by birds chasing their next hit of opioid, according to a US biologist. Which explains why it’s so much like free-form jazz</p><p><strong>Name:</strong> Jazz.</p><p><strong>Age:</strong> Much older than you think.</p> <a href="https://www.theguardian.com/environment/2020/aug/26/why-do-birds-sing-because-theyre-all-on-drugs">Continue reading...</a>
+
+## JJ Gonson's best photograph: a smile from Elliott Smith
+ - [https://www.theguardian.com/artanddesign/2020/aug/26/jj-gonsons-best-photograph-a-smile-from-elliott-smith](https://www.theguardian.com/artanddesign/2020/aug/26/jj-gonsons-best-photograph-a-smile-from-elliott-smith)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 13:39:05+00:00
+
+<p>‘There was this cult of personality around him – the dark, tortured figure – but this shows the tip of the hat, the sideways glance: that’s the actual person’ </p><p>In 1985, I was in line at a Hüsker Dü concert and started talking to this guy who had started a fanzine. I had no idea what a fanzine was but I loved music and saw an opportunity to go to shows for free. I latched on to the fanzine and started shooting bands like Black Flag and Sonic Youth, then went on to work for magazines such as [skateboarding title] <a href="https://www.thrashermagazine.com/">Thrasher</a>. After a few years, I decided to finish my photography degree. So, at 22, I called my editors and I said: “I’m retiring.” </p><p>I finished my degree before literally running away to join a circus. I landed in Portland, Oregon. I was working in a cafe when I met this band, <a href="https://www.oregonlive.com/music/2015/10/heatmiser_interview_elliott_smith.html">Heatmiser</a>, which Elliott Smith was in. We became friends and we used to hang out, cook meals and watch TV.</p> <a href="https://www.theguardian.com/artanddesign/2020/aug/26/jj-gonsons-best-photograph-a-smile-from-elliott-smith">Continue reading...</a>
+
+## Mother in legal fight to save dead transgender daughter’s sperm
+ - [https://www.theguardian.com/uk-news/2020/aug/26/mother-louise-anderson-legal-fight-save-dead-transgender-daughters-sperm-scotland](https://www.theguardian.com/uk-news/2020/aug/26/mother-louise-anderson-legal-fight-save-dead-transgender-daughters-sperm-scotland)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 13:37:05+00:00
+
+<p>Louise Anderson hopes to use sample frozen at Glasgow clinic to produce a grandchild</p><p>The mother of a transgender teenager is preparing to take legal action to prevent fertility doctors from destroying her dead daughter’s frozen sperm.</p><p>Louise Anderson, from Stirling, says she wants to honour her daughter Ellie’s wish to produce a grandchild, using her sperm, an egg donor and a surrogate carrier.</p> <a href="https://www.theguardian.com/uk-news/2020/aug/26/mother-louise-anderson-legal-fight-save-dead-transgender-daughters-sperm-scotland">Continue reading...</a>
+
+## Tupac Shakur letters and Notorious BIG's crown up for auction at Sotheby's
+ - [https://www.theguardian.com/music/2020/aug/26/tupac-shakur-letters-and-notorius-bigs-crown-up-for-auction-at-sothebys](https://www.theguardian.com/music/2020/aug/26/tupac-shakur-letters-and-notorius-bigs-crown-up-for-auction-at-sothebys)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 13:26:48+00:00
+
+<p>Auction house’s first hip-hop-themed sale to offer introspective look at rap icons</p><p>A series of love letters written by <a href="https://www.theguardian.com/music/2pac">Tupac Shakur</a> and a crown worn by <a href="https://www.theguardian.com/music/musicblog/2015/dec/16/the-notorious-big-biggie-smalls-10-of-the-best">Notorious BIG</a> during a photoshoot a few days before his death are among the items up for auction at Sotheby’s first ever hip-hop-themed sale.</p><p>The event, which takes place in New York on 15 September, will celebrate the history and cultural impact of hip-hop, according to the auction house, which says the items offer an introspective look at two of rap’s most well-known figures.</p> <a href="https://www.theguardian.com/music/2020/aug/26/tupac-shakur-letters-and-notorius-bigs-crown-up-for-auction-at-sothebys">Continue reading...</a>
+
+## Wednesday's best photos: Notting Hill carnival preparation and a museum reopens
+ - [https://www.theguardian.com/society/gallery/2020/aug/26/wednesdays-best-photos-notting-hill-carnival-preparation-and-a-museum-reopens](https://www.theguardian.com/society/gallery/2020/aug/26/wednesdays-best-photos-notting-hill-carnival-preparation-and-a-museum-reopens)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 13:16:45+00:00
+
+<p>The Guardian’s picture editors select photo highlights from around the world</p> <a href="https://www.theguardian.com/society/gallery/2020/aug/26/wednesdays-best-photos-notting-hill-carnival-preparation-and-a-museum-reopens">Continue reading...</a>
+
+## A game of few laughs: can football and sitcom ever mix?
+ - [https://www.theguardian.com/tv-and-radio/2020/aug/26/a-game-of-few-laughs-can-football-and-sitcom-ever-mix-ted-lasso](https://www.theguardian.com/tv-and-radio/2020/aug/26/a-game-of-few-laughs-can-football-and-sitcom-ever-mix-ted-lasso)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 12:48:54+00:00
+
+<p>Ted Lasso, Apple TV’s attempt at a Premier League-based comedy, has arrived to a muted response. Is the sport just inherently unfunny?</p><p>No sooner had the extended Premier League season ended than another footballing story started. You might not have noticed, but <a href="https://www.theguardian.com/tv-and-radio/2020/aug/13/ted-lasso-review-apple-soccer-sitcom-plays-an-unfunny-old-game">Apple TV’s culture-clash sitcom Ted Lasso</a>, about an American NFL coach with no soccer experience taking over at a Premier League team, began over the weekend. It arrived to a pretty muted response.</p><p>It’s not the only footy sitcom we have seen this year. Inbetweeners writers Damon Beesley and Iain Morris’s disappointing <a href="https://www.theguardian.com/tv-and-radio/2020/may/28/the-first-team-review-a-football-sitcom-fit-for-relegation">The First Team had some distinctly lower-midtable reviews</a> for the BBC. It’s something of a trend that, whenever the sit of the com is in a football club, the laughs are hard to find. Mike Bassett: Manager lasted a series, The Cup and Warren United have tried it too, but none of them quite worked.</p> <a href="https://www.theguardian.com/tv-and-radio/2020/aug/26/a-game-of-few-laughs-can-football-and-sitcom-ever-mix-ted-lasso">Continue reading...</a>
+
+## Norway plans to drill for oil in untouched Arctic areas
+ - [https://www.theguardian.com/environment/2020/aug/26/norway-plans-to-drill-for-oil-in-untouched-arctic-areas-svalbard](https://www.theguardian.com/environment/2020/aug/26/norway-plans-to-drill-for-oil-in-untouched-arctic-areas-svalbard)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 12:42:51+00:00
+
+<p>Critics say plan for fields off Svalbard threatens ecosystem and relations with Russia</p><p>Norway is planning to expand oil drilling in previously untouched areas of the Arctic, a move campaigners say threatens the fragile ecosystem and could spark a military standoff with Russia.</p><p>A public consultation on the opening up of nine new Norwegian oilfields closed on Wednesday. The areas in question are much further north in the Arctic than the concessions <a href="https://www.theguardian.com/us-news/2020/aug/17/trump-alaska-arctic-wildlife-refuge-drilling">the US president, Donald Trump, announced for Alaska </a><a href="https://www.theguardian.com/us-news/2020/aug/17/trump-alaska-arctic-wildlife-refuge-drilling">this month</a>.</p> <a href="https://www.theguardian.com/environment/2020/aug/26/norway-plans-to-drill-for-oil-in-untouched-arctic-areas-svalbard">Continue reading...</a>
+
+## Spanish fishing boats land only a tenth of normal catch of octopus
+ - [https://www.theguardian.com/world/2020/aug/26/spanish-fishing-boats-land-only-a-tenth-of-normal-catch-of-octopus](https://www.theguardian.com/world/2020/aug/26/spanish-fishing-boats-land-only-a-tenth-of-normal-catch-of-octopus)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 12:21:07+00:00
+
+<p>Meteorological and environmental reasons cited as reasons for record low catches<br /></p><p>Spanish fishing boats are landing only a tenth of their normal summer catch of octopus – an unheard-of drop.</p><p>To date, since 1 July they have caught 38 tonnes of octopus, compared with a normal average of 378 tonnes over the same period. Income has slumped by 84%. Catches vary from year to year but such a huge drop is unprecedented.</p> <a href="https://www.theguardian.com/world/2020/aug/26/spanish-fishing-boats-land-only-a-tenth-of-normal-catch-of-octopus">Continue reading...</a>
+
+## Mercy Baguma: appeal to pay funeral costs as calls for inquiry grow
+ - [https://www.theguardian.com/uk-news/2020/aug/26/mercy-baguma-appeal-pay-funeral-costs-calls-inquiry-grow-glasgow](https://www.theguardian.com/uk-news/2020/aug/26/mercy-baguma-appeal-pay-funeral-costs-calls-inquiry-grow-glasgow)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 12:18:23+00:00
+
+<p>Fundraiser for woman found dead next to baby in Glasgow flat almost triples its target</p><p>An appeal for funeral expenses for Mercy Baguma, the Ugandan asylum seeker who was <a href="https://www.theguardian.com/uk-news/2020/aug/25/mercy-baguma-woman-in-extreme-poverty-found-dead-next-to-crying-baby-in-glasgow">discovered dead next to her </a><a href="https://www.theguardian.com/uk-news/2020/aug/25/mercy-baguma-woman-in-extreme-poverty-found-dead-next-to-crying-baby-in-glasgow">crying baby</a> in a flat in Glasgow, has nearly tripled its original funding target as calls grow for an inquiry into her death.</p><p>Baguma’s body was found by police on Saturday morning next to her one-year-old son, who was reportedly suffering from malnutrition and required hospital treatment. It is believed he has since been released into the care of his father, another asylum seeker who also lives in Glasgow.</p> <a href="https://www.theguardian.com/uk-news/2020/aug/26/mercy-baguma-appeal-pay-funeral-costs-calls-inquiry-grow-glasgow">Continue reading...</a>
+
+## Rishi Sunak and archbishop drawn into Yorkshire dales housing row
+ - [https://www.theguardian.com/society/2020/aug/26/rishi-sunak-and-archbishop-drawn-into-yorkshire-dales-housing-row](https://www.theguardian.com/society/2020/aug/26/rishi-sunak-and-archbishop-drawn-into-yorkshire-dales-housing-row)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 12:09:38+00:00
+
+<p>Plan to turn church school into affordable homes undone by requirement to accept top bid</p><p>A plan to convert a former church school in the Yorkshire dales into affordable housing has been scuppered by a legal requirement to accept the highest bid for the property in a row that has drawn in the chancellor of the exchequer and the archbishop of Canterbury.</p><p>Rishi Sunak has urged church leaders to reconsider the sale of Arkengarthdale Church of England primary school, and members of the community have demanded the intervention of Justin Welby.</p> <a href="https://www.theguardian.com/society/2020/aug/26/rishi-sunak-and-archbishop-drawn-into-yorkshire-dales-housing-row">Continue reading...</a>
+
+## Racism endemic at DfID, staff claim
+ - [https://www.theguardian.com/world/2020/aug/26/racism-endemic-at-dfid-staff-claim](https://www.theguardian.com/world/2020/aug/26/racism-endemic-at-dfid-staff-claim)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 12:06:05+00:00
+
+<p>Report says racism is endemic in UK aid department’s HQ and network of offices abroad</p><p>Many black, Asian and minority ethnic men working in the Department for International Development claim to have experienced prejudice at work, including racist jokes and doubts about their legality as UK citizens.</p><p>The government’s aid department has also been severely criticised for signing off an anti-sexual harassment campaign that portrayed BAME men following or restraining white women, in a report seen by the Guardian.</p> <a href="https://www.theguardian.com/world/2020/aug/26/racism-endemic-at-dfid-staff-claim">Continue reading...</a>
+
+## Face masks, time travel and James Bond auditions: discuss Tenet with spoilers
+ - [https://www.theguardian.com/film/2020/aug/26/killing-time-does-tenet-make-sense-christopher-nolan](https://www.theguardian.com/film/2020/aug/26/killing-time-does-tenet-make-sense-christopher-nolan)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 11:55:35+00:00
+
+<p>Christopher Nolan’s latest blockbuster creates a palindromic origami of bizarre physics inside an 007-style thriller. If you’ve seen it, what did you think?</p><p>Charged with the twin missions of kickstarting cinemagoing post-lockdown (outside the US, at least) and out-Nolanning every previous <a href="https://www.theguardian.com/film/2020/aug/24/pg-tips-how-christopher-nolan-became-the-king-of-the-family-friendly-action-film">Christopher Nolan</a> movie, Tenet carries a lot on its shoulders. The fact that it made it into cinemas is an achievement, but does it deliver? The critical consensus has been a qualified, often confused, “yes”, although opinions have differed widely, even <a href="https://www.theguardian.com/film/2020/aug/25/tenet-review-christopher-nolan-head-scratchingly-ambitious">among Guardian and Observer critics</a>. One thing all will agree: as well as a fresh jolt of spectacle to revive the flatlining movie business, Tenet provides plenty to talk about and plenty to think about. Too much? Let’s talk about that.</p> <a href="https://www.theguardian.com/film/2020/aug/26/killing-time-does-tenet-make-sense-christopher-nolan">Continue reading...</a>
+
+## ‘We had 50 weddings lined up, then it all just stopped’: how two food businesses made a lockdown comeback
+ - [https://www.theguardian.com/getting-back-on-track/2020/aug/26/we-had-50-weddings-lined-up-then-it-all-just-stopped-how-two-food-businesses-made-a-lockdown-comeback](https://www.theguardian.com/getting-back-on-track/2020/aug/26/we-had-50-weddings-lined-up-then-it-all-just-stopped-how-two-food-businesses-made-a-lockdown-comeback)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 11:31:11+00:00
+
+<p>The coronavirus pandemic affected all sectors of the economy, none more so than restaurants and catering firms. Here, a deli owner and wholesaler reveal the ways they turned their fortunes round </p><p>When the prime minister, Boris Johnson, announced all pubs and restaurants across the UK were to close until further notice on the evening of 20 March, Shaun Henderson already had a van load of fresh fish on the motorway headed for some of London’s top eateries and hotels.</p><p>The founder of Devon-based Henderson Seafood says the response was immediate. “People were calling to say: ‘Shaun, can I cancel my order please, we’re going to shut down straight away,’” he says. “I couldn’t turn the van around. I can’t go and give the fishermen back their fish.”</p> <a href="https://www.theguardian.com/getting-back-on-track/2020/aug/26/we-had-50-weddings-lined-up-then-it-all-just-stopped-how-two-food-businesses-made-a-lockdown-comeback">Continue reading...</a>
+
+## Choosing Tony Abbott as UK trade envoy 'staggering', says Labour
+ - [https://www.theguardian.com/australia-news/2020/aug/26/choosing-tony-abbott-uk-trade-envoy-staggering-says-labour](https://www.theguardian.com/australia-news/2020/aug/26/choosing-tony-abbott-uk-trade-envoy-staggering-says-labour)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 11:18:24+00:00
+
+<p>Emily Thornberry labels ex-Australian PM a ‘Trump-worshipping misogynist’ amid reports of role</p><p>The shadow trade secretary, Emily Thornberry, has condemned reports that Boris Johnson is <a href="https://www.theguardian.com/australia-news/2020/aug/26/former-australian-pm-tony-abbott-tipped-for-post-brexit-uk-trade-advisory-role">preparing to appoint</a> the former Australian prime minister Tony Abbott to a senior trade role, calling Abbott a “Trump-worshipping misogynist”.</p><p>The Department of Trade declined to comment publicly on Wednesday but insisted no decision had yet been made, after <a href="https://www.thesun.co.uk/news/12498386/tony-abbott-britain-trade-deal-supremo/">the Sun</a> reported that Abbott would be given a leading role on the board of trade.</p> <a href="https://www.theguardian.com/australia-news/2020/aug/26/choosing-tony-abbott-uk-trade-envoy-staggering-says-labour">Continue reading...</a>
+
+## Harry Maguire set to stay Manchester United captain for immediate future
+ - [https://www.theguardian.com/football/2020/aug/26/harry-maguire-set-to-stay-manchester-united-captain-for-immediate-future](https://www.theguardian.com/football/2020/aug/26/harry-maguire-set-to-stay-manchester-united-captain-for-immediate-future)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 11:06:28+00:00
+
+<ul><li>Defender due to return for pre-season training next week</li><li>Ole Gunnar Solskjær set to make long-term decision then<br /></li></ul><p>Harry Maguire will remain as Manchester United captain in the immediate future, with Ole Gunnar Solskjær to make a long-term decision when returning for pre-season training next week following the <a href="https://www.theguardian.com/football/2020/aug/25/harry-maguire-found-guilty-of-aggravated-assault-and-bribery-in-greece">defender’s conviction</a> for assaulting a police officer, swearing, resisting arrest and attempted bribery on the Greek island of Mykonos.</p><p> <span>Related: </span><a href="https://www.theguardian.com/football/2020/aug/26/harry-maguire-lack-of-apology-shocking-says-police-officers-lawyer">Harry Maguire's lack of apology 'shocking', says police officers' lawyer</a> </p> <a href="https://www.theguardian.com/football/2020/aug/26/harry-maguire-set-to-stay-manchester-united-captain-for-immediate-future">Continue reading...</a>
+
+## Amazon TV adaptation of Iain Banks' Culture series is cancelled
+ - [https://www.theguardian.com/books/2020/aug/26/amazon-tv-adaptation-of-iain-banks-culture-series-is-cancelled](https://www.theguardian.com/books/2020/aug/26/amazon-tv-adaptation-of-iain-banks-culture-series-is-cancelled)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 11:03:24+00:00
+
+<p>Author’s estate says timing wasn’t right, while scriptwriter says he is ‘mystified’ by move</p><p>The estate of Iain Banks has blamed timing for the demise of a planned Amazon television adaptation of the late author’s beloved <a href="https://www.theguardian.com/books/booksblog/2017/feb/06/30-years-of-culture-what-are-the-top-five-iain-m-banks-novels">Culture series</a>.</p><p>The adaptation of the Scottish author’s sci-fi books was announced in 2018, when Amazon Prime Video acquired the global rights to a TV version of Consider Phlebas, the first Culture novel. The author’s estate was set to serve as executive producer, but in a statement to the Guardian on Wednesday, it said the “timing wasn’t quite right” for it to go ahead.</p> <a href="https://www.theguardian.com/books/2020/aug/26/amazon-tv-adaptation-of-iain-banks-culture-series-is-cancelled">Continue reading...</a>
+
+## How to make spanakopita – recipe | Felicity Cloake's masterclass
+ - [https://www.theguardian.com/food/2020/aug/26/how-to-make-spanakopita-recipe-felicity-cloake-masterclass-filo-spinach-feta](https://www.theguardian.com/food/2020/aug/26/how-to-make-spanakopita-recipe-felicity-cloake-masterclass-filo-spinach-feta)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 11:00:21+00:00
+
+<p>Enjoy the classic Greek spinach and cheese filo pie from the comfort of your own home</p><p>A pie for midsummer, when greens and cheese in crackly filo have the edge on steak and kidney wrapped in suet. Spanakopita is a Greek classic: equally good warm from the oven or cold the next day, vegetarian-friendly (so long as you use a feta made without animal rennet) and utterly delicious, it’s perfect picnic fare, even if you’re not going any farther than your own garden.</p><p>Prep <strong>20 min</strong><br />Cook <strong>30 min</strong><br />Makes <strong>6-8 pieces</strong></p> <a href="https://www.theguardian.com/food/2020/aug/26/how-to-make-spanakopita-recipe-felicity-cloake-masterclass-filo-spinach-feta">Continue reading...</a>
+
+## Keir Starmer's conference challenge is to avoid the shadow of past leaders | Zoe Williams
+ - [https://www.theguardian.com/commentisfree/2020/aug/26/keir-starmer-conference-labour-leader-corbyn-blair](https://www.theguardian.com/commentisfree/2020/aug/26/keir-starmer-conference-labour-leader-corbyn-blair)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 10:48:46+00:00
+
+<p>To define ‘Starmerism’, the Labour leader will need an approach to members that can be traced to neither Corbyn nor Blair</p><p>This week, The World Transformed festival released its programme for the month of September. It is, like the Edinburgh fringe, sufficiently established as a festival of ideas; you might almost forget it was once pegged to the formal <a href="https://www.theguardian.com/politics/2017/sep/24/momentum-brighton-labour-party-conference-the-world-transformed">events of the Labour conference</a>, backed by Momentum, and partly created to harness the intellectual enthusiasm of new members.</p><p>More than that, The World Transformed breathed new life into the established party conference. Diehard Corbyn sceptics watched the fringe festival discussing the largest issues of the day and were reminded of something nobler than machine politics, something more like the incipient days of the trade union movement. It wasn’t necessarily that the ideas were better, rather that spontaneous congregation is compelling in itself, it creates an energy that the virtual world cannot. Nobody gets together in a room to discuss climate change, socialism, decolonisation, utopias, unless they are motivated by hope, or self-advancement. And TWT never looked like a hotbed of personal ambition, in any traditional political sense.</p> <a href="https://www.theguardian.com/commentisfree/2020/aug/26/keir-starmer-conference-labour-leader-corbyn-blair">Continue reading...</a>
+
+## Chelsea's first great splurge failed miserably. Will Lampard fare better?
+ - [https://www.theguardian.com/football/2020/aug/26/chelsea-first-great-transfer-splurge-failed-miserably-will-lampard-fare-better](https://www.theguardian.com/football/2020/aug/26/chelsea-first-great-transfer-splurge-failed-miserably-will-lampard-fare-better)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 10:41:08+00:00
+
+<p>With the club spending big again in pursuit of success the transfer experiences of 90 years ago provide a salutary lesson</p><p>As Frank Lampard romps up and down the aisles of soccer’s summer supermarket with carefree abandon, tittering hysterically as he loads his trolley to a height that makes Sheikh Mansour look like Mike Ashley, excitement and anticipation builds among the Chelsea faithful. Off-the-shelf glory may be just around the corner!</p><p>Who can blame anyone for succumbing to their wildest dreams? Lampard’s binge will peal loud bells among Chelsea fans of a certain vintage. A 28-day burst of luxury transfer activity during the summer of 2004 brought Petr Cech, Arjen Robben, Didier Drogba, Ricardo Carvalho and Mateja Kezman to Stamford Bridge, and, well, four out of five ain’t bad. José Mourinho’s box-fresh team went on to win the Premier League in short order, a root-and-branch refresh paying instant dividends.</p> <a href="https://www.theguardian.com/football/2020/aug/26/chelsea-first-great-transfer-splurge-failed-miserably-will-lampard-fare-better">Continue reading...</a>
+
+## Bio-bubbles and no crowds, yet this was a fantastic summer of Test cricket | Vic Marks
+ - [https://www.theguardian.com/sport/2020/aug/26/in-praise-of-a-fantastic-summer-of-test-cricket-despite-all-the-handicaps](https://www.theguardian.com/sport/2020/aug/26/in-praise-of-a-fantastic-summer-of-test-cricket-despite-all-the-handicaps)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 10:37:20+00:00
+
+<p>The omens were not good yet England, West Indies and Pakistan produced exciting, uplifting, competitive cricket</p><p>A unique summer of Test cricket has come to an end. Let us hope that it remains unique, that behind-closed-doors Test matches will never be necessary again. And yet it has been an uplifting experience.</p><p>Mike Brearley was talking about his new book, The Spirit of Cricket, on Tuesday’s Today programme on Radio 4 and he was asked whether such a notion was now outdated. He immediately disagreed and pointed to the manner in which all three sides playing Test matches here had gone about their business this summer: combatively but with mutual respect; in the right spirit.</p> <a href="https://www.theguardian.com/sport/2020/aug/26/in-praise-of-a-fantastic-summer-of-test-cricket-despite-all-the-handicaps">Continue reading...</a>
+
+## Late summer cocktails: 17 easy drinks recipes – made with four ingredients or fewer
+ - [https://www.theguardian.com/food/2020/aug/26/late-summer-cocktails-17-easy-drinks-recipes-four-ingredients-or-fewer](https://www.theguardian.com/food/2020/aug/26/late-summer-cocktails-17-easy-drinks-recipes-four-ingredients-or-fewer)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 10:30:20+00:00
+
+<p>From a tequila highball to a wild raspberry sour, bartenders share the drinks they will be serving up to friends as the hot summer nights turn cooler</p><p><em>Chris Tanner, the executive bar manager at <a href="https://www.theproofingroom.co.uk/">The Proofing Room</a>, London</em></p> <a href="https://www.theguardian.com/food/2020/aug/26/late-summer-cocktails-17-easy-drinks-recipes-four-ingredients-or-fewer">Continue reading...</a>
+
+## Iowa's farmers count the cost of a rare storm – photo essay
+ - [https://www.theguardian.com/us-news/2020/aug/26/iowa-derecho-storm-photos-farmers](https://www.theguardian.com/us-news/2020/aug/26/iowa-derecho-storm-photos-farmers)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 10:00:20+00:00
+
+<p>The hurricane-like storm, called a derecho, tore through Iowa this month, damaging buildings and threatening the harvest </p><p>A rare inland storm known as a derecho passed through the state of Iowa on 10 August, <a href="https://www.theguardian.com/us-news/2020/aug/10/us-midwest-derecho-storm-widespread-damage">leaving widespread damage in its wake</a>.</p><p>Winds reaching 140 miles an hour demolished many parts of the city of Cedar Rapids. But it’s the state’s farmland where the long-term impact is expected to be felt most.</p> <a href="https://www.theguardian.com/us-news/2020/aug/26/iowa-derecho-storm-photos-farmers">Continue reading...</a>
+
+## Obesity increases risk of Covid-19 death by 48%, study finds
+ - [https://www.theguardian.com/world/2020/aug/26/obesity-increases-risk-of-covid-19-death-by-48-study-finds](https://www.theguardian.com/world/2020/aug/26/obesity-increases-risk-of-covid-19-death-by-48-study-finds)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 10:00:20+00:00
+
+<p>Comprehensive study suggests vaccine may not work as well for overweight people </p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>Obesity increases the risk of death from Covid-19 by nearly 50% and may make vaccines against the disease less effective, according to a comprehensive study using global data.</p><p>The research from leading global experts warns that the risks for people with obesity are greater than previously thought.</p> <a href="https://www.theguardian.com/world/2020/aug/26/obesity-increases-risk-of-covid-19-death-by-48-study-finds">Continue reading...</a>
+
+## EU trade commissioner under pressure to quit over Covid rules breach
+ - [https://www.theguardian.com/world/2020/aug/26/eu-trade-commissioner-phil-hogan-pressure-quit-covid-rules-breach-ireland](https://www.theguardian.com/world/2020/aug/26/eu-trade-commissioner-phil-hogan-pressure-quit-covid-rules-breach-ireland)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 09:53:33+00:00
+
+<p>Irish government says it has lost confidence in Phil Hogan after he flouted quarantine regulations</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>The Irish government wants the embattled European trade commissioner, <a href="https://www.theguardian.com/world/2020/aug/25/eu-trade-chief-faces-fresh-criticism-over-breaking-covid-rules-in-ireland">Phil Hogan</a>, to quit or be sacked after concluding he flouted coronavirus regulations during a golfing break in <a href="https://www.theguardian.com/world/ireland">Ireland</a>.</p><p>The Green party leader, Eamon Ryan, part of the ruling coalition, on Wednesday said the government had lost confidence in Hogan.</p> <a href="https://www.theguardian.com/world/2020/aug/26/eu-trade-commissioner-phil-hogan-pressure-quit-covid-rules-breach-ireland">Continue reading...</a>
+
+## Central bankers to fish for compliments at virtual Jackson Hole summit
+ - [https://www.theguardian.com/business/2020/aug/26/central-bankers-to-fish-for-compliments-at-virtual-jackson-hole-summit-covid-19-andrew-bailey](https://www.theguardian.com/business/2020/aug/26/central-bankers-to-fish-for-compliments-at-virtual-jackson-hole-summit-covid-19-andrew-bailey)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 09:46:16+00:00
+
+<p>Covid-19 puts paid to prime US angling venue but markets will monitor Andrew Bailey and co</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>When Andrew Bailey delivers his keynote address to fellow central bankers later this week he will have to imagine he is in a Wyoming ski resort rather than his office in London’s Threadneedle Street. Jerome Powell, the chairman of the US Federal Reserve, will not need to fly 2,000 miles west from Washington DC to provide his views about inflation.</p><p>This is the new-look Jackson Hole, the annual conclave of monetary policymakers and economists that gets under way on Thursday and that since 1982 has taken place in a ski resort in the Grand Tetons. Davos for central bankers is a virtual affair this year.</p> <a href="https://www.theguardian.com/business/2020/aug/26/central-bankers-to-fish-for-compliments-at-virtual-jackson-hole-summit-covid-19-andrew-bailey">Continue reading...</a>
+
+## New Look seeks three-year rent holiday in battle for survival
+ - [https://www.theguardian.com/business/2020/aug/26/new-look-seeks-three-year-rent-holiday-in-battle-for-survival](https://www.theguardian.com/business/2020/aug/26/new-look-seeks-three-year-rent-holiday-in-battle-for-survival)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 09:39:22+00:00
+
+<p>Fashion chain attempts to secure a second rescue deal in 18 months to save 11,200 jobs</p><p><a href="https://www.theguardian.com/business/new-look">New Look</a> is seeking a three-year rent holiday on 68 of its stores and big rent reductions on hundreds of others as it battles to stay afloat and save the jobs of its 11,200 employees.</p><p>The fast-fashion chain is attempting to <a href="https://www.theguardian.com/business/2020/aug/13/new-look-plans-second-rescue-restructure-in-18-months">secure its second </a> rescue deal in 18 months and, along with the payment holiday, is asking landlords to slash rents to between about 3% and 12% of sales – on a further 402 of its shops. Such rents are not only likely to be lower than current levels but more flexible in the event of further high street lockdowns. </p> <a href="https://www.theguardian.com/business/2020/aug/26/new-look-seeks-three-year-rent-holiday-in-battle-for-survival">Continue reading...</a>
+
+## Non-woven masks better to stop Covid-19, says Japanese supercomputer
+ - [https://www.theguardian.com/world/2020/aug/26/non-woven-masks-better-to-stop-covid-19-says-japanese-supercomputer](https://www.theguardian.com/world/2020/aug/26/non-woven-masks-better-to-stop-covid-19-says-japanese-supercomputer)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 09:08:11+00:00
+
+<p>Disposable medical face masks beat those made of cotton or polyester in simulation</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>Face masks made from non-woven fabric are more effective at blocking the spread of <a href="https://www.theguardian.com/world/coronavirus-outbreak">Covid-19</a> via airborne respiratory droplets than other types that are commonly available, according to modelling in <a href="https://www.theguardian.com/world/japan">Japan</a> by the world’s fastest supercomputer.</p><p>Fugaku, which can perform more than 415 quadrillion computations a second, conducted simulations involving three types of mask, and found that non-woven masks were better than those made of cotton and polyester at blocking spray emitted when the wearer coughs, the Nikkei Asian Review said.</p> <a href="https://www.theguardian.com/world/2020/aug/26/non-woven-masks-better-to-stop-covid-19-says-japanese-supercomputer">Continue reading...</a>
+
+## Giant leap off stage: farewell to the Royal Ballet's stunning Edward Watson  – in pictures
+ - [https://www.theguardian.com/stage/gallery/2020/aug/26/royal-ballet-dancer-edward-watson-farewell-retiring-tristram-kenton](https://www.theguardian.com/stage/gallery/2020/aug/26/royal-ballet-dancer-edward-watson-farewell-retiring-tristram-kenton)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 09:00:20+00:00
+
+<p>The superbly physical dancer is retiring as a principal of the Royal, although he will continue to work as a coach. Here is a feast of his career highlights, all photographed for the Guardian by Tristram Kenton</p> <a href="https://www.theguardian.com/stage/gallery/2020/aug/26/royal-ballet-dancer-edward-watson-farewell-retiring-tristram-kenton">Continue reading...</a>
+
+## 'We're at a crossroads': who do the fish of Hawaii belong to?
+ - [https://www.theguardian.com/environment/2020/aug/26/hawaii-fish-waters-native-commercial-fishers](https://www.theguardian.com/environment/2020/aug/26/hawaii-fish-waters-native-commercial-fishers)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 09:00:19+00:00
+
+<p>Commercial fishers see the water as ‘an open ocean’ – but depleting resources creates food insecurity for low-income and Native Hawaiians who depend on it</p><p>This spring, longline commercial fishers petitioned the Trump administration to open up the Pacific marine monuments – some of the most biologically diverse marine conservation areas in the world, including <a href="https://www.papahanaumokuakea.gov/">Papahānaumokuākea</a>. A World Heritage site, Hawaii’s Papahānaumokuākea constitutes 583,000 acres of protected waters, which host critically endangered species and important coral reef ecosystems.</p><p>These commercial fishers argued that “quick action is urgently needed” to meet “exceptionally high retail demand” for canned tuna as a result of the current pandemic – assertions which have been rebuked by many <a href="https://www.civilbeat.org/2020/05/hawaii-fishermen-are-stuck-in-port-as-federal-aid-falls-short/">reports</a>.</p> <a href="https://www.theguardian.com/environment/2020/aug/26/hawaii-fish-waters-native-commercial-fishers">Continue reading...</a>
+
+## Chile police using Covid-19 quarantine as pretext to crush protest, activists say
+ - [https://www.theguardian.com/global-development/2020/aug/26/chile-police-covid-19-quarantine-protest](https://www.theguardian.com/global-development/2020/aug/26/chile-police-covid-19-quarantine-protest)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 09:00:19+00:00
+
+<p>Demonstrations over hunger by people thrown out of work by the pandemic have been met with violent repression</p><p>Violeta Delgado was at a protest over food shortages under <a href="https://www.theguardian.com/world/chile">Chile</a>’s coronavirus lockdowns when the police arrived and fired off a volley of teargas rounds.</p><p>Delgado, who was seven months pregnant, says she put her hands up to show she was unarmed, but was struck by a police vehicle and knocked to the ground.</p> <a href="https://www.theguardian.com/global-development/2020/aug/26/chile-police-covid-19-quarantine-protest">Continue reading...</a>
+
+## How to take the perfect breath: why learning to breathe properly could change your life
+ - [https://www.theguardian.com/lifeandstyle/2020/aug/26/how-to-take-the-perfect-breath-why-learning-to-breathe-properly-could-change-your-life](https://www.theguardian.com/lifeandstyle/2020/aug/26/how-to-take-the-perfect-breath-why-learning-to-breathe-properly-could-change-your-life)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 09:00:19+00:00
+
+<p>It is claimed that ‘breathwork’ can help improve our sleep, digestion, immune and respiratory functions, while reducing our blood pressure and anxiety. All of which, in the midst of a pandemic, sounds more appealing than ever<br /></p><p>Aimee Hartley, like most people, thought she knew how to breathe – she had, after all, been doing it all her life. She had also given it plenty of thought, having trained as a yoga teacher. But then she took a lesson with a breathing coach, who told her where she was going wrong. He pointed out she wasn’t taking the air into her lower lungs but was, she says, an “upper chest breather. He then taught me this conscious breathing and I felt my lower belly open, and I felt myself breathing a lot better after just one session. So I then <a href="https://thebreathingroom.co.uk/aimee-hartley/">became fascinated by how we breathe</a>.”</p><p>Watching her students in her yoga class, and observing people in everyday life, she started noticing that almost nobody breathes that well, by which she means in a way that makes your belly expand and your upper chest and back lift slightly, in a fluid motion. The exception, she says, is “babies, until they’re about three”. Then we forget how to breathe.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/aug/26/how-to-take-the-perfect-breath-why-learning-to-breathe-properly-could-change-your-life">Continue reading...</a>
+
+## JS Bach: where to start with his music
+ - [https://www.theguardian.com/music/2020/aug/26/js-bach-where-to-start-with-his-music](https://www.theguardian.com/music/2020/aug/26/js-bach-where-to-start-with-his-music)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 09:00:19+00:00
+
+<p>With religious music so involving he could inspire faith in non-believers, the German composer’s sense of harmony makes him a shared reference point for all classical composers</p><p>‘The immortal god of harmony”: that’s what <a href="https://www.theguardian.com/music/2020/jul/01/know-the-score-beethoven-where-to-start-with-his-music-250th-anniversary">Beethoven</a>, no less, called Johann Sebastian Bach. “Music owes as much to Bach as religion to its founder,” is how Schumann put it, and Bach’s music continues to inspire <a href="https://www.theguardian.com/music/2020/apr/12/passions-denied-my-first-easter-without-the-mysteries-and-joys-of-bach">a feeling of reverence and love</a> that borders on spirituality, in atheists and believers alike. An astonishingly productive composer, Bach perfected all the existing musical forms of the baroque period and took the use of harmony to a new level, setting out parameters that most of the western musical tradition has been working within ever since.</p> <a href="https://www.theguardian.com/music/2020/aug/26/js-bach-where-to-start-with-his-music">Continue reading...</a>
+
+## Riley Gale, frontman with thrash metal band Power Trip, dies aged 34
+ - [https://www.theguardian.com/music/2020/aug/26/riley-gale-frontman-with-thrash-metal-band-power-trip-dies](https://www.theguardian.com/music/2020/aug/26/riley-gale-frontman-with-thrash-metal-band-power-trip-dies)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 08:51:42+00:00
+
+<p>No cause of death has been given for the Texas quintet’s politically outspoken vocalist</p><p>Riley Gale, lead singer of Texas thrash metal band Power Trip, has died aged 34. No cause of death has been announced.</p><p>The band wrote in a statement:</p> <a href="https://www.theguardian.com/music/2020/aug/26/riley-gale-frontman-with-thrash-metal-band-power-trip-dies">Continue reading...</a>
+
+## Covid-19 world map: which countries have the most coronavirus cases and deaths?
+ - [https://www.theguardian.com/world/2020/aug/26/covid-19-world-map-countries-coronavirus-cases-deaths](https://www.theguardian.com/world/2020/aug/26/covid-19-world-map-countries-coronavirus-cases-deaths)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 08:37:11+00:00
+
+<p>Covid-19 has spread around the planet, sending billions of people into lockdown as health services struggle to cope. Find out where the virus has spread, and where it has been most deadly</p><ul><li><a href="https://www.theguardian.com/world/2020/aug/25/coronavirus-uk-map-the-latest-deaths-and-confirmed-covid-cases">Coronavirus map of the UK</a></li><li><a href="https://www.theguardian.com/world/ng-interactive/2020/jul/15/covid-19-coronavirus-us-map-latest-cases-state-by-state">Coronavirus map of the US</a></li><li><a href="https://www.theguardian.com/australia-news/datablog/ng-interactive/2020/aug/26/coronavirus-australia-map-cases-covid-19-tracking-stats-live-data-update-by-state-suburb-postcode-how-many-new-active-case-numbers-today-statistics-corona-deaths-death-toll">Coronavirus cases in Australia</a></li></ul> <a href="https://www.theguardian.com/world/2020/aug/26/covid-19-world-map-countries-coronavirus-cases-deaths">Continue reading...</a>
+
+## Americans and their dreams – in pictures
+ - [https://www.theguardian.com/artanddesign/gallery/2020/aug/26/americans-and-their-dreams-in-pictures](https://www.theguardian.com/artanddesign/gallery/2020/aug/26/americans-and-their-dreams-in-pictures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 08:14:18+00:00
+
+<p>In his new book <a href="https://www.penguinrandomhouse.com/books/623837/american-dreams-by-ian-brown/">American Dreams</a>, the Canadian photographer <strong>Ian Brown</strong> has collected 170 portraits of Americans along with handwritten statements of what the American dream means to them. Collected over 12 years and in 50 states, the words range from hope to defiance to fear to anger. Brown sees it as ‘an enduring reminder that everyone has an important voice and story to share’</p> <a href="https://www.theguardian.com/artanddesign/gallery/2020/aug/26/americans-and-their-dreams-in-pictures">Continue reading...</a>
+
+## Drop in tourism could wipe £22bn from UK economy, says WTTC
+ - [https://www.theguardian.com/business/2020/aug/26/drop-in-tourism-could-wipe-22bn-from-uk-economy-says-wttc-covid-19](https://www.theguardian.com/business/2020/aug/26/drop-in-tourism-could-wipe-22bn-from-uk-economy-says-wttc-covid-19)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 07:46:05+00:00
+
+<p>Almost 3m jobs at risk because of uncertainty around Covid-19 travel restrictions</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>The UK is forecast to lose £22bn in spending as international tourism plummets, putting almost 3m jobs at risk, according to a report.</p><p>The World Travel and Tourism Council (WTTC) said the continuing uncertainty around travel restrictions designed to halt a resurgence in coronavirus cases is causing millions of people to opt for staycations in their home countries instead.</p> <a href="https://www.theguardian.com/business/2020/aug/26/drop-in-tourism-could-wipe-22bn-from-uk-economy-says-wttc-covid-19">Continue reading...</a>
+
+## Christchurch gunman says he will not speak at sentencing hearing
+ - [https://www.theguardian.com/world/2020/aug/26/christchurch-gunman-says-he-will-not-speak-at-sentencing-hearing](https://www.theguardian.com/world/2020/aug/26/christchurch-gunman-says-he-will-not-speak-at-sentencing-hearing)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 07:31:01+00:00
+
+<p>Terrorist does not intend to speak at Thursday’s hearing but will have a lawyer make a brief statement on his behalf</p><p>Over a period of three days, 91 of his victims read statements to him in court. But the terrorist who attacked two mosques in Christchurch, New Zealand – killing dozens of Muslim worshippers at prayer – told a judge on Wednesday that he would not address the court himself.</p><p>There had been fears the Australian man would use the sentencing hearing as a platform to spread his anti-Islamic and extremist views. Brenton Tarrant, 29, a self-professed white supremacist, broadcast his massacre at the two mosques live on Facebook and published an extremist manifesto.</p> <a href="https://www.theguardian.com/world/2020/aug/26/christchurch-gunman-says-he-will-not-speak-at-sentencing-hearing">Continue reading...</a>
+
+## Hong Kong's terracotta tile army marches to the rescue for coral
+ - [https://www.theguardian.com/environment/2020/aug/26/hong-kongs-terracotta-tile-army-marches-to-the-rescue-for-coral](https://www.theguardian.com/environment/2020/aug/26/hong-kongs-terracotta-tile-army-marches-to-the-rescue-for-coral)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 06:15:15+00:00
+
+<p>Scientists are using 3D-printed hexagons to create artificial reefs after a super-typhoon brought devastation<br /></p><p>In 2018, a super-typhoon destroyed 80% of the corals in Hoi Ha Wan bay off the Sai Kung peninsula in Hong Kong. In the city’s strongest storm since records began, winds reached 155mph (250km/h) and battered the reefs, leaving behind mostly scattered debris and broken coral skeletons. A few coral species survived, but these will likely take decades to regrow to their former state.</p><p>Sadly, this was no exception. Coral reefs are rapidly vanishing from the world’s oceans in large part because of the effects of global heating, which among other issues is increasing the frequency and severity of storms. In 2016 and 2017 alone, <a href="https://www.theguardian.com/environment/2019/apr/04/great-barrier-reef-suffers-89-collapse-in-new-coral-after-bleaching-events">89% of new corals</a> on the Great Barrier Reef perished as a result of global heating-induced bleaching. Without decisive action to tackle the climate emergency, overfishing and pollution, it is estimated we will lose <a href="https://www.ipcc.ch/2018/10/08/summary-for-policymakers-of-ipcc-special-report-on-global-warming-of-1-5c-approved-by-governments/">70% to 90%</a> of the world’s remaining coral reefs over the next <a href="https://www.sciencedaily.com/releases/2020/02/200218124358.htm">20 years</a>.</p> <a href="https://www.theguardian.com/environment/2020/aug/26/hong-kongs-terracotta-tile-army-marches-to-the-rescue-for-coral">Continue reading...</a>
+
+## Melania Trump offers condolences to families of Covid-19 victims in RNC speech
+ - [https://www.theguardian.com/us-news/2020/aug/25/melania-trump-rnc-speech-covid-19-victims](https://www.theguardian.com/us-news/2020/aug/25/melania-trump-rnc-speech-covid-19-victims)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 06:02:38+00:00
+
+<p>Remarks were a jarring reminder of pandemic, after an evening of misleading speeches that tried to minimize the public health crisis</p><p>Melania Trump expressed sympathy to the Americans who have lost loved ones to the coronavirus pandemic, acknowledging the grim toll of a public health crisis the president has failed to contain during a keynote address on the second night of the Republican convention.</p><p>Speaking from the White House Rose Garden on Tuesday, the first lady offered her condolences to the families of the more than 178,000 Americans who have now died from the virus and to the millions more who have been infected.</p> <a href="https://www.theguardian.com/us-news/2020/aug/25/melania-trump-rnc-speech-covid-19-victims">Continue reading...</a>
+
+## 'Don't be afraid to ask for help': taking care of your mental health at uni
+ - [https://www.theguardian.com/education/2020/aug/26/dont-be-afraid-to-ask-for-help-taking-care-of-your-mental-health-at-uni](https://www.theguardian.com/education/2020/aug/26/dont-be-afraid-to-ask-for-help-taking-care-of-your-mental-health-at-uni)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 06:00:16+00:00
+
+<p>If you’re finding it difficult to connect at university, get together with others online – and set aside time for energising exercise</p><p>It can be easy to feel disconnected when you’re away at uni, and this year, a term spent studying partly online could exacerbate these feelings for some students.</p><p>But there are ways to help you cope. Muhammad Abby, 25, from Manchester, is going into his second year as a <a href="https://www.theguardian.com/education/2019/jun/07/subject-guide-journalism-publishing-and-public-relations">journalism</a> student at UA92, a partnership between Lancaster University and Manchester United. He has struggled with ADHD, depression and anxiety. Through his course, he’s learned character development skills including positive thinking, mental resilience and motivation, which have been a massive help while shielding due to asthma.</p> <a href="https://www.theguardian.com/education/2020/aug/26/dont-be-afraid-to-ask-for-help-taking-care-of-your-mental-health-at-uni">Continue reading...</a>
+
+## 'I was in a tent for years': Wales' rough sleepers moved into permanent homes
+ - [https://www.theguardian.com/society/2020/aug/26/tent-wales-rough-sleepers-permanent-homes-england-covid-government-homelessness](https://www.theguardian.com/society/2020/aug/26/tent-wales-rough-sleepers-permanent-homes-england-covid-government-homelessness)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 06:00:16+00:00
+
+<p>Welsh government strategy to tackle homelessness during coronavirus pandemic contrasts with policies in England</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>Behind some grimy timber hoardings in the centre of Newport, Wales, something truly remarkable is happening. Long-term rough sleepers, who have spent years struggling with often devastating personal traumas, severe mental illness and substance abuse, are getting the chance to rebuild their lives in 15 portable buildings hastily installed in the Welsh city during the pandemic.</p><p>Mike Thomas is one of them. His face is warm and friendly – but it also tells an all-too-familiar story of loss, alcoholism and bedding down in the open every night. “I suffer from depression and stuff like that. It [alcohol] makes things seem better but it’s not better,” he says.</p> <a href="https://www.theguardian.com/society/2020/aug/26/tent-wales-rough-sleepers-permanent-homes-england-covid-government-homelessness">Continue reading...</a>
+
+## Doggy style: homes of the pampered pooches of Palm Springs – in pictures
+ - [https://www.theguardian.com/artanddesign/gallery/2020/aug/26/pooches-of-palm-springs-in-pictures-nancy-baron](https://www.theguardian.com/artanddesign/gallery/2020/aug/26/pooches-of-palm-springs-in-pictures-nancy-baron)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 06:00:16+00:00
+
+<p>Is it really a dream home without a dream dog in it? <a href="https://www.nancybaron.com/">Nancy Baron</a> photographed California’s proudest dog owners and their mid-century modern American properties</p> <a href="https://www.theguardian.com/artanddesign/gallery/2020/aug/26/pooches-of-palm-springs-in-pictures-nancy-baron">Continue reading...</a>
+
+## Samsung Galaxy Book Flex review: long battery laptop with fold-back screen
+ - [https://www.theguardian.com/technology/2020/aug/26/samsung-galaxy-book-flex-review-long-battery-laptop-with-fold-back-screen](https://www.theguardian.com/technology/2020/aug/26/samsung-galaxy-book-flex-review-long-battery-laptop-with-fold-back-screen)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 06:00:16+00:00
+
+<p>Stunning royal blue convertible machine with hidden S-pen stylus marks re-entry into UK PC market</p><p>Samsung has returned to the consumer laptop market in the UK with a series of new machines led by the Galaxy Book Flex.</p><p>Unlike most of the PC market, the Book Flex is refreshingly only available in one version in the UK with a choice of silver or blue, costing £1,349.</p> <a href="https://www.theguardian.com/technology/2020/aug/26/samsung-galaxy-book-flex-review-long-battery-laptop-with-fold-back-screen">Continue reading...</a>
+
+## Littering epidemic in England as government spends just £2k promoting Countryside Code
+ - [https://www.theguardian.com/uk-news/2020/aug/26/littering-epidemic-england-countryside-code](https://www.theguardian.com/uk-news/2020/aug/26/littering-epidemic-england-countryside-code)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 06:00:15+00:00
+
+<p>Campaigners say unprecedented levels of littering and fly-camping are partly due to ignorance of behavioural guidelines </p><p>An unprecedented rise in litter, damaging fires and “fly-camping” across the English countryside is partly a result of the government spending less than £2,000 a year over the past decade on promoting the Countryside Code, campaigners say.</p><p>The code, a set of simple guidelines to help rural visitors respect wildlife, local people and landscapes, was relaunched in England in 2004 after <a href="https://www.ramblers.org.uk/get-involved/campaign-with-us/past-campaigns/right-to-roam-crow.aspx">the new “right to roam” law</a> increased access to the countryside.</p> <a href="https://www.theguardian.com/uk-news/2020/aug/26/littering-epidemic-england-countryside-code">Continue reading...</a>
+
+## Go wild in the Midlands: river swims, campsites, forests, climbs and ruins
+ - [https://www.theguardian.com/travel/2020/aug/26/wild-travel-adventure-the-midlands-uk-river-swims-campsites-forests-climbs-ruins](https://www.theguardian.com/travel/2020/aug/26/wild-travel-adventure-the-midlands-uk-river-swims-campsites-forests-climbs-ruins)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 05:30:15+00:00
+
+<p>The authors of <a href="http://www.wildthingspublishing.com/product/wild-guide-central-england/">a new book on the wild side of Central England</a> share their favourite secret spots for day trips and adventures</p><p><strong>Walton- on-Trent, Derbyshire<br /></strong>With the backdrop of a village cricket green, this meander of the River Trent, backed by meadows and lined with willows, offers a retreat from modern life. Swim (or walk when water levels are low) to the little river island where a rope tree-swing is waiting. </p> <a href="https://www.theguardian.com/travel/2020/aug/26/wild-travel-adventure-the-midlands-uk-river-swims-campsites-forests-climbs-ruins">Continue reading...</a>
+
+## Men going their own way: the rise of a toxic male separatist movement
+ - [https://www.theguardian.com/lifeandstyle/2020/aug/26/men-going-their-own-way-the-toxic-male-separatist-movement-that-is-now-mainstream](https://www.theguardian.com/lifeandstyle/2020/aug/26/men-going-their-own-way-the-toxic-male-separatist-movement-that-is-now-mainstream)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 05:00:14+00:00
+
+<p>The men of the MGTOW movement aim to live their lives with no female contact. The idea began on the fringes of the internet – so how has it made it all the way to the White House?<br /></p><p>‘There has been an awakening … changing the world … one man at a time.” These are the dramatic words that appear when you visit <a href="https://www.mgtow.com/">mgtow.com</a>. In a video that looks a lot like an action-movie trailer, the words are soon followed by five more that appear to smash through the screen, smouldering fiery red: “Men … going … their … own way.”</p><p>If you stumbled across this website and had never heard of “men going their own way” (MGTOW) before, you would probably assume this was a tiny, extreme movement. But you would be only half right.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/aug/26/men-going-their-own-way-the-toxic-male-separatist-movement-that-is-now-mainstream">Continue reading...</a>
+
+## Population panic lets rich people off the hook for the climate crisis they are causing | George Monbiot
+ - [https://www.theguardian.com/commentisfree/2020/aug/26/panic-overpopulation-climate-crisis-consumption-environment](https://www.theguardian.com/commentisfree/2020/aug/26/panic-overpopulation-climate-crisis-consumption-environment)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 05:00:14+00:00
+
+<p>Rising consumption by the affluent has a far greater environmental impact than the birth rate in poorer nations</p><p>When <a href="https://www.thelancet.com/journals/lancet/article/PIIS0140-6736(20)30677-2/fulltext">a major study</a> was published last month, showing that the global population is likely to peak then crash much sooner than most scientists had assumed, I naively imagined that people in rich nations would at last stop blaming all the world’s environmental problems on population growth. I was wrong. If anything, it appears to have got worse.</p><p>Next week the <a href="https://www.theguardian.com/lifeandstyle/2019/mar/12/birthstrikers-meet-the-women-who-refuse-to-have-children-until-climate-change-ends">BirthStrike movement</a> – founded by women who, by announcing their decision not to have children, seek to focus our minds on the horror of environmental collapse – <a href="https://www.birthstrikeforfuture.com/">will dissolve itself</a>, because its cause has been hijacked so virulently and persistently by population obsessives. The founders explain that they had “underestimated the power of ‘overpopulation’ as a growing form of climate breakdown denial”.</p> <a href="https://www.theguardian.com/commentisfree/2020/aug/26/panic-overpopulation-climate-crisis-consumption-environment">Continue reading...</a>
+
+## Saving lives or UK economy from Covid a 'false choice', MPs warn
+ - [https://www.theguardian.com/world/2020/aug/26/saving-lives-or-uk-economy-from-covid-a-false-choice-mps-warn](https://www.theguardian.com/world/2020/aug/26/saving-lives-or-uk-economy-from-covid-a-false-choice-mps-warn)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 05:00:14+00:00
+
+<p>Study finds UK has one of highest excess death rates with worst projected hit to economy</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>Saving lives or the economy in the coronavirus pandemic is a “false choice”, MPs have warned as a study confirms the UK to have one of the highest excess death rates combined with the worst projected hit to the economy.</p><p>Data analysed by the Guardian shows the UK has effectively endured the worst of both worlds, with 610 excess deaths per million while GDP is set to fall by 11.5% this year. This places it narrowly ahead of Italy and Spain, which also have high excess death figures and devastating economic forecasts.</p> <a href="https://www.theguardian.com/world/2020/aug/26/saving-lives-or-uk-economy-from-covid-a-false-choice-mps-warn">Continue reading...</a>
+
+## Republicans shatter norms by using government roles during political convention
+ - [https://www.theguardian.com/us-news/2020/aug/25/melania-trump-republican-convention-speech-mike-pompeo-tiffany-rand-paul-latest](https://www.theguardian.com/us-news/2020/aug/25/melania-trump-republican-convention-speech-mike-pompeo-tiffany-rand-paul-latest)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 04:56:36+00:00
+
+<p>Trump allies and family members also used misleading claims to portray the president as the best hope for America’s future</p><p>Allies of Donald Trump shattered political norms, stirred controversy and issued misleading claims against Democrats during the second night of the Republican party’s national convention on Tuesday.</p><p>In speech after speech, a collection of Trump’s family members, allies, rightwing campaigners and swing-state farmers portrayed the president as the best hope for America’s future.</p> <a href="https://www.theguardian.com/us-news/2020/aug/25/melania-trump-republican-convention-speech-mike-pompeo-tiffany-rand-paul-latest">Continue reading...</a>
+
+## Revisited: How the Bristol bus boycott changed UK civil rights
+ - [https://www.theguardian.com/news/audio/2020/aug/26/revisited-how-the-bristol-bus-boycott-changed-uk-civil-rights-podcast](https://www.theguardian.com/news/audio/2020/aug/26/revisited-how-the-bristol-bus-boycott-changed-uk-civil-rights-podcast)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-08-26 02:00:10+00:00
+
+<p>Marvin Rees, the mayor of Bristol, discusses the 1963 Bristol bus boycott – a protest that proved to be a watershed moment in the UK’s civil rights movement</p><p><em>This week we are revisiting episodes from our archive examining race and racism after a worldwide summer of protests in reaction to the killing of George Floyd in the US. Today, we look at a part of recent British history that is rarely taught in schools. </em></p><p>The 1963 Bristol protest took place after 18-year-old Guy Bailey was turned away from a job interview at the state-owned Bristol Omnibus Company, when a manager told him: “We don’t employ black people.” The policy, an open secret in the city, was entirely legal. Inspired by events including the 1955-56 Montgomery bus boycott, when <a href="https://www.theguardian.com/news/2005/oct/25/guardianobituaries.usa">Rosa Parks</a>, an African-American woman, refused to give up her seat for a white person, a boycott of the Bristol bus network was organised. After four months, the bus company relented. The victory proved to be a watershed moment and a step towards the UK’s first laws against racial discrimination.</p> <a href="https://www.theguardian.com/news/audio/2020/aug/26/revisited-how-the-bristol-bus-boycott-changed-uk-civil-rights-podcast">Continue reading...</a>
+

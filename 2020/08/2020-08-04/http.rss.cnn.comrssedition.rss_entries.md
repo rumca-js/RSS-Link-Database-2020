@@ -1,0 +1,156 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## The year when truth died: The internet blackout that changed an Indian state
+ - [https://www.cnn.com/2020/08/04/media/kashmir-media-freedom-dst-hnk-intl/index.html](https://www.cnn.com/2020/08/04/media/kashmir-media-freedom-dst-hnk-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 23:26:16+00:00
+
+
+
+## Videos show moment of massive Beirut blast
+ - [https://www.cnn.com/videos/world/2020/08/04/beirut-explosion-moment-of-blast-witness-ctw-vpx.cnn](https://www.cnn.com/videos/world/2020/08/04/beirut-explosion-moment-of-blast-witness-ctw-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 22:23:52+00:00
+
+A large explosion ripped through the Lebanese capital Beirut, injuring people and smashing windows in buildings across the city.
+
+## New York mayor responds to health commissioner's resignation
+ - [https://www.cnn.com/videos/us/2020/08/04/nyc-health-commissioner-oxiris-barbot-resigns-mayor-deblasio-responds-tsr-vpx.cnn](https://www.cnn.com/videos/us/2020/08/04/nyc-health-commissioner-oxiris-barbot-resigns-mayor-deblasio-responds-tsr-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 22:10:29+00:00
+
+New York City Mayor Bill de Blasio responds to the resignation of Oxiris Barbot, the city's health commissioner, who helped lead efforts to contain Covid-19.
+
+## Fulham triumph in world's most lucrative football match, worth a possible $346 million
+ - [https://www.cnn.com/2020/08/04/football/championship-playoff-fulham-brentford-premier-league-spt-intl/index.html](https://www.cnn.com/2020/08/04/football/championship-playoff-fulham-brentford-premier-league-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 21:45:31+00:00
+
+Joe Bryan's two extra-time goals secured Fulham a 2-1 victory against Brentford and a place in the English Premier League in what's been dubbed the world's most valuable football match in Tuesday's Championship play-off final.
+
+## Keilar pushes back on Trump campaign claims of voter fraud
+ - [https://www.cnn.com/videos/politics/2020/08/04/trump-mail-in-voting-mercedes-schlapp-brianna-keilar-nr-vpx.cnn](https://www.cnn.com/videos/politics/2020/08/04/trump-mail-in-voting-mercedes-schlapp-brianna-keilar-nr-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 20:21:28+00:00
+
+CNN's Brianna Keilar fact checks Trump campaign senior adviser Mercedes Schlapp's position that mail in voting can lead to election fraud.
+
+## Remember when Dolly Parton fully subverted the 'dumb blonde' cliché with her 80s excess styling?
+ - [https://www.cnn.com/style/article/remember-when-dolly-parton/index.html](https://www.cnn.com/style/article/remember-when-dolly-parton/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 19:54:30+00:00
+
+At the Los Angeles premiere of "Steel Magnolias" on November 9, 1989, country diva Dolly Parton was a walking embodiment of that decade of excess: skyscraper hair, elongated nails, pneumatic boobs, and a dress smothered in rhinestones. "I kinda patterned my look after Cinderella and Mother Goose -- and the local hooker," she once said, always ready to beat her critics to a punchline.
+
+## Surfers have unexpected greeting with a pair of whales
+ - [https://www.cnn.com/videos/world/2020/08/04/australia-surfers-whale-encounter-orig-vstan-bdk.cnn](https://www.cnn.com/videos/world/2020/08/04/australia-surfers-whale-encounter-orig-vstan-bdk.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 18:47:28+00:00
+
+Beachgoers in Australia got a closeup view of two southern right whales just off Manly Beach in Sydney.
+
+## Watch some of TikTok's biggest moments
+ - [https://www.cnn.com/videos/business/2020/08/04/tiktok-biggest-trends-orig.cnn-business](https://www.cnn.com/videos/business/2020/08/04/tiktok-biggest-trends-orig.cnn-business)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 18:39:08+00:00
+
+While TikTok's future remains uncertain, there's no denying the cultural impact the app has already made. Here's a look back at some of the platform's biggest trends from Lil Nas X's "Old Town Road" to the pandemic-themed "Bored in the House."
+
+## Opening schools could be the hardest battle in the war on Covid
+ - [https://www.cnn.com/2020/08/04/europe/why-cant-americans-go-back-to-school-analysis-intl/index.html](https://www.cnn.com/2020/08/04/europe/why-cant-americans-go-back-to-school-analysis-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 17:03:21+00:00
+
+The price the world has already paid for the Covid-19 pandemic is eyewatering: massive loss of life, long-term health concerns for survivors, job losses and a widespread economic meltdown sparked by large-scale lockdowns.
+
+## Hear from parents torn over sending kids back to school
+ - [https://www.cnn.com/videos/health/2020/08/04/arizona-parents-back-to-school-miguel-marquez-vpx.cnn](https://www.cnn.com/videos/health/2020/08/04/arizona-parents-back-to-school-miguel-marquez-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 16:26:15+00:00
+
+CNN's Miguel Marquez talks to four parents from the same school district in Arizona about sending their children back to school during the coronavirus pandemic.
+
+## Audi pulls 'insensitive' ad featuring girl eating banana in front of car
+ - [https://www.cnn.com/2020/08/04/business/audi-advert-pulled-intl-scli/index.html](https://www.cnn.com/2020/08/04/business/audi-advert-pulled-intl-scli/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 16:25:28+00:00
+
+Audi has apologized for an advert showing a young girl eating a banana in front of a premium car, admitting it was "insensitive" and promising not to use the image in future.
+
+## Watch President Trump's interview on Axios
+ - [https://www.cnn.com/videos/politics/2020/08/04/president-trump-axios-interview-vpx.cnn](https://www.cnn.com/videos/politics/2020/08/04/president-trump-axios-interview-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 16:09:26+00:00
+
+President Trump sat down with Axios reporter Jonathan Swan to discuss a wide variety of topics including the coronavirus pandemic.
+
+## Amazon was selling shoes using the N-word until a UK lawmaker complained
+ - [https://www.cnn.com/collections/intl-biz-0408/](https://www.cnn.com/collections/intl-biz-0408/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 15:16:10+00:00
+
+
+
+## 'SOS' in the sand saves Pacific island mariners
+ - [https://www.cnn.com/2020/08/03/asia/us-australian-micronesia-sos-pacific-island-rescue-intl-hnk-scli/index.html](https://www.cnn.com/2020/08/03/asia/us-australian-micronesia-sos-pacific-island-rescue-intl-hnk-scli/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 13:10:24+00:00
+
+An "SOS" message written on the beach of a tiny Pacific island pointed rescuers to three missing mariners, United States and Australian authorities said Tuesday.
+
+## Police say man shot at a store's employee after dispute over masks
+ - [https://www.cnn.com/videos/us/2020/08/04/man-gun-pennsylvania-cigar-shop-mxp-vpx.hln](https://www.cnn.com/videos/us/2020/08/04/man-gun-pennsylvania-cigar-shop-mxp-vpx.hln)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 13:00:23+00:00
+
+A Pennsylvania man is facing charges of attempted criminal homicide after he allegedly shot at an employee of a cigar shop who asked him to wear a mask.
+
+## 'So shameful': CNN political director reacts to Trump's comments on John Lewis
+ - [https://www.cnn.com/videos/politics/2020/08/04/donald-trump-john-lewis-axios-chalian-newday-vpx.cnn](https://www.cnn.com/videos/politics/2020/08/04/donald-trump-john-lewis-axios-chalian-newday-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 11:35:35+00:00
+
+CNN political director David Chalian responds to President Donald Trump's comments on late congressman and civil rights icon John Lewis, calling them "shameful."
+
+## Couple dies in same week of coronavirus leaving behind teen son
+ - [https://www.cnn.com/videos/us/2020/08/04/georgia-teen-loses-both-parents-to-coronavirus-cpt-intv-vpx.cnn](https://www.cnn.com/videos/us/2020/08/04/georgia-teen-loses-both-parents-to-coronavirus-cpt-intv-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 04:37:52+00:00
+
+17-year-old Justin Hunter tells CNN's Chris Cuomo about losing both of his parents, Angie and Eugene Hunter, to coronavirus in the same week.
+
+## Trump criticizes Birx for the first time after she issues coronavirus warnings
+ - [https://www.cnn.com/collections/intl-covid-19-08032020/](https://www.cnn.com/collections/intl-covid-19-08032020/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 01:53:30+00:00
+
+
+
+## 'Out of control': Distancing and masks no longer enough in US
+ - [https://www.cnn.com/2020/08/03/health/us-coronavirus-monday/index.html](https://www.cnn.com/2020/08/03/health/us-coronavirus-monday/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 01:31:54+00:00
+
+Once again, Covid-19 deaths are rising after weeks of record-breaking new cases and hospitalizations.
+
+## Leaked police bodycam video shows new details of George Floyd's fatal arrest
+ - [https://www.cnn.com/2020/08/03/us/george-floyd-police-body-camera-video-leak/index.html](https://www.cnn.com/2020/08/03/us/george-floyd-police-body-camera-video-leak/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 01:28:48+00:00
+
+In partial footage obtained by the Daily Mail from the body cameras worn by two of the now-former Minneapolis police officers involved in the arrest of George Floyd, a panicked Floyd can be seen struggling with officers while in the back of a squad car in the minutes before his death, saying, "I can't breathe."
+
+## What Hong Kong's iconic trams and ferries could look like in a post-Covid world
+ - [https://www.cnn.com/travel/article/hong-kong-tram-ferry-after-covid/index.html](https://www.cnn.com/travel/article/hong-kong-tram-ferry-after-covid/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 01:21:24+00:00
+
+Hong Kong's public transit system has long been regarded as one of the most efficient in the world, so it's no surprise that a ride on the famed tram, MTR or Star Ferry is a must on every traveler's bucket list.
+
+## Twitter could face a $250 million FTC fine for using phone numbers to target ads
+ - [https://www.cnn.com/2020/08/03/tech/twitter-ftc-fine/index.html](https://www.cnn.com/2020/08/03/tech/twitter-ftc-fine/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-08-04 00:26:29+00:00
+
+Twitter disclosed in a regulatory filing that it could face a fine of up to $250 million from US authorities over its use of phone numbers and email addresses to target advertisements.
+

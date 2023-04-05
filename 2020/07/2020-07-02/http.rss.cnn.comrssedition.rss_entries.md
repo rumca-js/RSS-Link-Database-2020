@@ -1,0 +1,324 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## Police unions in the US have shielded their officers, experts say
+ - [https://www.cnn.com/videos/us/2020/07/02/police-union-contracts-impact-officers-griffin-pkg-tsr-vpx.cnn](https://www.cnn.com/videos/us/2020/07/02/police-union-contracts-impact-officers-griffin-pkg-tsr-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 23:58:24+00:00
+
+Police unions are facing backlash across the country and experts say in many cities their contracts protect police from being held accountable for bad behavior. CNN's Drew Griffin reports.
+
+## Hugh Downs, anchor of '20/20' and 'Today,' dead at 99
+ - [https://www.cnn.com/2020/07/02/media/hugh-downs-obituary/index.html](https://www.cnn.com/2020/07/02/media/hugh-downs-obituary/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 22:15:44+00:00
+
+Hugh Downs, the versatile and Emmy-winning broadcaster whose decades-long TV career ranged from anchoring ABC News' "20/20" to the "Today" show to serving as Jack Paar's sidekick on "The Tonight Show," has died at his home in Scottsdale, Arizona. He was 99.
+
+## President Trump calls Russia intel a 'hoax.' Hear what John Bolton has to say.
+ - [https://www.cnn.com/videos/politics/2020/07/02/bolton-trump-russian-bounty-intel-lead-tapper-sot-vpx.cnn](https://www.cnn.com/videos/politics/2020/07/02/bolton-trump-russian-bounty-intel-lead-tapper-sot-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 20:24:45+00:00
+
+Former national security adviser to President Trump, John Bolton, says that it is hard for him to believe that the President was not informed about intelligence that suggested Russia might be offering bounties to kill US soldiers in Afghanistan.
+
+## CNN reporter goes inside Texas hospital. See why it brought him to tears.
+ - [https://www.cnn.com/videos/health/2020/07/02/texas-hospital-crowded-coronavirus-marquez-pkg-newday-vpx.cnn](https://www.cnn.com/videos/health/2020/07/02/texas-hospital-crowded-coronavirus-marquez-pkg-newday-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 19:40:49+00:00
+
+CNN's Miguel Marquez goes inside a San Antonio, Texas, hospital that is becoming overwhelmed with patients as the coronavirus pandemic continues to spread.
+
+## Sheriff warns protesters he will deputize gun owners
+ - [https://www.cnn.com/videos/us/2020/07/02/sheriff-darryl-daniels-deputize-gun-owners-orig-vstop-bdk.cnn](https://www.cnn.com/videos/us/2020/07/02/sheriff-darryl-daniels-deputize-gun-owners-orig-vstop-bdk.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 19:06:06+00:00
+
+A Florida sheriff is warning protesters that he will deputize lawful gun owners to quell protests that turn violent in his county.
+
+## The fastest-growing black hole in the universe has a massive appetite
+ - [https://www.cnn.com/2020/07/02/world/black-hole-fastest-growing-scn-trnd/index.html](https://www.cnn.com/2020/07/02/world/black-hole-fastest-growing-scn-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 18:28:22+00:00
+
+The fastest-growing black hole in the universe is 34 billion times the mass of our sun and feasts on a meal the equivalent of our sun each day, according to a new study.
+
+## Face shields AND face masks now mandatory on Qatar Airways
+ - [https://www.cnn.com/travel/article/face-shields-qatar-airways/index.html](https://www.cnn.com/travel/article/face-shields-qatar-airways/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 18:14:26+00:00
+
+Face masks on flights have quickly become the norm as travelers tentatively return to the skies, but Qatar Airways has taken this a step further, announcing that its passengers will be required to wear a face shield -- in addition to a face mask or face covering.
+
+## Emotional President of Honduras exits hospital after 16 days of Covid-19 treatment
+ - [https://www.cnn.com/2020/07/02/americas/honduras-president-covid-19-discharge-intl/index.html](https://www.cnn.com/2020/07/02/americas/honduras-president-covid-19-discharge-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 18:07:20+00:00
+
+An emotional President of Honduras was discharged from hospital on Thursday morning, 16 days after being diagnosed with Covid-19.
+
+## Senate approves final sanctions bill to punish China over Hong Kong
+ - [https://www.cnn.com/2020/07/02/politics/china-sanctions-hong-kong/index.html](https://www.cnn.com/2020/07/02/politics/china-sanctions-hong-kong/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 17:53:22+00:00
+
+The US Senate has approved a final version of legislation that would punish China for moves that lawmakers fear will crush democratic freedoms in Hong Kong.
+
+## Pro-democracy leader Nathan Law leaves Hong Kong
+ - [https://www.cnn.com/2020/07/02/asia/hong-kong-nathan-law-intl/index.html](https://www.cnn.com/2020/07/02/asia/hong-kong-nathan-law-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 17:43:10+00:00
+
+Nathan Law, a former lawmaker and prominent pro-democracy activist, has fled Hong Kong, he announced Thursday on Facebook. The news comes days after China's central government imposed a controversial national security law in the territory.
+
+## The unlikely history of fireworks
+ - [https://www.cnn.com/videos/us/2020/07/02/great-big-story-the-unlikely-history-of-fireworks-gbs.great-big-story](https://www.cnn.com/videos/us/2020/07/02/great-big-story-the-unlikely-history-of-fireworks-gbs.great-big-story)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 17:12:55+00:00
+
+Fireworks are synonymous with Independence Day in the United States, but how did they go from gunpowder to today's 4th of July firecrackers? While explosives date back thousands of years to ancient China, most people don't realize that modern fireworks came out of folklore.
+
+## Balloon trips to the edge of space by 2021
+ - [https://www.cnn.com/travel/article/spaceship-neptune-travel-scn/index.html](https://www.cnn.com/travel/article/spaceship-neptune-travel-scn/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 16:46:47+00:00
+
+If you're trying to avoid airborne viruses, heading to a near vacuum might not be the worst idea.
+
+## Scotland's Gaelic language could die out in 10 years, says study
+ - [https://www.cnn.com/2020/07/02/uk/gaelic-language-crisis-scli-intl-gbr/index.html](https://www.cnn.com/2020/07/02/uk/gaelic-language-crisis-scli-intl-gbr/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 16:38:13+00:00
+
+Gaelic-speaking communities in Scotland are in crisis and the language could die out within 10 years, according to a new study.
+
+## Hundreds arrested after police infiltrate secret criminal phone network
+ - [https://www.cnn.com/2020/07/02/uk/encrochat-crime-messaging-cracked-intl-gbr-scli/index.html](https://www.cnn.com/2020/07/02/uk/encrochat-crime-messaging-cracked-intl-gbr-scli/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 16:30:39+00:00
+
+An encrypted messaging service used exclusively by criminals has been infiltrated by police in a major operation, leading to hundreds of arrests and the seizure of firearms, drugs and millions of dollars in cash.
+
+## Maxwell was arrested this morning in New Hampshire
+ - [https://www.cnn.com/2020/07/02/us/ghislaine-maxwell-jeffrey-epstein/index.html](https://www.cnn.com/2020/07/02/us/ghislaine-maxwell-jeffrey-epstein/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 15:51:02+00:00
+
+Ghislaine Maxwell was arrested Thursday morning in connection with the Jeffrey Epstein investigation, according to a person familiar with the matter.
+
+## Many feared trapped by landslide at jade mine
+ - [https://www.cnn.com/2020/07/02/asia/myanmar-jade-mine-landslide-intl-hnk/index.html](https://www.cnn.com/2020/07/02/asia/myanmar-jade-mine-landslide-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 14:49:34+00:00
+
+At least 126 people have died and others are feared trapped after a landslide at a jade mine in northern Myanmar's Kachin State, according to officials.
+
+## A Black man tries to cash his first paycheck. The bank teller calls 911.
+ - [https://www.cnn.com/2020/07/02/us/banking-while-black-racism-trnd/index.html](https://www.cnn.com/2020/07/02/us/banking-while-black-racism-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 14:41:12+00:00
+
+Paul McCowns walked into an Ohio bank clutching his first paycheck from a new job at an electric company. But instead of cashing the check worth about $1,000, the teller called 911, he says.
+
+## Jeff Bezos is richer than ever
+ - [https://www.cnn.com/2020/07/02/investing/jeff-bezos-wealth/index.html](https://www.cnn.com/2020/07/02/investing/jeff-bezos-wealth/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 14:22:20+00:00
+
+The economy might be a shambles, but Jeff Bezos' wallet couldn't tell. He's now worth nearly $172 billion, a new record for the world's richest person, according to Bloomberg Billionaire Index.
+
+## West Indies cricket legend Sir Everton Weekes dies aged 95
+ - [https://www.cnn.com/2020/07/02/sport/everton-weekes-obituary-spt-intl/index.html](https://www.cnn.com/2020/07/02/sport/everton-weekes-obituary-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 14:21:55+00:00
+
+The cricket world is in mourning after West Indies cricket legend Everton Weekes died at the age of 95.
+
+## More than 360 elephants mysteriously died. Some fell 'flat on their faces.'
+ - [https://www.cnn.com/2020/07/02/africa/botswana-elephants-mystery-intl-hnk/index.html](https://www.cnn.com/2020/07/02/africa/botswana-elephants-mystery-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 13:53:50+00:00
+
+More than 360 elephants have died in mysterious circumstances in Botswana in the past three months, according to local conservationists.
+
+## Fans flout social distancing rules at Bulgarian Cup final
+ - [https://www.cnn.com/2020/07/02/football/bulgaria-football-cup-final-coronavirus-spt-intl/index.html](https://www.cnn.com/2020/07/02/football/bulgaria-football-cup-final-coronavirus-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 13:51:01+00:00
+
+Thousands of football fans attended the Bulgarian Cup final between Lokomotiv Plovdiv and CSKA Sofia on Wednesday, where social distancing measures appeared to be ignored in the stands.
+
+## US hospitals prepare for another surge as Covid-19 cases climb
+ - [https://www.cnn.com/collections/intl-us-coronavirus-0702/](https://www.cnn.com/collections/intl-us-coronavirus-0702/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 13:27:19+00:00
+
+
+
+## Prince Harry says institutional racism is 'endemic' in society
+ - [https://www.cnn.com/2020/07/02/europe/prince-harry-institutional-racism-endemic-intl-scli/index.html](https://www.cnn.com/2020/07/02/europe/prince-harry-institutional-racism-endemic-intl-scli/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 13:08:28+00:00
+
+Prince Harry has said that institutional racism is "endemic" in society and apologized that not enough has been done to combat it.
+
+## Ex-F1 chief Ecclestone is a father at 89
+ - [https://www.cnn.com/2020/07/02/motorsport/ecclestone-flosi-baby-born-scli-intl-gbr/index.html](https://www.cnn.com/2020/07/02/motorsport/ecclestone-flosi-baby-born-scli-intl-gbr/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 12:53:21+00:00
+
+Former Formula One mogul Bernie Ecclestone, 89, and wife Fabiana Flosi, 44, have announced the birth of their son.
+
+## Trump's anti-mask crusade is coming back to haunt him
+ - [https://www.cnn.com/collections/trump-coronarvius-intl/](https://www.cnn.com/collections/trump-coronarvius-intl/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 12:39:42+00:00
+
+
+
+## Groom dies two days after wedding, 80 people get coronavirus
+ - [https://www.cnn.com/2020/07/02/asia/india-wedding-coronavirus-infections-scli-intl/index.html](https://www.cnn.com/2020/07/02/asia/india-wedding-coronavirus-infections-scli-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 12:36:56+00:00
+
+A groom died two days after his wedding in eastern India after becoming infected with coronavirus, with 80 people linked to the ceremony testing positive for Covid-19.
+
+## Slain singer buried as 81 killed in protests
+ - [https://www.cnn.com/2020/07/02/africa/ethiopian-singer-buried-protests-intl/index.html](https://www.cnn.com/2020/07/02/africa/ethiopian-singer-buried-protests-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 12:29:42+00:00
+
+At least 81 people are dead in Ethiopia in massive protests that erupted after the killing of singer and activist Hachalu Hundessa, local police commissioner told state media.
+
+## Lewis Hamilton, Formula One's voice and conscience
+ - [https://www.cnn.com/2020/07/02/motorsport/lewis-hamilton-formula-one-2020-season-spt-intl/index.html](https://www.cnn.com/2020/07/02/motorsport/lewis-hamilton-formula-one-2020-season-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 11:56:54+00:00
+
+On a karting track in southeast England, an eight-year-old Lewis Hamilton has the measure of his rivals. He is flying around the course. He is quicker than the other boys and, though these are supposed to be carefree years, is racing with the intensity of someone who is eager to make an impression.
+
+## New security law sparks protests in Hong Kong
+ - [https://www.cnn.com/2020/07/01/asia/gallery/hong-kong-unrest-2020/index.html](https://www.cnn.com/2020/07/01/asia/gallery/hong-kong-unrest-2020/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 11:52:00+00:00
+
+For a second summer in a row, political unrest has returned to the streets of Hong Kong.
+
+## UK court blocks Maduro's bid to access $1 billion in Venezuelan gold
+ - [https://www.cnn.com/2020/07/02/business/venezuela-bank-of-england-gold-ruling/index.html](https://www.cnn.com/2020/07/02/business/venezuela-bank-of-england-gold-ruling/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 11:51:23+00:00
+
+Venezuela's embattled ruler Nicolás Maduro has been denied access to roughly $1 billion in gold reserves held by the Bank of England after a UK court ruled that the British government has recognized Juan Guaidó as president.
+
+## Chat bots are becoming uncannily human. Can they be our friends?
+ - [https://www.cnn.com/style/article/tech-loneliness-replika-wellness/index.html](https://www.cnn.com/style/article/tech-loneliness-replika-wellness/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 11:19:50+00:00
+
+My phone lights up with a notification for a new message: "Do you think two people who had a relationship can ever be friends after it's over?"
+
+## He posted his regrets over attending a party in California. The next day, he died of coronavirus
+ - [https://www.cnn.com/2020/07/02/us/california-thomas-macias-coronavirus/index.html](https://www.cnn.com/2020/07/02/us/california-thomas-macias-coronavirus/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 10:20:48+00:00
+
+A Southern California man who tested positive for coronavirus after attending a party expressed his fear and regret a day before he died.
+
+## Conspiracy-Theorist-in-Chief clears the way for fringe candidates to go mainstream
+ - [https://www.cnn.com/2020/07/02/politics/trump-conspiracy-theorists-qanon/index.html](https://www.cnn.com/2020/07/02/politics/trump-conspiracy-theorists-qanon/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 10:05:47+00:00
+
+For three years, President Donald Trump has served as the Conspiracy-Theorist-in-Chief, elevating wild and outlandish ideas that once only existed in the dark provinces of the internet.
+
+## Japan debuts new bullet train that can run during an earthquake
+ - [https://www.cnn.com/travel/article/japan-new-shinkansen-model-n700s/index.html](https://www.cnn.com/travel/article/japan-new-shinkansen-model-n700s/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 09:46:20+00:00
+
+Japan's latest record-breaking bullet train doesn't only run faster and smoother -- it's also able to transport passengers to safety in the event of an earthquake.
+
+## 15-year-old girl among 370 arrested as China-backed law takes hold in Hong Kong
+ - [https://www.cnn.com/collections/intl-hong-kong-070220/](https://www.cnn.com/collections/intl-hong-kong-070220/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 09:04:28+00:00
+
+
+
+## Five days of death as Covid-19 strikes an indigenous community in Brazil
+ - [https://www.cnn.com/collections/intl-coronavirus-international-0702/](https://www.cnn.com/collections/intl-coronavirus-international-0702/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 08:44:12+00:00
+
+
+
+## 'It looks like a virus': Australia's new trade logo proves controversial
+ - [https://www.cnn.com/style/article/australia-logo-design/index.html](https://www.cnn.com/style/article/australia-logo-design/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 08:43:36+00:00
+
+Partly inspired by Aboriginal art and culture, a new logo promoting Australia's interests overseas has proven divisive, with some likening the design to depictions of the coronavirus.
+
+## Court sides with publisher of tell-all book by Trump's niece
+ - [https://www.cnn.com/2020/07/01/media/mary-trump-book-reliable-sources/index.html](https://www.cnn.com/2020/07/01/media/mary-trump-book-reliable-sources/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 08:14:35+00:00
+
+A version of this article first appeared in the "Reliable Sources" newsletter. You can sign up for free right here.
+
+## Recently released giant tortoises settle back on their island
+ - [https://www.cnn.com/videos/travel/2020/06/30/tortoises-galapagos-espanola-breeding-program-lon-orig-mrg.cnn](https://www.cnn.com/videos/travel/2020/06/30/tortoises-galapagos-espanola-breeding-program-lon-orig-mrg.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 08:13:45+00:00
+
+Fifteen recently released Española tortoises are settling back in their natural habitat after they spent decades in a breeding program to save their species from extinction.
+
+## Warning: The world won't hit climate goals unless energy innovation is rapidly accelerated
+ - [https://www.cnn.com/2020/07/02/business/climate-change-clean-energy-iea/index.html](https://www.cnn.com/2020/07/02/business/climate-change-clean-energy-iea/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 08:08:19+00:00
+
+Solar and wind power are booming. Electric vehicles are so promising that Tesla is now worth more than ExxonMobil. Coal is collapsing.
+
+## Ending poverty in 2020 was going to be Xi's crowning achievement. Coronavirus might have ruined it
+ - [https://www.cnn.com/2020/07/01/economy/china-xi-coronavirus-poverty-alleviation-intl-hnk/index.html](https://www.cnn.com/2020/07/01/economy/china-xi-coronavirus-poverty-alleviation-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 08:08:01+00:00
+
+This was supposed to be the year that Beijing would announce it had ended absolute poverty in China, fulfilling a key pledge of President Xi Jinping and one of the founding missions of the Chinese Communist Party.
+
+## They were arrested for breaking lockdown rules. Then they died in police custody
+ - [https://www.cnn.com/2020/07/01/asia/tamil-nadu-deaths-custody-intl-hnk/index.html](https://www.cnn.com/2020/07/01/asia/tamil-nadu-deaths-custody-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 05:41:29+00:00
+
+Indian police officers could face murder charges over the deaths of a father and son in custody, while under arrest for breaking coronavirus restrictions, a court has ruled.
+
+## A healthy 30-year-old man went to a crowded bar. He ended up in a hospital on a breathing tube
+ - [https://www.cnn.com/2020/07/01/us/arizona-man-crowded-bar-covid-hospital/index.html](https://www.cnn.com/2020/07/01/us/arizona-man-crowded-bar-covid-hospital/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 03:52:10+00:00
+
+Covid-19 was the last thing on his mind when he went to a crowded bar in Scottsdale, Arizona, Jimmy Flores said.
+
+## Young daughter crashing mom's live BBC interview will be the best thing you see today
+ - [https://www.cnn.com/videos/media/2020/07/01/children-interrupt-live-tv-interview-bbc-sky-news-orig-llr.cnn](https://www.cnn.com/videos/media/2020/07/01/children-interrupt-live-tv-interview-bbc-sky-news-orig-llr.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 01:45:42+00:00
+
+Two live home interviews on BBC and Sky News in England had adorable interruptions on the same day.
+
+## Western addicts head to Thailand for extreme detox treatments
+ - [https://www.cnn.com/travel/article/detox-rehab-facilities-thailand/index.html](https://www.cnn.com/travel/article/detox-rehab-facilities-thailand/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 01:33:03+00:00
+
+Kneeling beside a gutter within a walled compound adjoining a complex of golden-roofed temples, 50 men in red pajamas with the word "overcome" on the back are sweating under the midday sun.
+
+## 'Absolutely ridiculous': Mayor threatened after mask mandate
+ - [https://www.cnn.com/videos/politics/2020/07/02/kansas-city-quinton-lucas-mayor-death-threats-masks-sot-vpx-ebof.cnn](https://www.cnn.com/videos/politics/2020/07/02/kansas-city-quinton-lucas-mayor-death-threats-masks-sot-vpx-ebof.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-02 00:32:15+00:00
+
+Kansas City, Missouri, Mayor Quinton Lucas describes receiving a death threat and racist text messages after mandating the use of face coverings while in public.
+

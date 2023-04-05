@@ -1,0 +1,340 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## A teenager created an anti-racism calendar to make it easier for everyone to become an ally
+ - [https://www.cnn.com/2020/07/17/us/anitracism-instagram-calendar-trnd/index.html](https://www.cnn.com/2020/07/17/us/anitracism-instagram-calendar-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 23:52:38+00:00
+
+A Vermont teen found a way to creatively help others grow into becoming better allies for the people of color in their communities with an anti-racist calendar.
+
+## Why Silicon Valley's biggest companies are investing billions in India
+ - [https://www.cnn.com/2020/07/17/tech/google-facebook-india-investment-jio/index.html](https://www.cnn.com/2020/07/17/tech/google-facebook-india-investment-jio/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 23:31:27+00:00
+
+Since the start of 2020, the biggest names in US tech have invested around $17 billion in India.
+
+## Doctors sound alarm over 'Covid parties'
+ - [https://www.cnn.com/videos/health/2020/07/17/coronavirus-cases-covid-parties-todd-pkg-vpx-tsr.cnn](https://www.cnn.com/videos/health/2020/07/17/coronavirus-cases-covid-parties-todd-pkg-vpx-tsr.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 23:25:44+00:00
+
+CNN's Brian Todd investigates so-called 'Covid parties' as the number of hospitalized coronavirus patients continue to rise.
+
+## What Fauci's boss would do if asked by Trump to fire him
+ - [https://www.cnn.com/videos/health/2020/07/17/francis-collins-anthony-fauci-boss-fire-white-house-nih-coronavirus-tsr-vpx.cnn](https://www.cnn.com/videos/health/2020/07/17/francis-collins-anthony-fauci-boss-fire-white-house-nih-coronavirus-tsr-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 22:59:24+00:00
+
+Director of the National Institutes of Health Dr. Francis Collins, who is Dr. Anthony Fauci's boss, is asked about what he would do if he were asked by President Trump to fire Fauci.
+
+## White House blocks CDC from testifying on reopening schools
+ - [https://www.cnn.com/collections/intl-us-coronavirus-0717/](https://www.cnn.com/collections/intl-us-coronavirus-0717/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 22:43:44+00:00
+
+
+
+## Instagram's TikTok clone is going global
+ - [https://www.cnn.com/2020/07/17/tech/instagram-reels-global-launch/index.html](https://www.cnn.com/2020/07/17/tech/instagram-reels-global-launch/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 22:01:07+00:00
+
+Instagram believes that it can do TikTok better than TikTok — and this August, people will be able to decide for themselves.
+
+## Mysterious arrest video with unidentified police raises questions
+ - [https://www.cnn.com/videos/politics/2020/07/17/unidentified-police-arrests-oregon-lead-vpx.cnn](https://www.cnn.com/videos/politics/2020/07/17/unidentified-police-arrests-oregon-lead-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 21:49:45+00:00
+
+A mysterious video of unidentified police arresting a protester and putting him in an unmarked vehicle has been shared widely online, including by a US senator who called it "authoritarianism." US Customs and Border Protection says the person detained in the video was suspected of assaulting federal agents.
+
+## Trump taxes judgment to be issued quickly, Supreme Court says
+ - [https://www.cnn.com/2020/07/17/politics/vance-trump-taxes-grand-jury/index.html](https://www.cnn.com/2020/07/17/politics/vance-trump-taxes-grand-jury/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 21:32:05+00:00
+
+The US Supreme Court granted the Manhattan district attorney's request to immediately issue its judgment in the case over President Donald Trump's tax returns, paving the way for new challenges to a grand jury subpoena to be handled by a lower court judge.
+
+## CNN obtains footage showing inside a Russian research lab
+ - [https://www.cnn.com/videos/world/2020/07/17/russia-coronavirus-vaccine-trials-lab-concerns-cyberattack-chance-dnt-lead-vpx.cnn](https://www.cnn.com/videos/world/2020/07/17/russia-coronavirus-vaccine-trials-lab-concerns-cyberattack-chance-dnt-lead-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 21:17:16+00:00
+
+Footage from inside a tightly controlled research lab in Moscow offers CNN an exclusive glimpse inside Russia's rapid push for a coronavirus vaccine. CNN's Matthew Chance reports the race for a vaccine raises concerns the nation may be cutting legal and ethical corners.
+
+## Journalist Jemele Hill weighs in on NBA star Kareem Abdul-Jabbar's op-ed
+ - [https://www.cnn.com/videos/us/2020/07/17/jemele-hill-anti-semitism-kareem-abdul-jabbar-lemon-sot-ctn-vpx.cnn](https://www.cnn.com/videos/us/2020/07/17/jemele-hill-anti-semitism-kareem-abdul-jabbar-lemon-sot-ctn-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 20:50:06+00:00
+
+CNN's Don Lemon talks to journalist Jemele Hill about an op-ed penned by former NBA star Kareem Abdul-Jabbar on anti-semitism in sports and Hollywood.
+
+## Tech CEO's assistant charged over his killing and dismemberment
+ - [https://www.cnn.com/2020/07/17/us/fahim-saleh-killing/index.html](https://www.cnn.com/2020/07/17/us/fahim-saleh-killing/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 20:19:52+00:00
+
+
+
+## NBA star James Harden criticized for wearing Blue Lives Matter face mask
+ - [https://www.cnn.com/2020/07/17/us/james-harden-face-mask-trnd/index.html](https://www.cnn.com/2020/07/17/us/james-harden-face-mask-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 20:03:07+00:00
+
+Houston Rockets shooting guard James Harden is taking some heat on social media for sporting a face mask with a thin blue line, a symbol that represents the Blue Lives Matter non-profit organization.
+
+## Will Trump send his son back to school? See Kellyanne Conway's response
+ - [https://www.cnn.com/videos/politics/2020/07/17/kellyanne-conway-trump-son-return-to-school-sot-nr-vpx.cnn](https://www.cnn.com/videos/politics/2020/07/17/kellyanne-conway-trump-son-return-to-school-sot-nr-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 19:19:14+00:00
+
+White House senior adviser Kellyanne Conway says it will be a personal decision by President Donald Trump and First Lady Melania Trump whether they decide to send their teenage son back to school during the coronavirus pandemic.
+
+## Drone footage shows former copper mine turning river orange
+ - [https://www.cnn.com/videos/world/2020/07/17/russia-acid-mine-water-jba-lon-orig.cnn](https://www.cnn.com/videos/world/2020/07/17/russia-acid-mine-water-jba-lon-orig.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 19:13:30+00:00
+
+Water from a former copper mine runs into a river in the Russian Ural mountains.
+
+## Ruth Bader Ginsburg announces cancer recurrence
+ - [https://www.cnn.com/2020/07/17/politics/ruth-bader-ginsburg-cancer-chemotherapy/index.html](https://www.cnn.com/2020/07/17/politics/ruth-bader-ginsburg-cancer-chemotherapy/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 17:11:42+00:00
+
+Justice Ruth Bader Ginsburg said Friday she is undergoing chemotherapy to treat a recurrence of cancer. The treatment is yielding "positive results."
+
+## Spain orders cull of nearly 100,000 farmed mink after positive Covid-19 tests
+ - [https://www.cnn.com/collections/covid-animals-intl-071720/](https://www.cnn.com/collections/covid-animals-intl-071720/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 16:55:21+00:00
+
+
+
+## Princess Beatrice, daughter of Prince Andrew, marries in secret ceremony in front of Queen
+ - [https://www.cnn.com/2020/07/17/uk/princess-beatrice-royal-secret-wedding-scli-gbr-intl/index.html](https://www.cnn.com/2020/07/17/uk/princess-beatrice-royal-secret-wedding-scli-gbr-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 16:49:47+00:00
+
+Princess Beatrice, the daughter of Prince Andrew and Sarah, Duchess of York, has married her fiancé in a secret wedding at Windsor Castle attended by Queen Elizabeth II.
+
+## John King: We thought this was troublesome. You see the trend now
+ - [https://www.cnn.com/videos/health/2020/07/17/fauci-second-wave-coronavirus-king-ip-vpx.cnn](https://www.cnn.com/videos/health/2020/07/17/fauci-second-wave-coronavirus-king-ip-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 16:43:21+00:00
+
+Dr. Anthony Fauci said that instead of focusing on a second wave of coronavirus, the US needs to focus on the alarming increase of coronavirus cases happening now.
+
+## Chicago mayor to White House press secretary: 'Hey, Karen. Watch your mouth'
+ - [https://www.cnn.com/collections/mcenany-intl-071720/](https://www.cnn.com/collections/mcenany-intl-071720/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 16:41:13+00:00
+
+
+
+## Ancient human ancestors carved a handaxe from a hippo femur 1.4 million years ago, study says
+ - [https://www.cnn.com/2020/07/17/world/ancient-tool-hippo-handaxe-scn-trnd/index.html](https://www.cnn.com/2020/07/17/world/ancient-tool-hippo-handaxe-scn-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 16:15:59+00:00
+
+Early human ancestors used advanced techniques to craft a handaxe from the femur of a hippopotamus 1.4 million years ago, according to a new study.
+
+## Building a prosthetic arm with Lego
+ - [https://www.cnn.com/videos/style/2020/07/17/great-big-story-lego-prosthetic-arm-gbs.great-big-story](https://www.cnn.com/videos/style/2020/07/17/great-big-story-lego-prosthetic-arm-gbs.great-big-story)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 16:13:26+00:00
+
+Ever since he was a kid, David Aguilar was obsessed with Lego. He spent his childhood building cars, planes, helicopters, and eventually, his own prosthetic. Born with a deformed arm, the self-named "Hand Solo" decided to take his Lego-building skills to the next level. At age 18, he perfected his designs with the MK2, a prosthetic arm with the ability to bend and pick up objects with a pincer-like grip. Now, he's the coolest kid on the block.
+
+## The story of one woman, four men, a tiny boat and a hungry polar bear
+ - [https://www.cnn.com/travel/article/svalbard-norway-arctic-ice/index.html](https://www.cnn.com/travel/article/svalbard-norway-arctic-ice/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 15:58:29+00:00
+
+The summer before I turned 40 -- with my fertility ebbing, as everyone with a vested interest in such things felt the need to remind me -- I decided to set sail on the biggest adventure of my life.
+
+## No, NASA didn't create a 13th zodiac sign
+ - [https://www.cnn.com/2020/07/17/us/nasa-13th-zodiac-trnd/index.html](https://www.cnn.com/2020/07/17/us/nasa-13th-zodiac-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 15:54:43+00:00
+
+NASA scientists do not study astrology; nor are they responsible for the creation of a little-known 13th zodiac sign.
+
+## The signs of a Democratic landslide are everywhere
+ - [https://www.cnn.com/2020/07/17/politics/democrats-republicans-2020-election-trump-house-senate/index.html](https://www.cnn.com/2020/07/17/politics/democrats-republicans-2020-election-trump-house-senate/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 14:13:57+00:00
+
+With just more than 100 days left before the 2020 election, there are an increasing number of red flags that suggest Republicans are headed toward a disastrous result at the ballot box this fall.
+
+## Want to go camping? Follow these Covid-19 safety tips
+ - [https://www.cnn.com/travel/article/camping-safety-tips-covid-19/index.html](https://www.cnn.com/travel/article/camping-safety-tips-covid-19/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 14:02:17+00:00
+
+"Keep close to Nature's heart ... and break clear away, once in a while, and climb a mountain or spend a week in the woods. Wash your spirit clean." -- Scottish-American natural John Muir
+
+## Ingenuity will be the first helicopter to fly on Mars
+ - [https://www.cnn.com/2020/07/17/world/mars-ingenuity-helicopter-scn/index.html](https://www.cnn.com/2020/07/17/world/mars-ingenuity-helicopter-scn/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 13:17:44+00:00
+
+When NASA's Perseverance rover launches at the end of this month, an experiment named Ingenuity will be safely tucked beneath the rover for the seven-month journey. Ingenuity will be the first helicopter to attempt flight on another planet.
+
+## A US travel ban would bar China's top billionaire entrepreneurs from America
+ - [https://www.cnn.com/2020/07/17/business/us-travel-ban-chinese-entrepreneurs-intl-hnk/index.html](https://www.cnn.com/2020/07/17/business/us-travel-ban-chinese-entrepreneurs-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 11:50:42+00:00
+
+The Trump administration is reportedly considering a ban on travel to the United States by all members of the Chinese Communist Party and their families. That could have major consequences for China's wealthiest entrepreneurs and business leaders.
+
+## Messi labels Barcelona a 'weak' team following shock defeat
+ - [https://www.cnn.com/2020/07/17/football/lionel-messi-rant-barcelona-osasuna-la-liga-spt-intl/index.html](https://www.cnn.com/2020/07/17/football/lionel-messi-rant-barcelona-osasuna-la-liga-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 11:24:23+00:00
+
+At the same time Real Madrid coach Zinedine Zidane was being joyously thrown into the air by his team, Barcelona's dejected players trudged off the pitch at the Camp Nou.
+
+## The thrill of tuk-tuk racing
+ - [https://www.cnn.com/2020/07/17/sport/tuk-tuk-racing-sri-lanka-spt-intl/index.html](https://www.cnn.com/2020/07/17/sport/tuk-tuk-racing-sri-lanka-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 11:13:37+00:00
+
+Tuk-tuks are three-wheeled motor vehicles widely used in Sri Lanka and southern Asia.
+
+## Battling wind and rustiness, Tiger Woods feels 'good' in return to action
+ - [https://www.cnn.com/2020/07/17/golf/tiger-woods-first-round-memorial-tournament-golf-spt-intl/index.html](https://www.cnn.com/2020/07/17/golf/tiger-woods-first-round-memorial-tournament-golf-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 10:20:44+00:00
+
+During any normal golf tournament, the words "on the tee, Tiger Woods" are usually followed by rapturous applause from the gathered crowd.
+
+## Mary Trump's book breaks record with mammoth sales
+ - [https://www.cnn.com/2020/07/16/media/mary-trump-book-sales/index.html](https://www.cnn.com/2020/07/16/media/mary-trump-book-sales/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 07:42:16+00:00
+
+Mary Trump's tell-all book had sold a staggering 950,000 copies by the end of its first day on sale, publisher Simon & Schuster said Thursday.
+
+## US reports more than 77,000 new coronavirus cases -- the highest jump so far
+ - [https://www.cnn.com/world/live-news/coronavirus-pandemic-07-17-20-intl/index.html](https://www.cnn.com/world/live-news/coronavirus-pandemic-07-17-20-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 07:39:22+00:00
+
+• UN aid chief: 'Failure to act now will leave the virus free to circle round the globe'
+• Florida governor blames the media; CNN anchor rolls the tape
+• Hospital owner allegedly faked thousands of Covid-19 tests
+
+## Dutch city cuts ties with Polish twin over 'LGBT-free zone'
+ - [https://www.cnn.com/2020/07/16/europe/netherlands-twin-city-poland-lgbt-scli-intl/index.html](https://www.cnn.com/2020/07/16/europe/netherlands-twin-city-poland-lgbt-scli-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 06:16:27+00:00
+
+A city in the Netherlands has severed ties with its sister city in Poland after the latter declared itself an "LGBT-free zone."
+
+## US Navy aircraft carriers resume rare dual exercises in the South China Sea
+ - [https://www.cnn.com/2020/07/17/asia/us-navy-aircraft-carriers-south-china-sea-intl-hnk-scli/index.html](https://www.cnn.com/2020/07/17/asia/us-navy-aircraft-carriers-south-china-sea-intl-hnk-scli/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 06:09:58+00:00
+
+Two US Navy aircraft carriers have resumed rare dual exercises in the South China Sea, the second time this month the massive warships have teamed up in the contested waters.
+
+## Trump's outrageous refusal to lead is making the pandemic worse
+ - [https://www.cnn.com/2020/07/17/politics/donald-trump-leadership-coronavirus/index.html](https://www.cnn.com/2020/07/17/politics/donald-trump-leadership-coronavirus/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 06:02:43+00:00
+
+• Analysis: Even Trump knows he is in deep, deep trouble
+
+## India's rich can't flee the pandemic. That's given some new empathy for the poor
+ - [https://www.cnn.com/2020/07/16/asia/india-wealth-gap-coronavirus-intl-hnk/index.html](https://www.cnn.com/2020/07/16/asia/india-wealth-gap-coronavirus-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 05:16:08+00:00
+
+India passed 1 million confirmed coronavirus cases Friday, after its health ministry reported a record 34,956 new infections in just 24 hours.
+
+## Five-year-old boy allegedly raped by group of children on remote Australian beach
+ - [https://www.cnn.com/2020/07/17/australia/australia-queensland-rape-boy-intl-hnk/index.html](https://www.cnn.com/2020/07/17/australia/australia-queensland-rape-boy-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 05:07:13+00:00
+
+A five-year-old boy was allegedly raped by three children in northern Australia earlier this month, police said.
+
+## Watch Tina Fey's pandemic-inspired '30 Rock' special
+ - [https://www.cnn.com/videos/entertainment/2020/07/17/30-rock-comedy-special-reunion-tina-fey-alec-baldwin-eg-orig.cnn](https://www.cnn.com/videos/entertainment/2020/07/17/30-rock-comedy-special-reunion-tina-fey-alec-baldwin-eg-orig.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 04:00:09+00:00
+
+Cast members of the beloved NBC sitcom "30 Rock" got back together for a remotely filmed comedy special.
+
+## UN aid chief to wealthy nations: 'Failure to act now will leave the virus free to circle round the globe'
+ - [https://www.cnn.com/2020/07/16/asia/united-nations-coronavirus-aid-intl-hnk/index.html](https://www.cnn.com/2020/07/16/asia/united-nations-coronavirus-aid-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 03:33:06+00:00
+
+The United Nations' top official in charge of humanitarian aid has criticized the world's wealthy industrialized nations for their "short sighted" response to the Covid-19 pandemic, warning that their failure to support the developing world could exacerbate the effects of the global health crisis for tens of millions of people.
+
+## Former game show host tweets that his son has Covid-19
+ - [https://www.cnn.com/videos/us/2020/07/17/chuck-woolery-son-tests-positive-covid19-tweet-trump-ctn-sot-vpx.cnn](https://www.cnn.com/videos/us/2020/07/17/chuck-woolery-son-tests-positive-covid19-tweet-trump-ctn-sot-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 03:25:41+00:00
+
+Former game show host Chuck Woolery's son has Covid-19, according to a spokesperson for Woolery. Woolery, who has since deactivated his Twitter account, said in his last posted tweet: "Covid-19 is real and it is here."
+
+## CNN's Don Lemon is still in disbelief at this Trump quote
+ - [https://www.cnn.com/videos/politics/2020/07/17/dons-take-laughs-trump-disbelief-masks-coronavirus-travel-ban-ctn-vpx.cnn](https://www.cnn.com/videos/politics/2020/07/17/dons-take-laughs-trump-disbelief-masks-coronavirus-travel-ban-ctn-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 03:10:54+00:00
+
+CNN's Don Lemon wonders how anyone believes Donald Trump, saying that the President's own words about downplaying the Covid-19 pandemic should tell people everything they need to know.
+
+## At least 15 women are accusing Washington Redskins staffers of sexual harassment, report says
+ - [https://www.cnn.com/2020/07/16/us/washington-redskins-sexual-harassment-allegations/index.html](https://www.cnn.com/2020/07/16/us/washington-redskins-sexual-harassment-allegations/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 02:29:23+00:00
+
+The Washington Redskins have launched an internal investigation after 15 former female employees and two journalists who covered the team accused team staffers of sexual harassment and verbal abuse, the team told CNN.
+
+## Stunning Great Barrier Reef island, once won in a poker game, is up for sale
+ - [https://www.cnn.com/travel/article/pumpkin-island-great-barrier-reef-sale/index.html](https://www.cnn.com/travel/article/pumpkin-island-great-barrier-reef-sale/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 01:31:26+00:00
+
+A fully serviced private island in Australia's Southern Great Barrier Reef is now on the market  -- just in time for those who want a place to ride out the Covid-19 pandemic.
+
+## Dr. Gupta's tips for hosting a BBQ during a pandemic
+ - [https://www.cnn.com/videos/health/2020/07/16/bbq-cookout-safety-sanjay-gupta-coronavirus-town-hall-sot-vpx.cnn](https://www.cnn.com/videos/health/2020/07/16/bbq-cookout-safety-sanjay-gupta-coronavirus-town-hall-sot-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 01:10:17+00:00
+
+With many traditional summer activities affected by the coronavirus pandemic, CNN's Dr. Sanjay Gupta demonstrates how to safely host a backyard BBQ.
+
+## Closest ever images of sun reveal something scientists had never seen
+ - [https://www.cnn.com/2020/07/16/world/solar-orbiter-first-closest-images-sun-campfires-scn-trnd/index.html](https://www.cnn.com/2020/07/16/world/solar-orbiter-first-closest-images-sun-campfires-scn-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 01:03:26+00:00
+
+Our sun was ready for its close-up last month, and the new Solar Orbiter mission captured the closest images ever taken of the sun during its first pass. The images were released on Thursday.
+
+## See meeting abruptly end after turning into anti-mask protest
+ - [https://www.cnn.com/videos/us/2020/07/16/utah-county-commission-meeting-tanner-ainge-anti-mask-protest-coronavirus-ebof-vpx.cnn](https://www.cnn.com/videos/us/2020/07/16/utah-county-commission-meeting-tanner-ainge-anti-mask-protest-coronavirus-ebof-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 00:29:01+00:00
+
+Utah County Commission Chair, Tanner Ainge, had to shut down an overcrowded meeting when the crowd erupted into an anti-mask protest after the discussion turned to face mask mandates in schools.
+
+## How New Zealand became the apocalypse bunker of the world
+ - [https://www.cnn.com/2020/07/15/business/bunkers-new-zealand-intl-hnk/index.html](https://www.cnn.com/2020/07/15/business/bunkers-new-zealand-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 00:28:24+00:00
+
+In Queenstown — a picturesque ski spot that often attracts comparisons to Aspen, Colorado — rumors about foreigners investing in apocalypse-proof bunkers have been swirling for years.
+
+## A teen on her first skydive and a veteran instructor died when their chutes failed
+ - [https://www.cnn.com/2020/07/16/us/georgia-teen-dies-skydiving-trnd/index.html](https://www.cnn.com/2020/07/16/us/georgia-teen-dies-skydiving-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-07-17 00:20:15+00:00
+
+Jeanna Triplicata wasn't a thrill-seeker, but she decided to try something daring after graduating high school: going skydiving for the first time.
+

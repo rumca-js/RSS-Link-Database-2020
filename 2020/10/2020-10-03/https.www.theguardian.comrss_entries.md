@@ -1,0 +1,485 @@
+# Source:The Guardian, URL:https://www.theguardian.com/rss, language:en-UK
+
+## Confusion mounts over Trump's true condition after doctor's Covid briefing – live
+ - [https://www.theguardian.com/us-news/live/2020/oct/03/donald-trump-covid-19-coronavirus-hospital-white-house-live-latest-news-updates](https://www.theguardian.com/us-news/live/2020/oct/03/donald-trump-covid-19-coronavirus-hospital-white-house-live-latest-news-updates)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 17:58:50+00:00
+
+<ul><li><a href="https://www.theguardian.com/us-news/live/2020/oct/03/donald-trump-covid-19-coronavirus-hospital-white-house-live-latest-news-updates?page=with:block-5f78a3348f080b5d569e3f24#block-5f78a3348f080b5d569e3f24">Source reported to be White House chief of staff Mark Meadows says Trump’s next 48 hours ‘will be critical’</a></li><li><a href="https://www.theguardian.com/us-news/live/2020/oct/03/donald-trump-covid-19-coronavirus-hospital-white-house-live-latest-news-updates?page=with:block-5f78a2468f08abd321a6be8c#block-5f78a2468f08abd321a6be8c">Chris Christie confirms he has Covid-19</a><br /></li><li><a href="https://www.theguardian.com/us-news/2020/oct/03/donald-trump-base-stays-loyal-president-fights-covid-19">Trump’s base stays loyal as president fights Covid</a><br /></li><li><a href="https://www.theguardian.com/us-news/2017/feb/22/us-politics-minute-sign-up-email-newsletter-app-notification">Sign up for Fight to Vote – our weekly US election newsletter</a><br /></li></ul><p class="block-time published-time"> <time datetime="2020-10-03T17:58:50.800Z">6.58pm <span class="timezone">BST</span></time> </p><p>CNN reports that US attorney general William Barr will not quarantine despite coming into close contact with members of Donald Trump’s circle who have since tested positive for Covid-19.</p><p>The Justice Department said Barr will not quarantine as he has tested negative for the virus. </p><p class="block-time published-time"> <time datetime="2020-10-03T17:50:39.023Z">6.50pm <span class="timezone">BST</span></time> </p><p><strong>Scientists still lack conclusive proof that the two anti-Covid drugs given to <a href="https://www.theguardian.com/us-news/donaldtrump">Donald Trump</a> are clinically effective.</strong></p><p>UK researchers point out that both medicines – remdesivir and REGN-COV2 – have still to complete the large-scale, randomised trials needed to demonstrate fully their ability to counter Covid-19 in patients. And many have criticised US authorities for their failures to carry out such trials. This has undermined efforts to find effective medicines to treat people affected by the disease.</p><p> <span>Related: </span><a href="https://www.theguardian.com/science/2020/oct/03/anti-covid-treatments-being-given-to-trump-are-still-unproven-say-experts">Anti-Covid treatments being given to Trump are still unproven, say experts</a> </p> <a href="https://www.theguardian.com/us-news/live/2020/oct/03/donald-trump-covid-19-coronavirus-hospital-white-house-live-latest-news-updates">Continue reading...</a>
+
+## Leeds v Manchester City: Premier League – live!
+ - [https://www.theguardian.com/football/live/2020/oct/03/leeds-v-manchester-city-premier-league-live](https://www.theguardian.com/football/live/2020/oct/03/leeds-v-manchester-city-premier-league-live)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 17:58:28+00:00
+
+<ul><li>Updates from the 5.30pm BST kick-off at Elland Road</li><li><a href="https://www.theguardian.com/football/2020/oct/02/marcelo-bielsa-pep-guardiola-meeting-changed-football-history-leeds-manchester-city">Bielsa, Guardiola and a meeting that may have changed football history</a> </li><li>You can <a href="mailto:scott.murray.casual@guardian.co.uk">email Scott</a> here</li></ul><p class="block-time published-time"> <time datetime="2020-10-03T17:58:28.740Z">6.58pm <span class="timezone">BST</span></time> </p><p><strong>71 min: </strong>De Bruyne is caught dawdling on the edge of the Leeds box, thinking about shooting. He’s stripped by Poveda, who romps up the other end. It’s four on four! Bamford and Rodrigo over-elaborate and the move breaks down.</p><p class="block-time published-time"> <time datetime="2020-10-03T17:56:47.890Z">6.56pm <span class="timezone">BST</span></time> </p><p><strong>69 min:</strong> Poveda curls in from the right. Rodrigo sends a header towards the top right. Ederson fingertips onto the bar and out for a corner. Nothing comes from the resulting set piece, but I repeat: this surely can’t end 1-1. Both teams are going for it, hell for leather!</p> <a href="https://www.theguardian.com/football/live/2020/oct/03/leeds-v-manchester-city-premier-league-live">Continue reading...</a>
+
+## French Open 2020: Djokovic v Galán, Kvitová beats Fernandez – live!
+ - [https://www.theguardian.com/sport/live/2020/oct/03/french-open-2020-anderson-rublev-kvitova-djokovic-tennis-live](https://www.theguardian.com/sport/live/2020/oct/03/french-open-2020-anderson-rublev-kvitova-djokovic-tennis-live)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 17:56:51+00:00
+
+<ul><li>Updates from day seven at Roland Garros</li><li><a href="https://www.theguardian.com/sport/2020/oct/02/big-break-for-dominic-thiem-as-stan-wawrinka-loses-to-hugo-gaston">Big break for Thiem as Wawrinka loses to Gaston</a></li><li><a href="mailto:tumaini.carayol@theguardian.com">Email Tumaini</a> or tweet him <a href="https://twitter.com/tumcarayol?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor">@tumcarayol</a></li></ul><p class="block-time published-time"> <time datetime="2020-10-03T17:56:51.601Z">6.56pm <span class="timezone">BST</span></time> </p><p><strong>Novak Djokovic</strong> finally decides to break for a second time and he does so with ease, crunching a forehand down-the-line winner to break for 15 and move up 6-0 6-3 against Daniel Elahi Galan. He is one set away from the fourth round.</p><p class="block-time published-time"> <time datetime="2020-10-03T17:55:15.949Z">6.55pm <span class="timezone">BST</span></time> </p><p><strong>Djokovic rolls through another service game to hold for 6-0 5-3*. </strong>This is such a funny match to watch because the gulf between Djokovic and Galan is enormous and both players know it. </p><p>Djokovic’s focus has wavered at times, as it did on break point in the previous game, here as he squandered two points from 40-0 and on the ample drop shots he has attempted today that he normally wouldn’tbother with. And yet here he is one game away from the set.</p> <a href="https://www.theguardian.com/sport/live/2020/oct/03/french-open-2020-anderson-rublev-kvitova-djokovic-tennis-live">Continue reading...</a>
+
+## Coronavirus live news: big rise in infections in Italy; Tehran and Madrid impose new lockdown measures
+ - [https://www.theguardian.com/world/live/2020/oct/03/coronavirus-live-news-australia-sydney-melbourne-victoria-who-rapid-covid-19-test-donald-trump-positiveglobal-news-latest-updates](https://www.theguardian.com/world/live/2020/oct/03/coronavirus-live-news-australia-sydney-melbourne-victoria-who-rapid-covid-19-test-donald-trump-positiveglobal-news-latest-updates)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 17:36:01+00:00
+
+<p>Ukraine’s former president hospitalised after contracting Covid; Joe Biden urges US public to be patriotic and wear masks</p><ul><li><a href="https://www.theguardian.com/us-news/live/2020/oct/03/donald-trump-covid-19-coronavirus-hospital-white-house-live-latest-news-updates">US live blog: Trump’s hospital stay for Covid fuels concerns</a></li><li><a href="https://www.theguardian.com/world/2020/oct/03/uk-hospitals-already-using-trump-antibody-drug-says-expert">UK hospitals ‘already using Trump antibody drug’</a></li><li><a href="https://www.theguardian.com/technology/2020/oct/03/twitter-faces-backlash-over-abuse-policy-in-wake-of-trump-illness">Twitter faces backlash over abuse policy in wake of Trump illness</a></li><li><a href="https://www.theguardian.com/politics/2020/oct/03/uk-covid-testing-cutoff-quietly-extended-to-eight-days-after-first-signs">UK Covid testing cutoff quietly extended to eight days</a></li><li><a href="https://www.theguardian.com/us-news/live/2020/oct/02/donald-trump-tests-positive-coronavirus-covid-mike-pence-joe-biden-us-politics-live-latest-news?page=with:block-5f778e1a8f08ef8bfc756334#block-5f778e1a8f08ef8bfc756334">Biden: Trump’s test ‘bracing reminder’ to ‘take this virus seriously’</a></li></ul><p class="block-time published-time"> <time datetime="2020-10-03T16:58:39.990Z">5.58pm <span class="timezone">BST</span></time> </p><p> <strong>Ukraine’s</strong> former president <strong>Petro Poroshenko</strong> has been hospitalised in Kiev with double pneumonia, days after he tested positive for Covid-19, AFP reports. </p><p>“Petro Oleksiyovych [Poroshenko] was hospitalised,”, his wife, <strong>Maryna Poroshenko</strong>, said in a video on Facebook. “Despite the fact that my husband has double pneumonia, he is strong-willed and is demonstrating this in the fight against the disease.”</p><p class="block-time published-time"> <time datetime="2020-10-03T16:41:50.326Z">5.41pm <span class="timezone">BST</span></time> </p><p>This from Politico’s <strong>Gabby Orr</strong>:<br /></p><p dir="ltr" lang="en">So less than 5 minutes after the president’s doctor said he has been doing just fine, Trump’s own chief of staff appears to give the pool an entirely different account — off the record. <a href="https://t.co/fTY2raDFta">https://t.co/fTY2raDFta</a></p> <a href="https://www.theguardian.com/world/live/2020/oct/03/coronavirus-live-news-australia-sydney-melbourne-victoria-who-rapid-covid-19-test-donald-trump-positiveglobal-news-latest-updates">Continue reading...</a>
+
+## Anti-Covid treatments being given to Trump are still unproven, say experts
+ - [https://www.theguardian.com/science/2020/oct/03/anti-covid-treatments-being-given-to-trump-are-still-unproven-say-experts](https://www.theguardian.com/science/2020/oct/03/anti-covid-treatments-being-given-to-trump-are-still-unproven-say-experts)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 17:21:02+00:00
+
+<p>Neither remdesivir nor REGN-COV2 have completed large-scale randomised trials, say UK scientists</p><ul><li><a href="https://viewer.gutools.co.uk/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://viewer.gutools.co.uk/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>Scientists still lack conclusive proof that the two anti-Covid drugs given to Donald Trump are clinically effective.</p><p>UK researchers point out that both medicines – remdesivir and REGN-COV2 – have still to complete the large-scale, randomised trials needed to demonstrate fully their ability to counter Covid-19 in patients. And many have criticised US authorities for their failures to carry out such trials. This has undermined efforts to find effective medicines to treat people affected by the disease.</p> <a href="https://www.theguardian.com/science/2020/oct/03/anti-covid-treatments-being-given-to-trump-are-still-unproven-say-experts">Continue reading...</a>
+
+## Lancashire police launch murder inquiry after woman and daughter found dead
+ - [https://www.theguardian.com/uk-news/2020/oct/03/lancashire-police-launch-inquiry-after-woman-and-daughter-found-dead](https://www.theguardian.com/uk-news/2020/oct/03/lancashire-police-launch-inquiry-after-woman-and-daughter-found-dead)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 17:09:02+00:00
+
+<p>Dr Saman Mir Sacharvi, 49, and Vian Mangrio, 14, were found dead inside their fire- and smoke-damaged house in Burnley</p><p>A doctor found dead alongside her teenage daughter died from pressure to her neck, a postmortem examination has revealed.</p><p>Dr Saman Mir Sacharvi, 49, and Vian Mangrio, 14, were found dead inside their fire- and smoke-damaged house in Burnley, Lancashire, by police at 8.45am on Thursday. A Home Office postmortem examination on Sacharvi on Saturday established that she was assaulted before she died.</p> <a href="https://www.theguardian.com/uk-news/2020/oct/03/lancashire-police-launch-inquiry-after-woman-and-daughter-found-dead">Continue reading...</a>
+
+## Sir David Attenborough reveals favourite animal to young royals
+ - [https://www.theguardian.com/tv-and-radio/2020/oct/03/sir-david-attenborough-reveals-favourite-animals-in-new-video](https://www.theguardian.com/tv-and-radio/2020/oct/03/sir-david-attenborough-reveals-favourite-animals-in-new-video)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 17:06:43+00:00
+
+<p>Duke and Duchess of Cambridge’s three children quiz veteran broadcaster on his passion for nature</p><p>The Duke and Duchess of Cambridge’s children have shared their passion for animals with Sir David Attenborough in an adorable video.</p><p>Prince George, seven, Princess Charlotte, five, and Prince Louis, two, quizzed the 94-year-old broadcaster in a video recorded at Kensington Palace in August. Princess Charlotte revealed that she likes spiders, and Attenborough told Prince Louis that his favourite animals were monkeys.</p> <a href="https://www.theguardian.com/tv-and-radio/2020/oct/03/sir-david-attenborough-reveals-favourite-animals-in-new-video">Continue reading...</a>
+
+## Donald Trump keeps busy during self-isolation  – cartoon
+ - [https://www.theguardian.com/commentisfree/picture/2020/oct/03/donald-trump-keeps-busy-during-self-isolation-cartoon](https://www.theguardian.com/commentisfree/picture/2020/oct/03/donald-trump-keeps-busy-during-self-isolation-cartoon)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 17:00:28+00:00
+
+<p>Chris Riddell on the US president testing positive for coronavirus days after the first election debate<br /><br /></p><p><a href="https://guardianprintshop.com/collections/chris-riddell-1/products/4th-october-2020">•You can buy your own print of this cartoon</a></p> <a href="https://www.theguardian.com/commentisfree/picture/2020/oct/03/donald-trump-keeps-busy-during-self-isolation-cartoon">Continue reading...</a>
+
+## If Chrissy Teigen wants to share the agony of losing her baby, let her | Barbara Ellen
+ - [https://www.theguardian.com/commentisfree/2020/oct/03/if-chrissy-teigen-wants-to-share-the-agony-of-losing-her-baby-let-her](https://www.theguardian.com/commentisfree/2020/oct/03/if-chrissy-teigen-wants-to-share-the-agony-of-losing-her-baby-let-her)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 17:00:28+00:00
+
+<p>No one has the right to tell the model how she should deal with her tragedy</p><p>If somebody howls out their pain on social media, do they automatically lose their right to be perceived as a human being?</p><p>Model <a href="https://www.theguardian.com/culture/chrissy-teigen">Chrissy Teigen</a> went on Instagram to tell her millions of followers about the loss of her baby, Jack, halfway through pregnancy. Teigen, who’s known as an open social media figure, wrote: “We are shocked and in the kind of deep pain you only hear about, the kind of pain we’ve never felt before.” Later, Teigen tweeted: “Driving home from the hospital with no baby. How can this be real?”</p> <a href="https://www.theguardian.com/commentisfree/2020/oct/03/if-chrissy-teigen-wants-to-share-the-agony-of-losing-her-baby-let-her">Continue reading...</a>
+
+## Jennifer Nansubuga Makumbi: 'Life is about making myth'
+ - [https://www.theguardian.com/books/2020/oct/03/jennifer-nansubuga-makumbi-life-is-about-making-myth](https://www.theguardian.com/books/2020/oct/03/jennifer-nansubuga-makumbi-life-is-about-making-myth)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 17:00:28+00:00
+
+<p>The Ugandan-born writer, whose new book deals with her country’s origin stories, on feminism and the importance of home</p><p>Jennifer Nansubuga Makumbi was born in Kampala, Uganda, in 1967, and now lives in Manchester. Her first novel, <em><a href="https://www.theguardian.com/books/2018/jan/14/kintu-jennifer-nansubuga-makumbi-review">Kintu</a></em>, was longlisted for the Etisalat prize in 2014 and she won the Commonwealth Short Story prize in the same year. Her first short story collection, <em>Manchester Happened</em>, was published in 2019. She was awarded the prestigious Windham-Campbell prize for fiction in 2018. Her new book, <em>The First Woman</em>, is a powerful feminist rendition of Ugandan origin tales, charting the young girl Kirabo’s journey to find her place in the world.</p><p><strong>“How does it feel to have a mother?” is one of the questions at the core of the book.<br /></strong>I didn’t meet my mother until I was perhaps 10 and used to have to think about that question. As a child, I lived with my dad, but he was brutalised during <a href="https://www.theguardian.com/news/2003/aug/18/guardianobituaries">Idi Amin</a>’s regime and lost his mind, so I went to live with my aunt aged about 10. I wanted to explore the idea that if you don’t have a mother you create the idea of one yourself and turn her into a perfect goddess. When Kirabo meets her mother, she mourns the loss of the mother she had created. Those kind of losses I wanted to deal with.</p> <a href="https://www.theguardian.com/books/2020/oct/03/jennifer-nansubuga-makumbi-life-is-about-making-myth">Continue reading...</a>
+
+## Chilean police throw boy, 16, off bridge during protests
+ - [https://www.theguardian.com/world/2020/oct/03/chilean-police-throw-boy-16-off-bridge-during-protests](https://www.theguardian.com/world/2020/oct/03/chilean-police-throw-boy-16-off-bridge-during-protests)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 16:57:39+00:00
+
+<p>Apparent serious assault is latest in series of alleged human rights abuses by Carabineros</p><p>Less than a month before Chile votes on whether to replace its Pinochet-era constitution, police have brutally repressed demonstrators in the capital, Santiago.</p><p>On Friday evening officers of the Carabineros police force used plumes of teargas and high-pressure water jets to disperse protesters congregating in Plaza Italia, where pockets of violence flared amid a heavy police presence.</p> <a href="https://www.theguardian.com/world/2020/oct/03/chilean-police-throw-boy-16-off-bridge-during-protests">Continue reading...</a>
+
+## Texas shutdown of mail-in ballot drop-off sites hits diverse cities hardest
+ - [https://www.theguardian.com/us-news/2020/oct/03/texas-mail-in-ballot-drop-off-sites](https://www.theguardian.com/us-news/2020/oct/03/texas-mail-in-ballot-drop-off-sites)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 16:54:15+00:00
+
+<p>Governor Greg Abbott decision to restrict drop boxes to one per county under pressure from his own party faces legal challenge</p><p>Governor Greg Abbott’s <a href="https://www.theguardian.com/us-news/2020/oct/01/texas-governor-greg-abbott-ballot-votes-election">announcement</a> of the closure of several mail-in ballot drop-off sites across Texas on Thursday imposed a limit of one to each county. The move came on the same day Travis county, which is largely composed of the state’s capital, Austin, had just opened four drop-off locations.</p><p>In July, Abbott had issued an executive order to ease voting restrictions due to the pandemic by extending the early voting period by six days. But after facing pressure from his own Republican party, Abbott now seems to be backtracking.</p> <a href="https://www.theguardian.com/us-news/2020/oct/03/texas-mail-in-ballot-drop-off-sites">Continue reading...</a>
+
+## Little Mix revamp the talent show with warmth and power | Rebecca Nicholson
+ - [https://www.theguardian.com/commentisfree/2020/oct/03/little-mix-revamp-the-talent-show-with-warmth-and-power](https://www.theguardian.com/commentisfree/2020/oct/03/little-mix-revamp-the-talent-show-with-warmth-and-power)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 16:30:27+00:00
+
+<p>The all-girl group reveal competition can be happen without cruelty</p><p>It has been a long time since I spent my weekends engrossed in a TV talent show, but there’s not a lot else to do on a Saturday night at the moment, which is how I came to be watching <em>Little Mix: The Search</em> and became an enormous fan in the space of roughly an hour and a bit. <a href="https://www.bbc.co.uk/iplayer/episodes/p08pkqty/little-mix-the-search">The show</a>, for the legions of viewers who failed to tune in in sufficient numbers to witness its charms first hand, sees the pop group sort a load of singers into groups, then choose one group to support them on their next arena tour, whenever that may be, should arenas still exist, or tours, or live music. (They don’t say that in the show, that’s just my take, though granted, it does deflate the cheery atmosphere somewhat.)</p><p>It only took one look at <em>The Search</em> to see that it was set up to lift moods rather than crush dreams. Contestants emerge from a pink tunnel into a pink room that looks like an Instagram filter theme park, where they are greeted by all four members of Little Mix. They chat, sing and their talents are assessed with a blend of warmth and frankness. There is a lot of harmonising and so many variations on the ripped jean that older viewers may wonder if there is a national denim shortage. All the contestants have at least a modicum of talent, but the panel’s assessments are decent and largely kind, without being toothless. Most of their observations had a practical, businesslike edge. Also, it was fascinating to see an all-female panel judging young men on their talents, which felt like a fresh power dynamic for this sort of thing.</p> <a href="https://www.theguardian.com/commentisfree/2020/oct/03/little-mix-revamp-the-talent-show-with-warmth-and-power">Continue reading...</a>
+
+## Two dead and 24 missing after floods in France and Italy
+ - [https://www.theguardian.com/world/2020/oct/03/floods-france-italy-record-rain](https://www.theguardian.com/world/2020/oct/03/floods-france-italy-record-rain)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 16:24:47+00:00
+
+<p>Record rain in mountainous region destroys bridges, blocks roads and cuts off communities</p><p>Flooding from record rains in a mountainous region of France and Italy has killed two people in Italy and left at least 24 people in the two countries missing.</p><p>A storm that moved overnight across south-eastern France and then northern Italy caused flooding on both sides of the border, destroying bridges, blocking roads and isolating communities.</p> <a href="https://www.theguardian.com/world/2020/oct/03/floods-france-italy-record-rain">Continue reading...</a>
+
+## James Rodríguez hits double against Brighton as Everton return to top
+ - [https://www.theguardian.com/football/2020/oct/03/everton-brighton-premier-league-match-report](https://www.theguardian.com/football/2020/oct/03/everton-brighton-premier-league-match-report)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 16:11:51+00:00
+
+<p>Dreamland continues for Everton, back at the top of the league after four wins out of four, with Dominic Calvert-Lewin one goal short of double figures for the season. It was already Everton’s best start to a Premier League season before Brighton were added to their list of victims, but with seven wins out of seven in all competitions, Carlo Ancelotti and his players now have historians looking at records more than a century old.</p><p>Everton were not flattered by another impressive scoreline yet Ancelotti will feel there is still room for improvement, especially in defence. Jordan Pickford is looking a weak point, though his occasionally erratic display did not matter much because the visitors had far more glaring defensive deficiencies and Everton were equipped to take full advantage.</p> <a href="https://www.theguardian.com/football/2020/oct/03/everton-brighton-premier-league-match-report">Continue reading...</a>
+
+## 'There's a strong bond between us': the runners who've never missed a London Marathon
+ - [https://www.theguardian.com/sport/2020/oct/03/theres-a-strong-bond-between-us-the-runners-whove-never-missed-a-london-marathon](https://www.theguardian.com/sport/2020/oct/03/theres-a-strong-bond-between-us-the-runners-whove-never-missed-a-london-marathon)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 16:00:27+00:00
+
+<p>The Ever Presents have competed in every race since 1981 – and neither bad weather or Covid will stop them this time</p><p>It is more than two decades since Ken Jones nearly lost his record of finishing every London Marathon, but the 87-year-old still has flashbacks. “In 1998, I slipped on a manhole cover two miles from the finish,” he says. “I cut my eye badly and I was unconscious. They were trying to get me in an ambulance and I fought my way free to carry on, blood running down my face. A few other runners helped me get to that line – there’s a lovely spirit about the marathon.”</p><p>Jones is one of 10 ever-presents remaining from the 7,055 runners who began the first London Marathon on a dank and drizzly March day in 1981 – and have never stopped taking part. “I remember coming over Tower Bridge that day and seeing the massive crowd and thinking: ‘I’ve never seen a scene like this before and I’ll probably never see it again,’” says 75-year-old Bill O’Connor from Finchley, north London. “Well, I’ve seen it 39 times now.”</p> <a href="https://www.theguardian.com/sport/2020/oct/03/theres-a-strong-bond-between-us-the-runners-whove-never-missed-a-london-marathon">Continue reading...</a>
+
+## The age of waste: five designers modelling a ‘circular economy’
+ - [https://www.theguardian.com/artanddesign/2020/oct/03/the-age-of-waste-five-designers-modelling-a-circular-economy](https://www.theguardian.com/artanddesign/2020/oct/03/the-age-of-waste-five-designers-modelling-a-circular-economy)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 16:00:27+00:00
+
+<p>Imagine if everything we threw away had a new life. We talk to pioneering designers whose products are made from waste</p><p>Humans have always named epochs of history for the materials that define them: from the stone, bronze and iron ages to the 100 years that straddle the turn of the 20th and 21st centuries, known as the plastics age. But now, as the finite resources of our planet become ever scarcer, are we about to enter the “waste age”?</p><p>Two-thirds of the resources we take from the Earth are discarded. We are throwing away, burning and burying the same valuable materials we have gone to such great lengths to excavate – to the extent that copper can now be found in higher concentrations in the ash left over from the incineration of rubbish than in traditionally mined ore. In the UK, we each produce 1.07kg of rubbish every day (it’s almost double that in America). Of the virgin materials used by the fashion industry, 47% don’t even make it into the clothes on the high street. Approximately <a href="https://www.theguardian.com/global-development-professionals-network/2013/nov/07/stopping-the-rot-in-the-food-supply-chain" title="">one-third of all food</a> produced for human consumption is lost or wasted, while we cut down rainforests to make space to grow more. And by 2050, it is estimated that the <a href="https://www.theguardian.com/business/2016/jan/19/more-plastic-than-fish-in-the-sea-by-2050-warns-ellen-macarthur" title="">oceans will contain more plastic</a> than fish.</p> <a href="https://www.theguardian.com/artanddesign/2020/oct/03/the-age-of-waste-five-designers-modelling-a-circular-economy">Continue reading...</a>
+
+## The art of the handbrake turn – in pictures
+ - [https://www.theguardian.com/artanddesign/gallery/2020/oct/03/the-art-of-the-handbrake-turn-in-pictures](https://www.theguardian.com/artanddesign/gallery/2020/oct/03/the-art-of-the-handbrake-turn-in-pictures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 16:00:27+00:00
+
+<p>Few artists can say inspiration struck at Sainsbury’s in Beckenham, but the street photographer <a href="https://nickturpin.com/">Nick Turpin</a> has always found the extraordinary in the everyday. </p><p>His eye was caught by arcs of burnt tyre rubber on the asphalt. “I love how the marks interact with the official white lines and symbols,” he says. His project Donuts – named for the skill of spinning through 360 degrees in a handbrake turn – can be seen in <em><a href="https://www.penguin.co.uk/books/305/305278/smoke-and-mirrors/9781846149443.html">Smoke and Mirrors: Cars, Photography and Dreams of the Open Road</a>,</em> out this month (Particular Books, £25).</p> <a href="https://www.theguardian.com/artanddesign/gallery/2020/oct/03/the-art-of-the-handbrake-turn-in-pictures">Continue reading...</a>
+
+## The week in audio: The Fault Line: Bush, Blair and Iraq; The Heist – review
+ - [https://www.theguardian.com/tv-and-radio/2020/oct/03/the-week-in-audio-the-fault-line-bush-blair-and-iraq-the-heist-review](https://www.theguardian.com/tv-and-radio/2020/oct/03/the-week-in-audio-the-fault-line-bush-blair-and-iraq-the-heist-review)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 16:00:27+00:00
+
+<p>David Dimbleby neatly fills the gap between 9/11 and the Iraq war, and a jaw-dropping political podcast investigates Trump and taxes</p><p><strong>The Fault Line: Bush, Blair and Iraq</strong> | <a href="https://open.spotify.com/show/3MaR7hyRf0lx184eVJcRDy">Podcast</a><br /><strong>The Heist</strong> | <a href="https://apps.publicintegrity.org/theheist">The Center for Public Integrity</a> </p><p>A couple of enlightening shows this week about how American and British politics work. The first, <strong><a href="https://open.spotify.com/show/3MaR7hyRf0lx184eVJcRDy">The Fault Line: Bush, Blair and Iraq</a></strong>, concerns itself with the politics of the fairly recent past: the 18 months between 9/11 and the 2003 Iraq war. Or: how Tony Blair and George W Bush fell in love.</p> <a href="https://www.theguardian.com/tv-and-radio/2020/oct/03/the-week-in-audio-the-fault-line-bush-blair-and-iraq-the-heist-review">Continue reading...</a>
+
+## Dominic Raab says he feared Boris Johnson might die from Covid
+ - [https://www.theguardian.com/politics/2020/oct/03/dominic-raab-says-he-feared-boris-johnson-might-die-from-covid](https://www.theguardian.com/politics/2020/oct/03/dominic-raab-says-he-feared-boris-johnson-might-die-from-covid)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 15:46:47+00:00
+
+<p>In Tory conference speech, foreign secretary also addresses Brexit and ‘global Britain’ goals</p><p>Dominic Raab has said he was worried that Boris Johnson would die after the prime minister was taken into intensive care with coronavirus in April.</p><p>The foreign secretary, who stood in for Johnson when he became unwell, told the Conservative party conference on Saturday that he was often asked how he felt during that time, and admitted he was “really worried that we might lose him”.</p> <a href="https://www.theguardian.com/politics/2020/oct/03/dominic-raab-says-he-feared-boris-johnson-might-die-from-covid">Continue reading...</a>
+
+## Italy's PM called to testify at Salvini migrant kidnap trial
+ - [https://www.theguardian.com/world/2020/oct/03/italy-pm-giuseppe-conte-called-to-testify-at-salvini-migrant-kidnap-trial](https://www.theguardian.com/world/2020/oct/03/italy-pm-giuseppe-conte-called-to-testify-at-salvini-migrant-kidnap-trial)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 15:39:17+00:00
+
+<p>Judge summons Giuseppe Conte and other ministers in government at time of incidents</p><p>Italy’s prime minister, Giuseppe Conte, has been summoned to testify <a href="https://www.theguardian.com/world/2020/oct/02/matteo-salvini-set-to-be-tried-over-migrant-kidnapping-charges-italy">in </a><a href="https://www.theguardian.com/world/2020/oct/02/matteo-salvini-set-to-be-tried-over-migrant-kidnapping-charges-italy">the trial of the far-right former interior minister Matteo Salvini</a>, who is accused of kidnapping 131 migrants after he prevented them from disembarking from a coastguard ship in 2019.</p><p>During his 14 months as interior minister, Salvini repeatedly denied access to ports to ships carrying rescued migrants. The policy resulted in numerous standoffs, leaving migrants stuck at sea for weeks before European countries could identify a port that was willing to accept them, or courts intervened.</p> <a href="https://www.theguardian.com/world/2020/oct/03/italy-pm-giuseppe-conte-called-to-testify-at-salvini-migrant-kidnap-trial">Continue reading...</a>
+
+## Luke Gale blows Wigan away and guides Leeds into Challenge Cup final
+ - [https://www.theguardian.com/sport/2020/oct/03/leeds-wigan-rugby-league-challenge-cup-final-match-report](https://www.theguardian.com/sport/2020/oct/03/leeds-wigan-rugby-league-challenge-cup-final-match-report)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 15:34:11+00:00
+
+<ul><li>Semi-final: Leeds 26-12 Wigan</li><li>Captain puts on playmaking masterclass in the rain<br /></li></ul><p>Summer is long gone and the cold, wet miserable October weather is here: you suspect there are few sides who enjoy that point quite as much as Leeds Rhinos. Maybe we should have known all along this would be their day and they would book their place in the Challenge Cup final for the first time in five years.</p><p>After all, what other team in this usually unpredictable sport has made such a habit of winning big games at this time of the year? There is a time and a place for flamboyant, attracting rugby, but as Leeds have proven so often in recent history, there is only one thing that matters when the business end of the season rolls around. Winning.</p> <a href="https://www.theguardian.com/sport/2020/oct/03/leeds-wigan-rugby-league-challenge-cup-final-match-report">Continue reading...</a>
+
+## Filippo Ganna wins Giro d'Italia stage one time trial and takes maglia rosa
+ - [https://www.theguardian.com/sport/2020/oct/03/filippo-ganna-giro-ditalia-cycling-ineos-grenadiers-geraint-thomas](https://www.theguardian.com/sport/2020/oct/03/filippo-ganna-giro-ditalia-cycling-ineos-grenadiers-geraint-thomas)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 15:26:44+00:00
+
+<ul><li>Geraint Thomas gains time on GC rivals by finishing fourth</li><li>Miguel Ángel López out of race after heavy crash</li></ul><p>Filippo Ganna, of Ineos Grenadiers, won the opening stage of the Giro d’Italia on Saturday, a 15.1km individual time trial between Monreale and Palermo, to secure the first <em>maglia rosa</em> leader’s jersey of this year’s race.</p><p> <span>Related: </span><a href="https://www.theguardian.com/sport/2020/oct/02/simon-yates-geraint-thomas-giro-d-italia-tour-de-france-cycling">Yates and Thomas the favourites as Giro follows fast on heels of the Tour | William Fotheringham</a> </p> <a href="https://www.theguardian.com/sport/2020/oct/03/filippo-ganna-giro-ditalia-cycling-ineos-grenadiers-geraint-thomas">Continue reading...</a>
+
+## Johnson and Von der Leyen extend Brexit talks by a month
+ - [https://www.theguardian.com/politics/2020/oct/03/johnson-and-von-der-leyen-extend-brexit-talks-by-a-month](https://www.theguardian.com/politics/2020/oct/03/johnson-and-von-der-leyen-extend-brexit-talks-by-a-month)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 15:12:14+00:00
+
+<p>UK and EU leaders instruct chief negotiators to work harder to close gaps on deal</p><p>Boris Johnson and Ursula von der Leyen have approved a further month of Brexit negotiations after agreeing that enough progress has been made to justify a last push to reach a deal on trade and security.</p><p>The EU’s chief negotiator, Michel Barnier, will travel to London this week for talks with his British counterpart, David Frost, and the two sides will then hold follow-up talks in Brussels the week after.</p> <a href="https://www.theguardian.com/politics/2020/oct/03/johnson-and-von-der-leyen-extend-brexit-talks-by-a-month">Continue reading...</a>
+
+## Weather: UK hunkers down as heavy rain and high winds sweep country
+ - [https://www.theguardian.com/uk-news/2020/oct/03/uk-weather-weekend-of-heavy-rain-and-high-winds-expected](https://www.theguardian.com/uk-news/2020/oct/03/uk-weather-weekend-of-heavy-rain-and-high-winds-expected)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 15:05:39+00:00
+
+<p>Low-pressure area following Storm Alex has already brought 84mm of rain to parts of the south-west, and the grim conditions may yet persist for some time</p><p>Heavy rain has been falling in parts of the UK, with the Met Office issuing warnings not seen since March. Persistent downpours are expected to bring flooding and transport disruption, with more than 20 flood alerts in place and gusts of more than 70mph hitting the south-west of the country.</p><p>A family of four had to be rescued by firefighters from a road in Billericay, Essex, on Saturday morning after their car became trapped in floodwater.</p> <a href="https://www.theguardian.com/uk-news/2020/oct/03/uk-weather-weekend-of-heavy-rain-and-high-winds-expected">Continue reading...</a>
+
+## Back from the brink: saving a London home
+ - [https://www.theguardian.com/lifeandstyle/2020/oct/03/back-from-the-brink-saving-a-london-home](https://www.theguardian.com/lifeandstyle/2020/oct/03/back-from-the-brink-saving-a-london-home)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 15:00:26+00:00
+
+<p>It was almost falling down – but this east London terrace is now a treasure-filled sanctuary</p><p>It’s the house that shouldn’t be here!” jokes creative dynamo David Hodgson, about the Victorian mid-terrace in east London he discovered six years ago, when it was split into two flats and was charmingly dilapidated.</p><p>“Our surveyor said the house was never built to survive,” he explains. “The street was bombed during the war, and the house was so old it had subsidence and leaned to the left. The roof had a hole in it because it was never finished properly.”</p> <a href="https://www.theguardian.com/lifeandstyle/2020/oct/03/back-from-the-brink-saving-a-london-home">Continue reading...</a>
+
+## Class acts: three lockdown teaching stars discuss being back in school
+ - [https://www.theguardian.com/education/2020/oct/03/class-acts-three-lockdown-teaching-stars-discuss-being-back-in-school](https://www.theguardian.com/education/2020/oct/03/class-acts-three-lockdown-teaching-stars-discuss-being-back-in-school)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 15:00:26+00:00
+
+<p>Staff who made headlines for their dedication during closures talk about the joy of reuniting with pupils and the impact of more restrictions</p><p><strong>Assistant headteacher, Western </strong><strong>primary </strong><strong>school, Grimsby</strong></p> <a href="https://www.theguardian.com/education/2020/oct/03/class-acts-three-lockdown-teaching-stars-discuss-being-back-in-school">Continue reading...</a>
+
+## Diana Krall: This Dream of You review – second to none
+ - [https://www.theguardian.com/music/2020/oct/03/diana-krall-this-dream-of-you-review-second-to-none](https://www.theguardian.com/music/2020/oct/03/diana-krall-this-dream-of-you-review-second-to-none)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 15:00:26+00:00
+
+<p>(Verve)<br />Tommy LiPuma’s Midas touch emanates from this elegant record, which puts Krall’s extraordinary talent in full view </p><p>The song is <a href="https://youtu.be/WG3NyCXBPTA">But Beautiful</a>. <a href="http://www.dianakrall.com/">Diana Krall</a> sings the first chorus and then comes a guitar solo. As it begins, a string orchestra joins in, playing the melody so quietly it’s almost subliminal. After 16 bars she picks up the song and takes it through to the end. The guitar solo, by Anthony Wilson, is a simple, elegant improvisation; the strings are there to prevent the melody from getting lost – an old trick, dating back to the 1920s, done here with great subtlety.</p><p>It’s the work of Tommy LiPuma, Krall’s producer from 1995 <a href="https://www.theguardian.com/music/2017/mar/16/tommy-lipuma-obituary">until </a><a href="https://www.theguardian.com/music/2017/mar/16/tommy-lipuma-obituary">his death, aged 80</a>, in 2017. With a sharp ear for jazz, and the knowledge that listeners often get lost without a tune to follow, he showed that it was possible to sell 20m essentially jazz records to people who were not necessarily jazz fans. It couldn’t have been done without Krall’s really extraordinary talents. She describes herself as a pianist who also sings, and when she’s doing both with her quartet there’s no one to touch her. For proof, listen here to <a href="https://youtu.be/hOof3D0cAjk">Just You, Just Me</a>, <a href="https://youtu.be/38joaI35stA">That’s All</a> and <a href="https://youtu.be/0T0izX9dCME">Almost Like Being </a><a href="https://youtu.be/0T0izX9dCME">in Love</a>.</p> <a href="https://www.theguardian.com/music/2020/oct/03/diana-krall-this-dream-of-you-review-second-to-none">Continue reading...</a>
+
+## Green and pleasant beats urban buzz as families opt to leave cities
+ - [https://www.theguardian.com/business/2020/oct/03/green-and-pleasant-beats-urban-buzz-as-families-opt-to-leave-cities](https://www.theguardian.com/business/2020/oct/03/green-and-pleasant-beats-urban-buzz-as-families-opt-to-leave-cities)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 15:00:26+00:00
+
+<p>Winchester, Exeter and York are new property hotspots for those fleeing the capital after lockdown in search of space</p><p>An hour away on the train from London, the cathedral city of Winchester has long appealed to people working in the capital and looking to move out. But the months of lockdown have sent the Hampshire town’s rental market into overdrive, with inquiries over this summer running at 19 times last year’s levels.</p><p> <span>Related: </span><a href="https://www.theguardian.com/money/2020/oct/03/its-on-a-road-to-nowhere-but-norfolk-is-a-magnet-for-city-dwellers">It's 'on a road to nowhere', but Norfolk is a magnet for city-dwellers</a> </p> <a href="https://www.theguardian.com/business/2020/oct/03/green-and-pleasant-beats-urban-buzz-as-families-opt-to-leave-cities">Continue reading...</a>
+
+## Why Amazon's home security drone should set off alarm bells
+ - [https://www.theguardian.com/commentisfree/2020/oct/03/why-amazons-home-security-drone-should-set-off-alarm-bells](https://www.theguardian.com/commentisfree/2020/oct/03/why-amazons-home-security-drone-should-set-off-alarm-bells)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 15:00:26+00:00
+
+<p>Given the Ring brand’s poor record on privacy, why would anyone allow its new flying eye to patrol their house?</p><p>Here’s the scenario. It’s 3.30pm and you’re away from home. A burglar breaks in by forcing the french window in the living room. Shortly afterwards, two things happen. A small drone sitting unobtrusively in its housing-cum-charging-station whirs into life, and your smartphone beeps. The drone leaves its housing and begins a flight through the house on an inspection path that you have programmed into it, streaming live, high-definition video to your phone as it goes. The burglar sees and hears the drone, grasps what’s happening and flees.</p><p>Fiction? Not at all. It’s just Amazon’s latest gizmo – <a href="https://www.theguardian.com/technology/2020/sep/24/amazon-launches-spherical-echo-and-flying-camera-drone">announced</a> at its autumn hardware event on 24 September. It came with a nice video to illustrate the above scenario – though it featured an implausibly nervous burglar who, upon seeing the drone, fled as though he had seen a ghost. But other, less dramatic uses for the drone were suggested. It would be useful, for example, if you arrived at your non-remote workplace (remember them?) and wondered if you’d left the kitchen window open. This viewer wondered about equally mundane questions: how would the device deal with his cats, which regularly roam the house seeking surfaces that are forbidden to them when he’s physically present; how does the drone deal with closed internal doors – or indeed with the interior of any normal dwelling? Advertisements for so-called “smart” homes invariably feature the interiors of sterile, open-plan dwellings that no sane adult would wish to inhabit.</p> <a href="https://www.theguardian.com/commentisfree/2020/oct/03/why-amazons-home-security-drone-should-set-off-alarm-bells">Continue reading...</a>
+
+## It's 'on a road to nowhere', but Norfolk is a magnet for city-dwellers
+ - [https://www.theguardian.com/money/2020/oct/03/its-on-a-road-to-nowhere-but-norfolk-is-a-magnet-for-city-dwellers](https://www.theguardian.com/money/2020/oct/03/its-on-a-road-to-nowhere-but-norfolk-is-a-magnet-for-city-dwellers)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 15:00:25+00:00
+
+<p>Estate agents and even boat-builders have seen a surge in interest from buyers keen to relocate to the country</p><p>Neil Shorten, 42, a business owner from Cambridgeshire, has just realised a long-held dream of moving to Norfolk, and now lives in the coastal resort of Sheringham.</p><p>“We were thinking about doing it in five to 10 years’ time,” said Shorten. “Then when Covid kicked in and working from home was productive, the question was, why wait, why not get on with life? There is always a reason to put it off a year.”</p> <a href="https://www.theguardian.com/money/2020/oct/03/its-on-a-road-to-nowhere-but-norfolk-is-a-magnet-for-city-dwellers">Continue reading...</a>
+
+## Why Leeds for Tory HQ? 'It's the unsung success story of the north'
+ - [https://www.theguardian.com/uk-news/2020/oct/03/why-leeds-for-tory-hq-its-the-unsung-success-story-of-the-north](https://www.theguardian.com/uk-news/2020/oct/03/why-leeds-for-tory-hq-its-the-unsung-success-story-of-the-north)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 14:58:42+00:00
+
+<p>Commentators cite city’s strong economy and Yorkshire’s conservative tradition</p><p>Leeds will be home to a <a href="https://www.theguardian.com/politics/2020/oct/03/conservatives-to-open-hq-in-leeds">new Conservative party headquarters</a>, it was announced at the Conservative virtual party conference on Saturday. The move is intended to cement the party’s position in a part of the country that voted strongly to help Boris Johnson secure a landslide victory in the last election.</p><p>Experts are not surprised about the choice of venue, citing the city’s strong economy, universities and good transport links. Neil Lee, a professor of economic geography at LSE, said: “Leeds has been the unsung success story of the north in that the economy there has done relatively well compared to other cities such as Sheffield. It has done pretty well, and Yorkshire is often quite a Conservative place – there is a strong conservative tradition there, which is quite important.”</p> <a href="https://www.theguardian.com/uk-news/2020/oct/03/why-leeds-for-tory-hq-its-the-unsung-success-story-of-the-north">Continue reading...</a>
+
+## On my radar: Michael Morpurgo's cultural highlights
+ - [https://www.theguardian.com/books/2020/oct/03/on-my-radar-michael-morpurgos-cultural-highlights](https://www.theguardian.com/books/2020/oct/03/on-my-radar-michael-morpurgos-cultural-highlights)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 14:00:24+00:00
+
+<p>The War Horse author on The Salisbury Poisonings, the pick of the Proms and why he longs to move to Leith…</p><p>Born in St Albans in 1943, <a href="https://www.theguardian.com/books/michaelmorpurgo">Michael Morpurgo</a> is the author of over 100 books, including the bestselling children’s novels <em>War Horse, Private Peaceful </em>and<em> The Butterfly Lion – </em>the stage production of <em>War Horse</em> has been seen by over 8 million people worldwide.<em> </em>With his wife Clare he set up the charity <a href="https://farmsforcitychildren.org/">Farms for City Children</a> and in 2006 he was awarded an OBE for his services to literature. Last month he published <em>Owl Or Pussycat</em>, a picture book based on his earliest memory (David Fickling Books)<em>.</em></p> <a href="https://www.theguardian.com/books/2020/oct/03/on-my-radar-michael-morpurgos-cultural-highlights">Continue reading...</a>
+
+## Tories' virtual party conference suffers access glitch
+ - [https://www.theguardian.com/politics/2020/oct/03/tories-virtual-party-conference-suffers-access-glitch](https://www.theguardian.com/politics/2020/oct/03/tories-virtual-party-conference-suffers-access-glitch)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 13:58:22+00:00
+
+<p>Activists and observers temporarily unable to log on to watch ministers’ speeches</p><p>Activists and observers were temporarily unable to log into the virtual Tory party conference on Saturday.</p><p>The problem occurred while the Cabinet Office minister, Michael Gove, took part in a so-called “fireside chat”. It was unclear how many people were able to tune in.</p> <a href="https://www.theguardian.com/politics/2020/oct/03/tories-virtual-party-conference-suffers-access-glitch">Continue reading...</a>
+
+## UK Covid testing cutoff quietly extended to eight days after first signs
+ - [https://www.theguardian.com/politics/2020/oct/03/uk-covid-testing-cutoff-quietly-extended-to-eight-days-after-first-signs](https://www.theguardian.com/politics/2020/oct/03/uk-covid-testing-cutoff-quietly-extended-to-eight-days-after-first-signs)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 13:09:18+00:00
+
+<p>Exclusive: confusion as helpline staff say tests not accurate after more than five days</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>The government has quietly changed its guidance on the number of days within which people with coronavirus symptoms should get tested, the Guardian has learned, raising fears that the disease could spread quicker.</p><p>On the government’s website, <a href="https://www.gov.uk/get-coronavirus-test">people are now told</a>: “On day eight, you need to go to a test site” after an apparent change on Friday morning. Earlier in the day <a href="https://www.google.com/amp/s/www.telegraph.co.uk/news/0/covid-19-coronavirus-tests-how-book-uk-nhs-results/amp/">it was quoted</a> as saying: “You need to get the test done in the first five days of having symptoms.”</p> <a href="https://www.theguardian.com/politics/2020/oct/03/uk-covid-testing-cutoff-quietly-extended-to-eight-days-after-first-signs">Continue reading...</a>
+
+## Margaret Howell: ‘My only clothing advice is to be comfortable’
+ - [https://www.theguardian.com/lifeandstyle/2020/oct/03/margaret-howell-this-much-i-know-my-only-clothing-advice-is-to-be-comfortable](https://www.theguardian.com/lifeandstyle/2020/oct/03/margaret-howell-this-much-i-know-my-only-clothing-advice-is-to-be-comfortable)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 13:00:23+00:00
+
+<p>The designer, 74, on her love of children, getting the giggles and going with her gut feeling</p><p><strong>It’s funny seeing </strong>your name on a label or shopping bag. Sometimes I’ll see it on someone’s tote bag on the tube and that’s a surprise, though I’m very glad they’re using our bags. I always hope they don’t see me because it’s guaranteed I’ll be looking shabbier than them.</p><p><strong>My dad told me</strong> that if a job’s worth doing, it’s worth doing well. I hate a job half done. Even if it’s housework, you have to do a thorough job. I don’t have a dishwasher because I prefer to do it myself.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/oct/03/margaret-howell-this-much-i-know-my-only-clothing-advice-is-to-be-comfortable">Continue reading...</a>
+
+## The most unhinged Trump conspiracy theory comes from – who else? – QAnon followers | Arwa Mahdawi
+ - [https://www.theguardian.com/commentisfree/2020/oct/03/trump-coronavirus-conspiracy-theory-qanon](https://www.theguardian.com/commentisfree/2020/oct/03/trump-coronavirus-conspiracy-theory-qanon)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 13:00:23+00:00
+
+<p>The president, their reasoning goes, is pretending to have Covid-19 as part of a grand plan to arrest Hillary Clinton</p><p><em>Sign up for the Week in Patriarchy, a newsletter​ on feminism and sexism sent every Saturday.</em></p> <a href="https://www.theguardian.com/commentisfree/2020/oct/03/trump-coronavirus-conspiracy-theory-qanon">Continue reading...</a>
+
+## Covid-19 cases postpone Sale match and scrap Northampton fixture
+ - [https://www.theguardian.com/sport/2020/oct/03/premiership-rugby-covid-19-outbreak-postpones-sale-worcester](https://www.theguardian.com/sport/2020/oct/03/premiership-rugby-covid-19-outbreak-postpones-sale-worcester)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 12:12:50+00:00
+
+<ul><li>Rearranged Sharks game is subject to a number of conditions</li><li>Only four teams announced their sides at the scheduled time</li></ul><p>The pandemic is wreaking havoc with the Premiership’s grandstand finish after Sale’s final-round match against Worcester at the AJ Bell Stadium on Sunday was postponed until Wednesday with the Warriors citing health and safety concerns caused by <a href="https://www.theguardian.com/sport/2020/oct/02/premiership-sale-16-covid-cases-rugby-union" title="">the Sharks recording 16 positive Covid-19 tests</a>.</p><p>However, the rescheduled match will only go ahead if Public Health England is satisfied after another round of tests at the club on Tuesday and that an investigation into the source of the outbreak finds Sale did not breach protocols.</p> <a href="https://www.theguardian.com/sport/2020/oct/03/premiership-rugby-covid-19-outbreak-postpones-sale-worcester">Continue reading...</a>
+
+## 'So old he was losing his hair': survivors urge MPs to end scandal of UK's child brides
+ - [https://www.theguardian.com/global-development/2020/oct/03/so-old-he-was-losing-his-hair-survivors-urge-mps-to-end-scandal-of-uks-child-brides](https://www.theguardian.com/global-development/2020/oct/03/so-old-he-was-losing-his-hair-survivors-urge-mps-to-end-scandal-of-uks-child-brides)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 12:00:22+00:00
+
+<p>A new bill could close loophole allowing under-18s to marry in England and Wales, as charities warn Covid has exacerbated hidden child marriage </p><p>When Payzee Mahmod was married at 16 to a man nearly twice her age she didn’t understand the words spoken during the Islamic ceremony – and nobody thought to translate them for her.</p><p>The teenager, who loved fashion and pop music, was preparing to start college. “I had just finished school and the idea of not wearing a uniform was exciting to me,” she remembers. “Instead I found myself trussed up in a wedding dress, with elaborate jewellery, feeling like a sale item at an auction.”</p> <a href="https://www.theguardian.com/global-development/2020/oct/03/so-old-he-was-losing-his-hair-survivors-urge-mps-to-end-scandal-of-uks-child-brides">Continue reading...</a>
+
+## Victoria Wood special to revisit comedian's favourite TV moments
+ - [https://www.theguardian.com/culture/2020/oct/03/victoria-wood-special-to-revisit-her-favourite-tv-moments](https://www.theguardian.com/culture/2020/oct/03/victoria-wood-special-to-revisit-her-favourite-tv-moments)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 11:44:40+00:00
+
+<p>List of more than 20 sketches was discovered in personal notebook after death in 2016</p><p>Victoria Wood’s favourite moments from her own TV shows will be broadcast on BBC Two later this year in honour of the late comedian.</p><p>The two-part special, which has the working title Victoria Wood’s Secret List, will feature more than 20 sketches found to have been listed by Wood in one of her personal notebooks after her death.</p> <a href="https://www.theguardian.com/culture/2020/oct/03/victoria-wood-special-to-revisit-her-favourite-tv-moments">Continue reading...</a>
+
+## New UK app records police encounters and saves footage in cloud
+ - [https://www.theguardian.com/uk-news/2020/oct/03/new-uk-app-records-police-encounters-and-saves-footage-in-cloud](https://www.theguardian.com/uk-news/2020/oct/03/new-uk-app-records-police-encounters-and-saves-footage-in-cloud)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 11:27:46+00:00
+
+<p>Legal Lifelines app intended to provide alternative evidence to police bodycam footage</p><p>A black criminal lawyer has designed a free app to allow anyone at risk of being stopped and searched by police to film incidents to ensure they have an “independent witness” to any interactions.</p><p>Michael Herford a criminal lawyer with Legal Lifelines, said the app could help provide a different perspective on an incident from police bodycam footage, or evidence when a police bodycam was not turned on or its footage was lost.</p> <a href="https://www.theguardian.com/uk-news/2020/oct/03/new-uk-app-records-police-encounters-and-saves-footage-in-cloud">Continue reading...</a>
+
+## Life as a fresher this year is a cross between Nineteen Eighty-Four and Lord of the Flies | Iris Clifford
+ - [https://www.theguardian.com/commentisfree/2020/oct/03/fresher-coronavirus-universities-revenues](https://www.theguardian.com/commentisfree/2020/oct/03/fresher-coronavirus-universities-revenues)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 11:00:21+00:00
+
+<p>With coronavirus rife and universities focusing on revenues, it feels as though we have been left to fend for ourselves<br /><br /></p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>It’s less than a fortnight into my first term of university and it seems like I have received more emails informing me of coronavirus restrictions than I have about my actual course. I am an undergraduate at the University of Manchester and, like so many others across the country, my introduction to student life has been a shambles.</p><p>Coming from a gap year ruined by coronavirus I was hoping for a change in environment, taking in freshers’ events, society fairs and opportunities to meet new people. Instead the university experience I was looking forward to hasn’t materialised, with little to no communication informing me of when and where these events are, and which of them have been transferred online or just cancelled.</p> <a href="https://www.theguardian.com/commentisfree/2020/oct/03/fresher-coronavirus-universities-revenues">Continue reading...</a>
+
+## Nancy Pelosi says Trump illness 'sad' but criticises pandemic response – video
+ - [https://www.theguardian.com/us-news/video/2020/oct/03/nancy-pelosi-says-trump-illness-sad-but-criticises-pandemic-response-video](https://www.theguardian.com/us-news/video/2020/oct/03/nancy-pelosi-says-trump-illness-sad-but-criticises-pandemic-response-video)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 10:43:04+00:00
+
+<p>The Democratic House speaker said&nbsp;on MSNBC that&nbsp;Donald Trump’s announcement early on Friday that he and his wife,&nbsp;Melania, had&nbsp;tested positive&nbsp;for Covid-19 was 'very sad'. She added, however, that Trump’s actions during the pandemic were 'a brazen invitation for something like this to happen'</p><ul><li><a href="https://www.theguardian.com/us-news/2020/oct/03/democrats-liberals-donald-trump-infection-coronavirus">A fine line between sympathy and blame as liberals respond to Trump infection</a></li></ul> <a href="https://www.theguardian.com/us-news/video/2020/oct/03/nancy-pelosi-says-trump-illness-sad-but-criticises-pandemic-response-video">Continue reading...</a>
+
+## Original Observer photography
+ - [https://www.theguardian.com/artanddesign/gallery/2020/oct/03/original-observer-photography](https://www.theguardian.com/artanddesign/gallery/2020/oct/03/original-observer-photography)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 10:00:21+00:00
+
+<p>Idles, Issa Rae and a walk on the wild side – the best photography commissioned by the Observer in September 2020 </p> <a href="https://www.theguardian.com/artanddesign/gallery/2020/oct/03/original-observer-photography">Continue reading...</a>
+
+## From chilli chicken to lamb sheekh kebab: Dishoom's autumn curry recipes
+ - [https://www.theguardian.com/food/2020/oct/03/from-chilli-chicken-to-lamb-sheekh-kebab-dishooms-autumn-curry-recipes](https://www.theguardian.com/food/2020/oct/03/from-chilli-chicken-to-lamb-sheekh-kebab-dishooms-autumn-curry-recipes)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 10:00:20+00:00
+
+<p>The maestros of Mumbai cuisine take the stage with lamb sheekh kebabs, a chicken chilli curry and a spicy broccoli salad</p><p>Prep <strong>15 min<br /></strong>Marinade<strong> 6 hr+<br /></strong>Cook <strong>30 min<br /></strong>Serves <strong>4</strong></p> <a href="https://www.theguardian.com/food/2020/oct/03/from-chilli-chicken-to-lamb-sheekh-kebab-dishooms-autumn-curry-recipes">Continue reading...</a>
+
+## Klarna: shopper's best friend or a fast track to debt?
+ - [https://www.theguardian.com/money/2020/oct/03/klarna-debt-buy-now-pay-later-fees-interest](https://www.theguardian.com/money/2020/oct/03/klarna-debt-buy-now-pay-later-fees-interest)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 10:00:20+00:00
+
+<p>The buy now, pay later scheme with no fees or interest is signing up 95,000 UK users a month</p><p>Even its harshest critics call Klarna a “genius” business model. The firm, which lets shoppers buy now and pay later, crucially without fees or interest, has grown fast in the UK – it has almost 10 million customers there and is opening 95,000 accounts a week.</p><p>Interest among tech investors has reached fever pitch, with Klarna recently <a href="https://www.theguardian.com/business/2020/sep/15/klarna-becomes-fourth-largest-private-fintech-firm-in-the-world" title="">valued at $10.6bn</a> (£7.8bn). It bills itself as offering a “healthier, simpler and smarter alternative to credit cards” and has 85 million customers globally, with an average age (in the UK) of 33.</p> <a href="https://www.theguardian.com/money/2020/oct/03/klarna-debt-buy-now-pay-later-fees-interest">Continue reading...</a>
+
+## Monty Don: ‘Everything about gardening is personal. It heals my troubled brain’
+ - [https://www.theguardian.com/lifeandstyle/2020/oct/03/monty-don-everything-about-gardening-is-personal-it-heals-my-troubled-brain](https://www.theguardian.com/lifeandstyle/2020/oct/03/monty-don-everything-about-gardening-is-personal-it-heals-my-troubled-brain)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 10:00:20+00:00
+
+<p>Fresh from a tour of America’s green spaces, the Gardeners’ World presenter broadcast from home during lockdown. He talks about horticulture, history and loss</p><p>‘I’m not a great musician, but I often feel there’s an analogy with music,” says Monty Don, describing his process of interpreting a garden for the first time. “When you’re learning a piece of music, your efforts go into playing the right notes with the right fingers. But until you stop thinking about how to play it, you can’t really hear the music. So when I get to a garden, I try to stop thinking about my research and let my mind freewheel: ‘What does it look like? What do I feel?’”</p><p>The main presenter of BBC Two’s Gardeners’ World and all-round champion of thrusting hands into the earth, Don is our gardener at home. Regular viewers (3.8 million people tuned in to one episode during lockdown, the highest figures for a decade) will know his Longmeadow garden as intimately as their own. But, unlike other horticultural television staples, he is also an intrepid gardener abroad. Most recently, it is American gardens that Don has been contemplating, in a book of the same name. “You have this vibrant creativity and this sense of the possible – that you can cut a clearing and be the first person to make a garden there. And that is beyond exhilarating.”</p> <a href="https://www.theguardian.com/lifeandstyle/2020/oct/03/monty-don-everything-about-gardening-is-personal-it-heals-my-troubled-brain">Continue reading...</a>
+
+## Steve McQueen: ‘Our Marlon Brandos are on building sites, or driving buses’
+ - [https://www.theguardian.com/culture/2020/oct/03/steve-mcqueen-our-marlon-brandos-are-on-building-sites-or-driving-buses](https://www.theguardian.com/culture/2020/oct/03/steve-mcqueen-our-marlon-brandos-are-on-building-sites-or-driving-buses)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 10:00:20+00:00
+
+<p>The director’s new Small Axe series kicks off with the landmark 1971 trial of the Mangrove Nine. It’s his aim to fill these gaps in British history, he says, and to open the industry to other black film-makers </p><p>Photographer <a href="https://www.theguardian.com/fashion/2020/aug/12/scarf-mask-fashion-new-normal-sarah-jessica-parker-sienna-miller" title="">Misan Harriman</a> is gently cajoling actor Shaun Parkes as the sun burns through the morning cloud above St Michael’s church in Ladbroke Grove, west London. “Look at me as if you’re searching for redemption,” he says, as Parkes looks down the lens. “But it’s redemption for something you haven’t even done.” Parkes, who rose to prominence as <a href="https://www.theguardian.com/film/News_Story/Critic_Review/Guardian/0,,55313,00.html" title="">a raver in Human Traffic</a> but now has flecks of grey in his beard, doesn’t ask for more clarity; he simply flashes a look at the camera and then slowly changes pose.</p><p>Today Parkes and Harriman, who recently shot Vogue’s “Activism Now” September issue, along with portraits of Black Lives Matter protesters, are revisiting the west London area that is the setting of <a href="https://www.theguardian.com/culture/steve-mcqueen" title="">Steve McQueen</a>’s new film, Mangrove. It’s a glorious September morning and, despite the Covid-19 restrictions, the cafes are busy and the flower shops open. It’s hard to imagine that 50 years earlier, a few streets away, there was a pitched battle between the police and protesters that would help change the way Britain thought about race. Parkes plays <a href="https://www.theguardian.com/world/2010/sep/26/frank-crichlow-obituary-civil-rights-activist" title="">Frank Crichlow</a>, the real-life figure at the heart of McQueen’s film, which centres on Notting Hill’s Mangrove restaurant and nine West Indians who fought police harassment and then a court case. The look of redemption that Harriman is searching for is something Crichlow and the Mangrove Nine earned the hard way.</p> <a href="https://www.theguardian.com/culture/2020/oct/03/steve-mcqueen-our-marlon-brandos-are-on-building-sites-or-driving-buses">Continue reading...</a>
+
+## Conservatives to open HQ in Leeds
+ - [https://www.theguardian.com/politics/2020/oct/03/conservatives-to-open-hq-in-leeds](https://www.theguardian.com/politics/2020/oct/03/conservatives-to-open-hq-in-leeds)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 09:20:47+00:00
+
+<p>Party co-chair to tell virtual conference that base will show commitment to new Tory seats<br /></p><ul><li><a href="https://www.theguardian.com/uk-news/2020/oct/03/why-leeds-for-tory-hq-its-the-unsung-success-story-of-the-north">Analysis: Leeds ‘the unsung success story of the north’</a></li></ul><p>The Conservative party is to open a new campaign headquarters in Leeds in an attempt to deliver for the former “red wall” areas that helped vote Boris Johnson into power at the last election.</p><p>Amanda Milling, the co-chair of the party, was due to open the online Tory party conference on Saturday with the announcement that staff would be moved to Leeds to focus attention on the region. </p> <a href="https://www.theguardian.com/politics/2020/oct/03/conservatives-to-open-hq-in-leeds">Continue reading...</a>
+
+## Listed building scheme gives English churches a new lease of life
+ - [https://www.theguardian.com/world/2020/oct/03/pilot-scheme-gives-churches-in-england-a-new-lease-of-life](https://www.theguardian.com/world/2020/oct/03/pilot-scheme-gives-churches-in-england-a-new-lease-of-life)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 08:59:52+00:00
+
+<p>Government-funded initiative allows almost 400 buildings to be repaired and maintained</p><p> Almost 400 listed churches in parts of England have been patched up against the ravages of time and weather over the past two years, under a government pilot scheme to protect treasured historic buildings.</p><p>The churches in Greater Manchester and Suffolk have been given expert advice and grants for repairs, maintenance and ideas for wider community involvement as part of a £1.8m pilot funded by the Department for Digital, Culture, Media and Sport and run by Historic England.</p> <a href="https://www.theguardian.com/world/2020/oct/03/pilot-scheme-gives-churches-in-england-a-new-lease-of-life">Continue reading...</a>
+
+## Student accommodation: renters face stress over tenancies in Covid crisis
+ - [https://www.theguardian.com/money/2020/oct/03/student-accommodation-tenancies-covid-lockdowns-university-closure-illness](https://www.theguardian.com/money/2020/oct/03/student-accommodation-tenancies-covid-lockdowns-university-closure-illness)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 08:30:18+00:00
+
+<p>Uncertainty over the financial arrangements covering lockdowns, university closures or illness</p><p>When Risa Chauhan, 20, started looking for somewhere to live in her third year studying at LSE in London, the coronavirus crisis had already hit. She and her housemates were keen to make arrangements that meant they would not end up paying for a home they could not use.</p><p>The group, who will be living in a private houseshare, was hoping letting agencies and landlords would be flexible. This was not the case, however. One of the first obstacles they encountered was their contract, which was in the form of a joint tenancy rather than three separate tenancy agreements. “As joint tenants, it made us all responsible for paying the rent. For instance, if none of us could pay the rent, our landlord could pursue any of our guarantors and ask them to pay off the rent arrears, whereas with a separate tenancy agreement I’m just liable for my part of the rent.”</p> <a href="https://www.theguardian.com/money/2020/oct/03/student-accommodation-tenancies-covid-lockdowns-university-closure-illness">Continue reading...</a>
+
+## ‘Never shoot with a wonky pea!’: meet the alternative world champions
+ - [https://www.theguardian.com/sport/2020/oct/03/never-shoot-with-a-wonky-pea-meet-the-alternative-world-champions](https://www.theguardian.com/sport/2020/oct/03/never-shoot-with-a-wonky-pea-meet-the-alternative-world-champions)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 08:00:18+00:00
+
+<p>From a double-title peashooter to the Michael Schumacher of lawn-mower racing, the unlikeliest sports require skill and stamina</p><p>Two years ago, I found myself on the village green in Witcham in Cambridgeshire. It was my birthday and my boyfriend Ian had “treated” me by taking me to the <a href="http://www.witcham.org.uk/_sgg/m1m6s7_1.htm" title="">world</a> <a href="http://www.witcham.org.uk/_sgg/m1m6s7_1.htm" title="">pea</a><a href="http://www.witcham.org.uk/_sgg/m1m6s7_1.htm" title="">shooting</a> <a href="http://www.witcham.org.uk/_sgg/m1m6s7_1.htm" title="">championship</a>. Being a local, he had entered the competition for many years, and won twice. I had no idea what to expect.</p> <a href="https://www.theguardian.com/sport/2020/oct/03/never-shoot-with-a-wonky-pea-meet-the-alternative-world-champions">Continue reading...</a>
+
+## New Zealand refuses quarantine-free trips from Australia as ACT joins travel bubble
+ - [https://www.theguardian.com/australia-news/2020/oct/03/new-zealand-refuses-quarantine-free-travel-from-australia-as-act-joins-travel-bubble](https://www.theguardian.com/australia-news/2020/oct/03/new-zealand-refuses-quarantine-free-travel-from-australia-as-act-joins-travel-bubble)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 07:39:01+00:00
+
+<p>Jacinda Ardern says her country will not open up until Australia records a month without community transmission of Covid-19</p><p>New Zealand will not reciprocate quarantine-free trips across the Tasman as the Australian Capital Territory joins Australia’s travel bubble with the country.</p><p>On Friday, Australia’s deputy prime minister, Michael McCormack, announced New South Wales and the Northern Territory would allow Kiwis to bypass the compulsory fortnight of quarantine on arrival from 16 October.</p> <a href="https://www.theguardian.com/australia-news/2020/oct/03/new-zealand-refuses-quarantine-free-travel-from-australia-as-act-joins-travel-bubble">Continue reading...</a>
+
+## High and dry: will India's swimming camels be the last of their kind?
+ - [https://www.theguardian.com/environment/2020/oct/03/high-and-dry-will-india-swimming-camels-be-the-last-of-their-kind-aoe](https://www.theguardian.com/environment/2020/oct/03/high-and-dry-will-india-swimming-camels-be-the-last-of-their-kind-aoe)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 07:30:16+00:00
+
+<p>Rapid industrialisation in Gujarat threatens the mangroves that kharai camels and their nomadic herders depend on<br /></p><p>Ayub Amin Jat treats his camels like his children. But then his camels are no ordinary ungulates: they are a unique breed of camels that swim.</p><p>Amin Jat’s semi-nomadic ancestors have kept these camels in the Indian state of Gujarat for hundreds of years. Known as kharai camels, their name is derived from the local word <em>khara</em>, meaning saline. During the rainy season, they swim along the Gulf of Kutch, an inlet of the Arabian Sea, to small forest islands and graze on mangroves and other saline-loving plants.</p> <a href="https://www.theguardian.com/environment/2020/oct/03/high-and-dry-will-india-swimming-camels-be-the-last-of-their-kind-aoe">Continue reading...</a>
+
+## 'Students need to know the harrowing truth': teachers on black history in the curriculum
+ - [https://www.theguardian.com/education/2020/oct/03/teachers-on-black-history-in-the-curriculum](https://www.theguardian.com/education/2020/oct/03/teachers-on-black-history-in-the-curriculum)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 07:00:18+00:00
+
+<p>Should black history be compulsory in England’s schools? We talk to educators</p><p>There is increasing <a href="https://www.theguardian.com/politics/2020/sep/30/keir-starmer-pupils-should-learn-more-black-british-history">pressure</a> on the government to make black history a compulsory element of the national curriculum in England, not only something to be taught in Black History Month. The schools minister, Nick Gibb, told a parliamentary debate recently that he was not in favour because teachers needed the freedom to <a href="https://schoolsweek.co.uk/covering-black-history-is-good-teaching-says-gibb/">“teach lessons that are right for their pupils”</a>. What did he mean and is that the best approach?</p> <a href="https://www.theguardian.com/education/2020/oct/03/teachers-on-black-history-in-the-curriculum">Continue reading...</a>
+
+## 'Defend our nation': Armenian diaspora feels pull of another war
+ - [https://www.theguardian.com/world/2020/oct/03/armenian-diaspora-feels-pull-of-another-war-kardashian-azerbaijan](https://www.theguardian.com/world/2020/oct/03/armenian-diaspora-feels-pull-of-another-war-kardashian-azerbaijan)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 07:00:17+00:00
+
+<p>While Kardashians and others raise awareness, some consider returning to fight against Azerbaijan</p><p>When Azerbaijan went to war this week with Armenia over the breakaway territory of Nagorno-Karabakh, it might have appeared as an obscure conflict with little resonance outside the south Caucasus.</p><p>Until you turned to <a href="https://twitter.com/KimKardashian/status/1310278055768846338">the Twitter account</a> of one of the most famous people in the world, Kim Kardashian. Or that of her husband, <a href="https://twitter.com/kanyewest/status/1310804374143131648">Kanye West</a>. Metal fans might have seen tweets about the war <a href="https://twitter.com/serjtankian/status/1310098972434821127">from </a><a href="https://twitter.com/serjtankian/status/1310098972434821127">Serj Tankian</a>, the lead singer of System of a Down. If you missed those, there were <a href="https://twitter.com/alexisohanian/status/1310306821928898560">also posts by</a> Alexis Ohanian Sr, the founder of Reddit and husband of Serena Williams, and former Arsenal footballer <a href="https://twitter.com/HenrikhMkh/status/1310871817431781376">Henrikh Mkhitaryan</a>.</p> <a href="https://www.theguardian.com/world/2020/oct/03/armenian-diaspora-feels-pull-of-another-war-kardashian-azerbaijan">Continue reading...</a>
+
+## 'It’s a ghost town': City of London market reacts to Covid slump
+ - [https://www.theguardian.com/business/2020/oct/03/city-london-market-covid-leadenhall-boris-johnson](https://www.theguardian.com/business/2020/oct/03/city-london-market-covid-leadenhall-boris-johnson)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 07:00:17+00:00
+
+<p>Leadenhall hit hard by Boris Johnson’s U-turn on encouraging workers back to their desks </p><p>Ten days after the government halted its back-to-the-office drive in England, sparse lunchtime scenes in London’s historic financial district indicate that employees have embraced the renewed instruction to work from home.</p><p>A rain-soaked and windswept Friday had drawn few visitors to the shops, restaurants and pubs at the capital’s Leadenhall market, close to the Bank of England, the Gherkin skyscraper and the insurance market Lloyd’s of London.</p> <a href="https://www.theguardian.com/business/2020/oct/03/city-london-market-covid-leadenhall-boris-johnson">Continue reading...</a>
+
+## 20 photographs of the week
+ - [https://www.theguardian.com/artanddesign/gallery/2020/oct/03/20-photographs-of-the-week](https://www.theguardian.com/artanddesign/gallery/2020/oct/03/20-photographs-of-the-week)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 07:00:17+00:00
+
+<p>Donald Trump and Joe Biden clash, wildfires in California, the enduring impact of Covid-19, and Milan fashion week: the most striking images from around the world</p> <a href="https://www.theguardian.com/artanddesign/gallery/2020/oct/03/20-photographs-of-the-week">Continue reading...</a>
+
+## No dancing, no pubs, no zoos, no Christmas: this pandemic is heaven for puritans
+ - [https://www.theguardian.com/world/2020/oct/03/no-dancing-no-pubs-no-zoos-no-christmas-this-pandemic-is-heaven-for-puritans](https://www.theguardian.com/world/2020/oct/03/no-dancing-no-pubs-no-zoos-no-christmas-this-pandemic-is-heaven-for-puritans)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 07:00:17+00:00
+
+<p>Almost everything that brings us pleasure is at risk in this financial crisis. And that’s the way a few saddos like it<br /></p><p>I thought things could not get any sadder, but that was before I turned on the radio: the crisis industry this morning was zoos. It is not really an industry, in the classic or even the Marxist sense (half the workers <em>are</em> the means of production, yet would you experience that as empowerment, if you were in a cage?), but it’s a thing. Even if you don’t agree with zoos and think bears belong in their natural habitat, I am sure you will still agree that the industry needs to be supported through dark times, that you can’t let the animals perish because no one is visiting them. Likewise, the wedding venues, the fashion houses, the drinking dens that didn’t get lively until 10pm, the clubs, the theatres.</p><p>Some industries were much faster than others to bring their crisis to life in the public imagination: there has barely been a peep out of fashion, yet I think about theatres and the rats eating through the velvet most days. The desperate pleas of events managers have surfaced only this week, while restaurateurs have made a case against curfews so solid that it would take a heart of stone (or, failing that, a Conservative government) to ignore them. But when you are all equally screwed, it is not a competition.</p> <a href="https://www.theguardian.com/world/2020/oct/03/no-dancing-no-pubs-no-zoos-no-christmas-this-pandemic-is-heaven-for-puritans">Continue reading...</a>
+
+## ‘Dramatic’ plunge in London air pollution since 2016, report finds
+ - [https://www.theguardian.com/environment/2020/oct/03/dramatic-plunge-in-london-air-pollution-since-2016-report-finds](https://www.theguardian.com/environment/2020/oct/03/dramatic-plunge-in-london-air-pollution-since-2016-report-finds)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 07:00:17+00:00
+
+<p><strong>Exclusive:</strong> Number of people living with illegal pollution levels has fallen by 94% since Sadiq Khan became mayor</p><p>Air pollution in London has plunged since Sadiq Khan became mayor, with a 94% reduction in the number of people living in areas with illegal levels of nitrogen dioxide. The number of <a href="https://www.theguardian.com/uk-news/2017/feb/24/revealed-thousands-of-children-toxic-air-london-nitrogen-dioxide">schools in such areas</a> has fallen by 97%, from 455 in 2016 to 14 in 2019.</p><p>Experts described the reductions as dramatic and said they showed the air pollution crisis was not intractable. More than <a href="https://www.theguardian.com/environment/2015/jul/15/nearly-9500-people-die-each-year-in-london-because-of-air-pollution-study">9,000 people in the capital</a> were dying early each year due to dirty air in 2015.</p> <a href="https://www.theguardian.com/environment/2020/oct/03/dramatic-plunge-in-london-air-pollution-since-2016-report-finds">Continue reading...</a>
+
+## How healthy is Trump? Years of misinformation  make it difficult to know
+ - [https://www.theguardian.com/us-news/2020/oct/03/trump-covid-flip-flop-trump](https://www.theguardian.com/us-news/2020/oct/03/trump-covid-flip-flop-trump)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 07:00:16+00:00
+
+<p>The president’s doctors have been prone to hyperbole, even as concern has grown over his weight and a secretive hospital visit</p><p>On Friday morning, ex-White House doctor Ronny Jackson confidently <a href="https://www.foxnews.com/politics/trump-coronavirus-test-positive-debate-biden-white-house-physician-dr-ronny-jackson">told Fox News</a> that Donald Trump was not exhibiting any symptoms from coronavirus.</p><p> <span>Related: </span><a href="https://www.theguardian.com/us-news/2020/oct/02/fears-joe-biden-may-have-been-exposed-after-trump-tests-positive-for-covid">Scramble under way in Washington to trace spread of Covid among US leadership</a> </p> <a href="https://www.theguardian.com/us-news/2020/oct/03/trump-covid-flip-flop-trump">Continue reading...</a>
+
+## Near breaking point: headteachers worn down by 'non-stop Covid crisis'
+ - [https://www.theguardian.com/education/2020/oct/03/near-breaking-point-headteachers-worn-down-by-non-stop-covid-crisis](https://www.theguardian.com/education/2020/oct/03/near-breaking-point-headteachers-worn-down-by-non-stop-covid-crisis)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 06:30:15+00:00
+
+<p>Heads in England say they need support and advice, not more pressure from the government</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>At the gates of the Newtown testing facility in Powys, Wales, a headteacher stood and wept. Daring not risk infecting staff or pupils, Catriona Stewart had driven for two hours from her home in Cheshire, suffering from a persistent cough she feared was Covid-19. She had spent another two hours searching the internet and this had been the nearest test centre where she could pre-book – but when she arrived on time for her test, there were no more <a href="https://www.theguardian.com/world/2020/aug/24/coronavirus-home-test-kits-run-out-in-england-and-scotland">slots</a>.</p><p>“I waved my QR booking code but it didn’t make any difference. The man at the gate told me that the tests had been <a href="https://www.theguardian.com/world/2020/apr/25/england-and-wales-coronavirus-test-slots-and-kits-run-out-again">used up</a> by people who turned up without an appointment,” says Stewart, head of the 320-pupil Kingsmead primary in Northwich.</p> <a href="https://www.theguardian.com/education/2020/oct/03/near-breaking-point-headteachers-worn-down-by-non-stop-covid-crisis">Continue reading...</a>
+
+## ‘A crash could have left us rolling through space': an extract from Tim Peake’s autobiography
+ - [https://www.theguardian.com/science/2020/oct/03/a-crash-could-have-left-us-rolling-through-space-an-extract-from-tim-peakes-autobiography](https://www.theguardian.com/science/2020/oct/03/a-crash-could-have-left-us-rolling-through-space-an-extract-from-tim-peakes-autobiography)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 06:00:16+00:00
+
+<p>The British astronaut describes a close call on arriving at the International Space Station</p><p>• ‘Coming home was a harsh transition. Gravity sucks!’: <a href="https://www.theguardian.com/science/2020/oct/03/tim-peake-coming-home-was-a-harsh-transition-gravity-sucks">read an interview with Tim Peake</a> </p><p><a href="https://en.wikipedia.org/wiki/Yuri_Malenchenko" title="">Yuri Malenchenko</a> is one of the most accomplished Russian cosmonauts in history. By December 2015 he is already the veteran of five separate missions and has logged just over 641 days in orbit, which means he has spent more time off the planet than almost anybody.</p><p>He is also the calmest man I have ever met. A quietly spoken, undemonstrative 53-year-old, Yuri is one of those naturally composed people who can reassure you with the smallest gesture. All in all, I could not have hoped for a steadier commander to be strapped in beside on my first voyage into space.</p> <a href="https://www.theguardian.com/science/2020/oct/03/a-crash-could-have-left-us-rolling-through-space-an-extract-from-tim-peakes-autobiography">Continue reading...</a>
+
+## Shadow chancellor calls on ministers to fulfil pledge on money laundering
+ - [https://www.theguardian.com/politics/2020/oct/03/shadow-chancellor-calls-on-ministers-to-fulfil-pledge-on-money-laundering-register-foreign-owners-uk-properities](https://www.theguardian.com/politics/2020/oct/03/shadow-chancellor-calls-on-ministers-to-fulfil-pledge-on-money-laundering-register-foreign-owners-uk-properities)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 06:00:15+00:00
+
+<p>Introduce promised register for foreign owners of UK properties now, says Anneliese Dodds</p><p>The shadow chancellor, Anneliese Dodds, is calling for the government to introduce a long-promised register of foreign owners of UK properties, to prevent criminals using homes as “dodgy bank accounts”.</p><p>Reports of suspected money laundering have more than doubled since David Cameron used a speech in Singapore in 2015 to <a href="https://www.theguardian.com/politics/2015/jul/28/david-cameron-fight-dirty-money-uk-property-market-corruption">pledge that there would be “no place for dirty money in Britain”</a>.</p> <a href="https://www.theguardian.com/politics/2020/oct/03/shadow-chancellor-calls-on-ministers-to-fulfil-pledge-on-money-laundering-register-foreign-owners-uk-properities">Continue reading...</a>
+
+## Blind date: ‘She ate a whole sea bass with her fingers’
+ - [https://www.theguardian.com/lifeandstyle/2020/oct/03/blind-date-ben-fiona](https://www.theguardian.com/lifeandstyle/2020/oct/03/blind-date-ben-fiona)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 05:00:14+00:00
+
+<p>Ben, 29, freelance videographer, meets Fiona, 24, PhD student</p><p><strong>What were you hoping for?</strong><br />A fun night.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/oct/03/blind-date-ben-fiona">Continue reading...</a>
+
+## One in three 'red wall' families £1,000 a year worse off under Tory plans
+ - [https://www.theguardian.com/society/2020/oct/03/red-wall-families-worse-off-under-tory-universal-credit-plans](https://www.theguardian.com/society/2020/oct/03/red-wall-families-worse-off-under-tory-universal-credit-plans)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 05:00:14+00:00
+
+<p>Universal credit benefit rate cut would disproportionately affect areas PM pledged to ‘level up’ </p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>One in three working-age families in so-called “red wall” constituencies won by the Tories from Labour at the last election will be £1,000 a year worse off if government plans to cut universal credit benefit rates go ahead.</p><p>The potentially dramatic impact on low-income households’ in “left behind” former industrial areas in the north of England, Midlands, Northern Ireland and Wales is highlighted in an analysis by the <a href="https://www.resolutionfoundation.org/">Resolution Foundation</a> thinktank.</p> <a href="https://www.theguardian.com/society/2020/oct/03/red-wall-families-worse-off-under-tory-universal-credit-plans">Continue reading...</a>
+
+## Tim Dowling: I’m awake, worrying about death – and skirting boards
+ - [https://www.theguardian.com/lifeandstyle/2020/oct/03/tim-dowling-why-did-i-mention-the-skirting-boards](https://www.theguardian.com/lifeandstyle/2020/oct/03/tim-dowling-why-did-i-mention-the-skirting-boards)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 05:00:14+00:00
+
+<p>It was a foolish decision. I find myself subcontracted to source and supply five metres of MDF</p><p>It is that two-hour window of the night – roughly between 3.30am and 5.30am – that I reserve to lie awake in the grip of nameless dread, heart thudding against my rib cage. During these dark times I’m keenly aware of both the fragility of existence and the sheer amount of admin involved.</p><p>I know it’s 5.30am when I hear the long, yawning note of an iron school gate being swung open, and I sit upright. My wife rolls over.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/oct/03/tim-dowling-why-did-i-mention-the-skirting-boards">Continue reading...</a>
+
+## Scrutiny on Rose Garden event after Kellyanne Conway and other guests test positive for Covid
+ - [https://www.theguardian.com/us-news/2020/oct/02/kellyanne-conway-covid-19-rose-garden-event](https://www.theguardian.com/us-news/2020/oct/02/kellyanne-conway-covid-19-rose-garden-event)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 03:47:41+00:00
+
+<p>At least seven people who attended event for Trump’s supreme court nominee have confirmed they have coronavirus</p><p>A crowded Rose Garden ceremony last Saturday at which Donald Trump announced Amy Coney Barrett as his supreme court nominee has come under scrutiny after at least seven figures in attendance tested positive for coronavirus, including the president himself.</p><p>On Friday, the president’s former counsellor, Kellyanne Conway, announced she had tested positive and had “mild” symptoms.</p> <a href="https://www.theguardian.com/us-news/2020/oct/02/kellyanne-conway-covid-19-rose-garden-event">Continue reading...</a>
+
+## Tweets wishing for Trump's death violate Twitter policy, company says
+ - [https://www.theguardian.com/technology/2020/oct/02/twitter-trump-death-threats-covid-19-policy](https://www.theguardian.com/technology/2020/oct/02/twitter-trump-death-threats-covid-19-policy)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-10-03 02:00:00+00:00
+
+<p>Platform says abusive tweets about the president, who was diagnosed with Covid-19 this week, could result in suspension</p><p>Twitter has said that tweets wishing for Donald Trump’s death in the wake of the president’s diagnosis with Covid-19 violate its policies and could result in suspension. <br /><br />As Trump made his way to Walter Reed medical center for treatment on Friday, many people on Twitter, including his opponent <a href="https://www.theguardian.com/us-news/joebiden">Joe Biden</a>, wished him a speedy recovery. However many others did the opposite, saying they hope he dies from the virus, which has killed more than 200,000 people in the United States under his leadership while he repeatedly downplayed the severity of the disease.</p><p> <span>Related: </span><a href="https://www.theguardian.com/us-news/2020/oct/02/trump-hospital-covid-coronavirus-diagnosis">Trump taken to hospital by helicopter after Covid diagnosis</a> </p> <a href="https://www.theguardian.com/technology/2020/oct/02/twitter-trump-death-threats-covid-19-policy">Continue reading...</a>
+

@@ -1,0 +1,270 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## How to protect yourself from hackers
+ - [https://www.cnn.com/videos/business/2018/10/03/cybersecurity-how-to-protect-yourself-from-hackers-lon-orig.cnn-business](https://www.cnn.com/videos/business/2018/10/03/cybersecurity-how-to-protect-yourself-from-hackers-lon-orig.cnn-business)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 23:49:07+00:00
+
+CNN's Samuel Burke walks you through the steps you can take to protect yourself from being hacked.
+
+## Trump silent as massive cyber hack poses 'grave risk' to US
+ - [https://www.cnn.com/2020/12/17/politics/trump-silence-cyber-hack/index.html](https://www.cnn.com/2020/12/17/politics/trump-silence-cyber-hack/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 23:47:26+00:00
+
+When President Donald Trump convened his Cabinet at the White House Wednesday as Washington absorbed news of a massive data breach, the heads of most agencies relevant to the intrusion — including the Department of Defense, the State Department, the Justice Department, the director of national intelligence and the Central Intelligence Agency — were absent.
+
+## How the vaccine gets from the lab to your arm
+ - [https://www.cnn.com/videos/business/2020/12/17/covid-vaccine-transportation-orig.cnn-business](https://www.cnn.com/videos/business/2020/12/17/covid-vaccine-transportation-orig.cnn-business)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 23:44:20+00:00
+
+This is the long road Covid-19 vaccines take to get to you. All the while, staying ultra cold.
+
+## CNN anchor reacts to Trump's silence on hack: 'Stunning'
+ - [https://www.cnn.com/videos/business/2020/12/17/us-government-agencies-hack-biden-trump-marquardt-nr-sot-vpx.cnn](https://www.cnn.com/videos/business/2020/12/17/us-government-agencies-hack-biden-trump-marquardt-nr-sot-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 23:39:43+00:00
+
+The US government is reeling from multiple data breaches at top federal agencies, the result of a worldwide hacking campaign with possible ties to Russia. Investigators are still trying to figure out how much of the government may have been affected and how badly it may have been compromised. CNN's Alex Marquardt has more.
+
+## Young voter: I'm excited to see what my vote will accomplish
+ - [https://www.cnn.com/videos/politics/2020/12/17/young-new-voters-georgia-runoff-election-lah-pkg-lead-vpx.cnn](https://www.cnn.com/videos/politics/2020/12/17/young-new-voters-georgia-runoff-election-lah-pkg-lead-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 23:02:05+00:00
+
+CNN's Kyung Lah takes a look at the push to get new, young voters excited to vote in the Senate runoff elections in Georgia, which will determine which party controls the Senate.
+
+## Putin: If Russia wanted to kill Navalny, it would have 'finished' the job
+ - [https://www.cnn.com/2020/12/17/europe/putin-annual-press-conference-intl/index.html](https://www.cnn.com/2020/12/17/europe/putin-annual-press-conference-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 22:51:10+00:00
+
+
+
+## Gupta reacts to ex-Trump official encouraging herd immunity
+ - [https://www.cnn.com/videos/health/2020/12/17/paul-alexander-young-adults-herd-immunity-coronavirus-gupta-newday-vpx.cnn](https://www.cnn.com/videos/health/2020/12/17/paul-alexander-young-adults-herd-immunity-coronavirus-gupta-newday-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 22:48:55+00:00
+
+CNN's Dr. Sanjay Gupta responds to former Health and Human Services senior adviser, Paul Alexander, who said in an email that officials should use young people in a strategy to develop herd immunity against the coronavirus.
+
+## The US government has executed 10 people this year -- the most since 1896
+ - [https://www.cnn.com/2020/12/17/politics/federal-death-penalty-2020-trnd/index.html](https://www.cnn.com/2020/12/17/politics/federal-death-penalty-2020-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 22:34:11+00:00
+
+For the first time in US history, the government has executed more people than all of the 50 states, and the number of federal prisoners put to death this year -- 10 -- is the highest since President Grover Cleveland's second term in office, according to the Death Penalty Information Center.
+
+## Spirit Airlines plane skids off taxiway at BWI Airport
+ - [https://www.cnn.com/2020/12/17/us/spirit-airlines-runway-skid/index.html](https://www.cnn.com/2020/12/17/us/spirit-airlines-runway-skid/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 21:19:04+00:00
+
+A Spirit Airlines plane skidded off the taxiway at Baltimore/Washington International Thurgood Marshall Airport on Thursday morning after a powerful winter storm created slick conditions.
+
+## The antitrust lawsuits against Google just keep coming
+ - [https://www.cnn.com/2020/12/17/tech/google-antitrust-lawsuit/index.html](https://www.cnn.com/2020/12/17/tech/google-antitrust-lawsuit/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 19:30:51+00:00
+
+Google is now facing its third antitrust lawsuit.
+
+## Actor Ian McKellen receives Covid-19 vaccine, says he feels 'euphoric'
+ - [https://www.cnn.com/2020/12/17/entertainment/ian-mckellen-vaccine-scli-intl-gbr/index.html](https://www.cnn.com/2020/12/17/entertainment/ian-mckellen-vaccine-scli-intl-gbr/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 18:06:24+00:00
+
+Ian McKellen has said he feels "euphoric" after receiving his first dose of the Covid-19 vaccine in London, England, on Wednesday.
+
+## This is the best map of the 2020 election you'll see
+ - [https://www.cnn.com/2020/12/17/politics/donald-trump-joe-biden-2020-election/index.html](https://www.cnn.com/2020/12/17/politics/donald-trump-joe-biden-2020-election/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 18:05:03+00:00
+
+Maps -- especially in politics -- can be misleading. Especially when you are talking national elections.
+
+## Moments that made us laugh and cry on Zoom in 2020
+ - [https://www.cnn.com/videos/us/2020/12/17/2020-zoom-video-moments-eg-kj-orig.cnn](https://www.cnn.com/videos/us/2020/12/17/2020-zoom-video-moments-eg-kj-orig.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 14:38:31+00:00
+
+2020 may have not been a year anyone anticipated, but we found ways to come together even when we were far apart. Here are some of the amazing ways we connected over Zoom.
+
+## This new orchid species is the 'ugliest' in the world
+ - [https://www.cnn.com/2020/12/17/africa/ugly-orchid-intl-scli-gbr-scn/index.html](https://www.cnn.com/2020/12/17/africa/ugly-orchid-intl-scli-gbr-scn/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 13:48:21+00:00
+
+Orchids are often thought of as beautiful, delicate and vibrant -- but a newly identified plant might just change your mind.
+
+## 'It wasn't easy': Cher discusses son's gender transition
+ - [https://www.cnn.com/style/article/cher-interview/index.html](https://www.cnn.com/style/article/cher-interview/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 13:42:31+00:00
+
+Cher has opened up about her son's gender identity, admitting that it "wasn't easy" when Chaz Bono, now 51, announced he was transitioning in 2009.
+
+## Llivia: The Spanish town stranded in France
+ - [https://www.cnn.com/travel/article/llivia-spain-france/index.html](https://www.cnn.com/travel/article/llivia-spain-france/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 12:28:40+00:00
+
+The view from the castle is so magnificent that it's easy to understand why warring empires didn't want to concede this gentle green valley, tucked between the snow-capped peaks of the Catalan Pyrenees.
+
+## Internet freaked out by this 'creepy' lifelike face mask
+ - [https://www.cnn.com/videos/business/2020/12/17/japan-mask-shop-jeanne-moos-vpx.cnn](https://www.cnn.com/videos/business/2020/12/17/japan-mask-shop-jeanne-moos-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 11:16:46+00:00
+
+Now you can wear a stranger's face. Jeanne Moos reports on a "creepy" mask mesmerizing the internet.
+
+## The swimmer poised to make British Olympic history
+ - [https://www.cnn.com/2020/12/17/sport/alice-dearing-swimming-olympics-spt-intl-cmd/index.html](https://www.cnn.com/2020/12/17/sport/alice-dearing-swimming-olympics-spt-intl-cmd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 09:04:21+00:00
+
+On a chilly English November morning, Alice Dearing has woken up before sunrise to do what she does every day of the week; swim back and forth, length after length, hour after hour, in her university's swimming pool. England is in the midst of a global pandemic, but the 23-year-old has history in her sights.
+
+## Headless religious statue uncovered in residential complex in China
+ - [https://www.cnn.com/style/article/china-chongqing-religious-statue-intl-hnk/index.html](https://www.cnn.com/style/article/china-chongqing-religious-statue-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 07:57:06+00:00
+
+For years, residents in an old neighborhood of Chongqing, southwest China, have walked past two apartment buildings built onto a steep slope, oblivious to what lay beneath: a giant religious sculpture carved into the rock face.
+
+## Man cleared of rape and murder of 13-year-old after wrongfully spending 20 years in jail
+ - [https://www.cnn.com/2020/12/17/asia/hwaseong-south-korea-not-guilty-intl-hnk/index.html](https://www.cnn.com/2020/12/17/asia/hwaseong-south-korea-not-guilty-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 07:54:43+00:00
+
+A man who wrongfully spent 20 years in prison for killing a teenager has been cleared of her murder following a high-profile court case in South Korea that exposed police torture and investigation failures.
+
+## The year a computer bug threatened to bring down modern civilization
+ - [https://www.cnn.com/2020/12/16/us/y2k-computer-bug-1999/index.html](https://www.cnn.com/2020/12/16/us/y2k-computer-bug-1999/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 04:00:47+00:00
+
+Two decades ago an existential threat brought the world together— the Y2K bug.
+
+## Married couple die of Covid-19 while holding hands with their children
+ - [https://www.cnn.com/2020/12/16/us/married-couple-dies-of-covid-19-while-holding-hands-trnd/index.html](https://www.cnn.com/2020/12/16/us/married-couple-dies-of-covid-19-while-holding-hands-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 03:56:33+00:00
+
+A married couple died together from Covid-19 complications sharing one final embrace -- holding each other's hands and the hands of their children.
+
+## Don Lemon: Trump is angry about losing job he isn't even doing
+ - [https://www.cnn.com/videos/politics/2020/12/17/dons-take-trump-losing-job-he-isnt-doing-herd-immunity-sot-ctn-vpx.cnn](https://www.cnn.com/videos/politics/2020/12/17/dons-take-trump-losing-job-he-isnt-doing-herd-immunity-sot-ctn-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 03:54:57+00:00
+
+CNN's Don Lemon argues that President-elect Biden is making history as he continues to name his cabinet nominees while President Trump is "hunkered down in the White House plotting revenge."
+
+## McConnell has an 'election fraud' problem
+ - [https://www.cnn.com/2020/12/16/politics/mitch-mcconnell-donald-trump-election-fraud/index.html](https://www.cnn.com/2020/12/16/politics/mitch-mcconnell-donald-trump-election-fraud/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 03:50:02+00:00
+
+• Analysis: McConnell pulls the floor out from defeated Trump
+• Kamala Harris reacts to McConnell's remarks
+• Avlon: 'Trump derangement syndrome' taken on a new twist
+
+## Here's when the largest snowfall is expected to hit the Northeast
+ - [https://www.cnn.com/2020/12/16/weather/east-coast-snow-storm-wednesday/index.html](https://www.cnn.com/2020/12/16/weather/east-coast-snow-storm-wednesday/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 02:37:14+00:00
+
+• Live updates: Snow storm heads toward the Northeast
+
+## Massive hack of US government launches search for answers as Russia named top suspect
+ - [https://www.cnn.com/2020/12/16/politics/us-government-agencies-hack-uncertainty/index.html](https://www.cnn.com/2020/12/16/politics/us-government-agencies-hack-uncertainty/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 02:31:17+00:00
+
+Days after several US agencies confirmed their networks were compromised in a massive data breach, federal officials are still struggling to understand the scope of the damage -- highlighting the sophistication and breadth of a hacking campaign that has been tied to Russia.
+
+## Former Houston police captain charged with pointing gun at air-conditioner repairman, believing he was a voter fraud 'mastermind'
+ - [https://www.cnn.com/2020/12/16/us/former-houston-captain-vigilante-voter-fraud-incident/index.html](https://www.cnn.com/2020/12/16/us/former-houston-captain-vigilante-voter-fraud-incident/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 02:26:47+00:00
+
+A former police captain who was part of a private citizens group investigating still unsubstantiated 2020 election fraud claims was charged Tuesday with running a man off the road and pointing a gun to his head two weeks before the election, the Harris County district attorney said in a statement.
+
+## Biden's search for an attorney general complicated by 'competing questions'
+ - [https://www.cnn.com/2020/12/16/politics/biden-attorney-general/index.html](https://www.cnn.com/2020/12/16/politics/biden-attorney-general/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 02:16:36+00:00
+
+The deliberations among President-elect Joe Biden's tight circle of advisers about whom he should nominate as attorney general have emerged as some of the more complicated of the transition, sources familiar with the process tell CNN, with possible investigations into President Donald Trump, a federal probe into Hunter Biden's business dealings and pressure from powerful outside groups hanging over the process.
+
+## China's Chang'e-5 lunar probe successfully delivers moon samples to Earth
+ - [https://www.cnn.com/2020/12/16/asia/china-lunar-probe-intl/index.html](https://www.cnn.com/2020/12/16/asia/china-lunar-probe-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 01:54:24+00:00
+
+China has become only the third country in the world to successfully collect rocks from the moon.
+
+## She tweeted from Sweden about the plight of her Uyghur cousin. In Xinjiang, the authorities were watching
+ - [https://www.cnn.com/2020/12/16/china/uyghurs-silenced-abroad-intl-dst-hnk/index.html](https://www.cnn.com/2020/12/16/china/uyghurs-silenced-abroad-intl-dst-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 01:50:50+00:00
+
+Friday, September 4 was one of the happiest days in recent memory for Mayila Yakufu and her family.
+
+## When lawmakers buy and sell stocks, they're playing with fire
+ - [https://www.cnn.com/2020/12/16/investing/congress-stock-trading-ethics-perdue/index.html](https://www.cnn.com/2020/12/16/investing/congress-stock-trading-ethics-perdue/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 01:48:24+00:00
+
+Members of Congress who own stocks might face ethical dilemmas when they shape laws that could hurt -- or help -- their portfolios. Just ask Georgia Senators David Perdue and Kelly Loeffler.
+
+## Mayor who resigned over threats speaks out
+ - [https://www.cnn.com/videos/politics/2020/12/17/joyce-warshaw-former-kansas-mayor-mask-mandate-threats-sot-vpx-ebof.cnn](https://www.cnn.com/videos/politics/2020/12/17/joyce-warshaw-former-kansas-mayor-mask-mandate-threats-sot-vpx-ebof.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 01:44:09+00:00
+
+Dodge City, Kansas, Mayor Joyce Warsaw said she stepped down from her position after she received threats for supporting a mask mandate amid the Covid-19 pandemic.
+
+## The robot that could help make the shipping industry greener
+ - [https://www.cnn.com/travel/article/robot-hullskater-biofouling-ship-cleaning-spc-intl/index.html](https://www.cnn.com/travel/article/robot-hullskater-biofouling-ship-cleaning-spc-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 01:39:15+00:00
+
+When a ship sails through the sea, barnacles, mussels, algae, and other organisms stick to the hull of the vessel. This process is called biofouling -- and it's a big problem for the shipping industry.
+
+## Authorities know where the kidnapped Nigerian schoolboys are, says state governor
+ - [https://www.cnn.com/2020/12/16/africa/nigeria-schoolboys-location-intl/index.html](https://www.cnn.com/2020/12/16/africa/nigeria-schoolboys-location-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 01:35:47+00:00
+
+The location of 337 students who were unaccounted for after gunmen attacked a school in northwestern Nigeria on Friday, is now known by government authorities, according to state governor Aminu Bello Masari. Talks are ongoing to secure their release and the children are safe, he told CNN's Becky Anderson on Wednesday.
+
+## Hill leaders eye new round of stimulus checks as part of $900 billion Covid relief deal
+ - [https://www.cnn.com/2020/12/16/politics/stimulus-negotiations-state-of-play/index.html](https://www.cnn.com/2020/12/16/politics/stimulus-negotiations-state-of-play/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 01:31:05+00:00
+
+Congressional leaders, after months of a bitter stalemate and as millions of Americans have been eager for relief, are finally indicating they're nearing a deal on a new rescue package that could pass both chambers within days.
+
+## The holidays are often when Americans see family, but many are canceling this year
+ - [https://www.cnn.com/2020/12/16/health/canceled-holiday-plans-covid-wellness/index.html](https://www.cnn.com/2020/12/16/health/canceled-holiday-plans-covid-wellness/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 01:20:10+00:00
+
+No Christmas Eve dinners with lots of loved ones, community holiday celebrations or trips to visit extended family: In any other year so many canceled plans would be unusual, but the rising Covid-19 case numbers have ensured that many people will have a socially distanced holiday season.
+
+## A stunning Thailand destination far from the 'banana pancake trail'
+ - [https://www.cnn.com/travel/article/isaan-thailand-northeast-road-trip/index.html](https://www.cnn.com/travel/article/isaan-thailand-northeast-road-trip/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 01:17:57+00:00
+
+An overweight dog naps by an open-air som tam (papaya salad) shop. The scent of chicken grilling over charcoal fills the lane. A chorus of children's voices rings out from a schoolhouse. No one is wearing a mask, though an old man dons a straw hat on his bicycle.
+
+## Peruvian police dress as Santa and elves for drug raid
+ - [https://www.cnn.com/2020/12/16/world/peru-police-santa-claus-drug-raid-scli-intl/index.html](https://www.cnn.com/2020/12/16/world/peru-police-santa-claus-drug-raid-scli-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-17 00:52:16+00:00
+
+A family of alleged drug dealers in Peru found themselves firmly on the naughty list this year as police officers dressed as Santa and an elf raided their home.
+

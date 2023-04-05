@@ -1,0 +1,289 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## An 'exhausted' Trump's long path to coronavirus
+ - [https://www.cnn.com/2020/10/02/politics/trump-coronavirus-path/index.html](https://www.cnn.com/2020/10/02/politics/trump-coronavirus-path/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 23:44:14+00:00
+
+When President Donald Trump stepped into the dining room of his golf club in New Jersey on Thursday, high-dollar attendees gathered for a fundraiser there thought he seemed a little off.
+
+## Fox's Chris Wallace to viewers after Trump diagnosis: 'Wear the damn mask!'
+ - [https://www.cnn.com/videos/business/2020/10/02/fox-news-chris-wallace-trump-covid-19-diagnosis-orig.cnn](https://www.cnn.com/videos/business/2020/10/02/fox-news-chris-wallace-trump-covid-19-diagnosis-orig.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 23:25:21+00:00
+
+Fox News anchor Chris Wallace isn't holding back after President Trump's Covid-19 diagnosis, imploring viewers to "wear the damn mask."
+
+## Trump tweets video message after positive Covid-19 test
+ - [https://www.cnn.com/videos/politics/2020/10/02/donald-trump-twitter-video-message-walter-reed-arrival-diamond-tsr-vpx.cnn](https://www.cnn.com/videos/politics/2020/10/02/donald-trump-twitter-video-message-walter-reed-arrival-diamond-tsr-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 23:05:27+00:00
+
+Before leaving for Walter Reed medical center, President Donald Trump recorded a video message he later shared on Twitter. CNN's Jeremy Diamond reports the President thanked his supporters after testing positive for coronavirus.
+
+## No one has *any* idea what happens next
+ - [https://www.cnn.com/2020/10/02/politics/trump-coronavirus-what-happens-next-unknown/index.html](https://www.cnn.com/2020/10/02/politics/trump-coronavirus-what-happens-next-unknown/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 22:31:41+00:00
+
+President Donald Trump has Covid-19 and is heading to Walter Reed National Military Medical Center, according to the White House press secretary, who says he will remain there for several days.
+
+## Rick Moranis randomly punched in the head on NYC street
+ - [https://www.cnn.com/2020/10/02/us/rick-moranis-assault-trnd/index.html](https://www.cnn.com/2020/10/02/us/rick-moranis-assault-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 21:22:47+00:00
+
+Actor Rick Moranis, known for "Ghostbusters" and "Honey, I Shrunk the Kids," was randomly attacked by a stranger Thursday while walking in New York City's Upper West Side.
+
+## Cuba has one of the world's stricktest lockdowns. It has come at a high price
+ - [https://www.cnn.com/travel/article/cuba-coronavirus-lockdown-tourism/index.html](https://www.cnn.com/travel/article/cuba-coronavirus-lockdown-tourism/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 20:22:23+00:00
+
+For more than six months Cuba has maintained one of the tightest lockdowns anywhere in the world to prevent the spread of the coronavirus.
+
+## See how world leaders reacted to Trump's coronavirus diagnosis
+ - [https://www.cnn.com/videos/world/2020/10/02/world-reacts-trump-coronavirus-diagnosis-intl-ldn-vpx.cnn](https://www.cnn.com/videos/world/2020/10/02/world-reacts-trump-coronavirus-diagnosis-intl-ldn-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 18:48:50+00:00
+
+World leaders took to Twitter to wish President Donald Trump and first lady Melania Trump well following their coronavirus diagnosis. CNN's Nic Robertson reports.
+
+## First photo of a black hole supports Einstein's theory of relativity
+ - [https://www.cnn.com/2020/10/02/world/einstein-black-hole-shadow-scn-trnd/index.html](https://www.cnn.com/2020/10/02/world/einstein-black-hole-shadow-scn-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 17:59:18+00:00
+
+The first image of a black hole, captured in 2019, has revealed more support for Albert Einstein's theory of general relativity. The new finding has suggested his theory is now 500 times harder to beat.
+
+## 'Borat' returns to America in new trailer
+ - [https://www.cnn.com/videos/business/2020/10/02/borat-2-trailer-orig.cnn-business](https://www.cnn.com/videos/business/2020/10/02/borat-2-trailer-orig.cnn-business)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 17:16:30+00:00
+
+The character made famous by actor Sacha Baron Cohen is returning to the US with his "daughter."
+
+## Can nature heal itself? What the pandemic has shown us
+ - [https://www.cnn.com/2020/10/02/world/pandemic-biodiversity-united-nations-summit-intl-scn/index.html](https://www.cnn.com/2020/10/02/world/pandemic-biodiversity-united-nations-summit-intl-scn/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 16:49:36+00:00
+
+In the dark early days of the coronavirus pandemic, when a death toll of 1 million was still unimaginable, there was one bright spot: nature appeared to be healing. With humans under lockdown, stories circulated about unusual animal sightings, like wild goats taking over a town in Wales -- and then became a joke about the public's thirst for signs of regeneration: New Yorkers claimed the return of Elmo to Times Square as proof of a great earthly rebalancing.
+
+## Businessman dies while trying to break British land speed record
+ - [https://www.cnn.com/2020/10/02/motorsport/zef-eisenberg-dies-gbr-intl-scli-spt/index.html](https://www.cnn.com/2020/10/02/motorsport/zef-eisenberg-dies-gbr-intl-scli-spt/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 16:44:49+00:00
+
+Businessman and TV host Zef Eisenberg has died while attempting to break a British land speed record at an airfield in the UK, police have confirmed.
+
+## Billie Eilish drops Bond theme 'No Time to Die' video
+ - [https://www.cnn.com/2020/10/02/entertainment/billie-eilish-no-time-video-trnd/index.html](https://www.cnn.com/2020/10/02/entertainment/billie-eilish-no-time-video-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 16:44:32+00:00
+
+The reign of Billie Eilish as one of music's biggest stars continues.
+
+## UK bookmakers stop taking bets on US election after Trump gets Covid-19
+ - [https://www.cnn.com/2020/10/02/investing/uk-bookmakers-suspend-trump-bets/index.html](https://www.cnn.com/2020/10/02/investing/uk-bookmakers-suspend-trump-bets/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 16:36:06+00:00
+
+All bets are off after President Donald Trump contracted Covid-19 — at least according to UK bookmakers.
+
+## Landon Donovan: 'Immense pride' in Collin Martin for coming out in a 'very macho sport'
+ - [https://www.cnn.com/2020/10/02/football/collin-martin-landon-donovan-san-diego-phoenix-spt-intl/index.html](https://www.cnn.com/2020/10/02/football/collin-martin-landon-donovan-san-diego-phoenix-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 15:40:10+00:00
+
+Landon Donovan says "it is an immense source of pride" to be able to coach Collin Martin, the victim of an alleged homophobic slur during San Diego Loyal's match against Phoenix Rising on Wednesday.
+
+## Police department releases footage of incident that caused 5 officers to resign
+ - [https://www.cnn.com/2020/10/02/us/harold-easter-death-charlotte-police/index.html](https://www.cnn.com/2020/10/02/us/harold-easter-death-charlotte-police/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 15:35:35+00:00
+
+Harold Easter was seizing on the floor of a police interrogation room for about seven minutes before officers found him, a video released by police shows. Three days later, he was dead.
+
+## Hit songwriter's former villa on one of world's best beaches is up for sale
+ - [https://www.cnn.com/style/article/volare-domenico-modugno-villa-for-sale-lampedusa/index.html](https://www.cnn.com/style/article/volare-domenico-modugno-villa-for-sale-lampedusa/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 15:24:33+00:00
+
+A new luxury property listing is offering lush gardens of bright bougainvilleas, panoramic terraces overlooking a shimmering tropical-like sea and one of the world's best beaches just a few steps from the garden gate. Plus, the thrill of living in the home that inspired a great artist.
+
+## See which comedian is set to play Joe Biden on 'SNL'
+ - [https://www.cnn.com/videos/media/2020/10/02/jim-carrey-snl-biden-sneak-peek-orig-vstop-bdk.cnn](https://www.cnn.com/videos/media/2020/10/02/jim-carrey-snl-biden-sneak-peek-orig-vstop-bdk.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 15:09:19+00:00
+
+"Saturday Night Live" is kicking off its 46th season with actor and comedian Jim Carrey taking over the role of Democratic presidential nominee Joe Biden.
+
+## Private jets are more accessible than ever. Here's how to hire one
+ - [https://www.cnn.com/travel/article/how-to-hire-private-jet/index.html](https://www.cnn.com/travel/article/how-to-hire-private-jet/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 15:06:07+00:00
+
+These Covid-era days, fewer people want to sit on a plane literally rubbing elbows with strangers, so they're looking for alternative ways to travel that minimize close contact.
+
+## See what Havana's streets look like amid pandemic
+ - [https://www.cnn.com/videos/travel/2020/10/02/cuba-havana-covid-19-coronavirus-pandemic-lockdown-oppmann-pkg-intl-ldn-vpx.cnn](https://www.cnn.com/videos/travel/2020/10/02/cuba-havana-covid-19-coronavirus-pandemic-lockdown-oppmann-pkg-intl-ldn-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 15:00:37+00:00
+
+Cuba has been in lockdown for 6 months with no commercial flights coming in or out of the island. Many of the country's main tourist centers look like ghost towns with hotels and restaurants shuttered. CNN's Patrick Oppmann reports.
+
+## Pelosi reacts to Trump's coronavirus diagnosis
+ - [https://www.cnn.com/videos/politics/2020/10/02/nancy-pelosi-trump-coronavirus-diagnosis-nr-vpx.cnn](https://www.cnn.com/videos/politics/2020/10/02/nancy-pelosi-trump-coronavirus-diagnosis-nr-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 14:42:53+00:00
+
+House Speaker Nancy Pelosi says she is praying for President Donald Trump and first lady Melania Trump after the president announced they both tested positive for coronavirus.
+
+## Chrissy Teigen breaks a long-standing culture of silence by sharing her loss
+ - [https://www.cnn.com/2020/10/02/us/chrissy-teigen-pregnancy-complications-support-trnd/index.html](https://www.cnn.com/2020/10/02/us/chrissy-teigen-pregnancy-complications-support-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 13:46:47+00:00
+
+In openly sharing her painful message of loss on social media, Chrissy Teigen became an important voice for mothers who have also experienced the loss of a child to pregnancy complications.
+
+## No regrets over T-shirts printed with seven bullet holes protest, says basketball star
+ - [https://www.cnn.com/2020/10/02/sport/ariel-atkins-wnba-athletes-protest-cmd-spt-intl/index.html](https://www.cnn.com/2020/10/02/sport/ariel-atkins-wnba-athletes-protest-cmd-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 13:40:28+00:00
+
+After boycotting their game against Atlanta Dream in late August, players of the WNBA's Washington Mystics team took to the court wearing white T-shirts printed with seven bullet holes in Jacob Blake's honor.
+
+## Paris at risk of total lockdown
+ - [https://www.cnn.com/collections/coronavirus-intl-10-02/](https://www.cnn.com/collections/coronavirus-intl-10-02/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 13:30:26+00:00
+
+
+
+## See paramedics test a jet suit that can fly up mountains
+ - [https://www.cnn.com/videos/business/2020/09/29/paramedics-jet-suit-gravity-lon-orig-mrg.cnn](https://www.cnn.com/videos/business/2020/09/29/paramedics-jet-suit-gravity-lon-orig-mrg.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 12:55:38+00:00
+
+An ambulance service in the UK's Lake District has tested a new jet suit that could help "save lives," according to the paramedics.
+
+## Prince Harry says he's had an 'awakening' on racism, in a world 'created by White people for White people'
+ - [https://www.cnn.com/2020/10/02/uk/prince-harry-meghan-racism-bhm-gbr-intl-scli/index.html](https://www.cnn.com/2020/10/02/uk/prince-harry-meghan-racism-bhm-gbr-intl-scli/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 11:50:04+00:00
+
+Prince Harry has described his "awakening" to the existence of systemic racism, saying "the world that we know has been created by White people for White people."
+
+## Underground parking garage being used to treat Covid-19
+ - [https://www.cnn.com/videos/world/2020/10/02/israel-haifa-coronavirus-covid-19-pandemic-underground-hospital-liebermann-pkg-intl-ldn-vpx.cnn](https://www.cnn.com/videos/world/2020/10/02/israel-haifa-coronavirus-covid-19-pandemic-underground-hospital-liebermann-pkg-intl-ldn-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 11:38:56+00:00
+
+As Israel's coronavirus numbers surge, the largest hospital in northern Israel has converted its parking garage, built to withstand bombs and biological warfare, into a 770-bed subterranean treatment center. CNN's Oren Liebermann reports.
+
+## Texas move on mail-in voting stirs new suppression fears
+ - [https://www.cnn.com/2020/10/02/politics/donald-trump-election-2020-texas-voting/index.html](https://www.cnn.com/2020/10/02/politics/donald-trump-election-2020-texas-voting/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 11:37:55+00:00
+
+Texas Gov. Greg Abbott's order to close multiple drop-off locations for mail-in ballots across his vast state is bolstering fears President Donald Trump and Republican allies are seeking to suppress the vote in an election in which he is trailing.
+
+## Family of 'Hotel Rwanda hero' urges US, EU and Belgium to help free him
+ - [https://www.cnn.com/2020/10/02/africa/paul-rusesabagina-family-appeal-intl/index.html](https://www.cnn.com/2020/10/02/africa/paul-rusesabagina-family-appeal-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 11:19:35+00:00
+
+The family of Paul Rusesabagina, the former hotelier portrayed as a hero in a film about Rwanda's 1994 genocide, on Thursday called on the United States, the European Union and Belgium to appeal for his release from prison in Rwanda.
+
+## Financial London's grim history revealed
+ - [https://www.cnn.com/travel/article/london-slavery-tour/index.html](https://www.cnn.com/travel/article/london-slavery-tour/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 11:06:46+00:00
+
+Five years ago, in 2015, the Apple Watch went on sale, water was discovered on Mars, and British taxpayers finally paid off their multi-billion-dollar debt to compensate slave-owners for lost income.
+
+## Trump kept a packed schedule during the pandemic. Putin stayed in a bubble
+ - [https://www.cnn.com/2020/10/02/europe/putin-bubble-trump-covid-intl/index.html](https://www.cnn.com/2020/10/02/europe/putin-bubble-trump-covid-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 11:04:50+00:00
+
+Over months of the coronavirus pandemic, US President Donald Trump has kept to a busy schedule, packed with campaign rallies and public events. The contrast with Russian President Vladimir Putin could not be more stark: The authoritarian leader Trump admires so much is living in a bubble.
+
+## What it's like to be a creative polymath
+ - [https://www.cnn.com/style/article/jonathan-anderson-fashion/index.html](https://www.cnn.com/style/article/jonathan-anderson-fashion/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 10:58:46+00:00
+
+Fashion is a creative dance between practical design and conceptual thinking. Success comes when the dance is so enthralling people can't look away.
+
+## Secretly recorded tapes show Melania Trump's frustration at criticism for family separation policy
+ - [https://www.cnn.com/2020/10/01/politics/melania-trump-tapes/index.html](https://www.cnn.com/2020/10/01/politics/melania-trump-tapes/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 10:54:03+00:00
+
+First Lady Melania Trump was secretly recorded in the summer of 2018 expressing her frustration at being criticized for her husband's policy of separating families who illegally crossed the southern border while at the same time needing to perform traditional first lady duties, such as preparing for Christmas.
+
+## Both goalkeepers miss as AC Milan wins marathon 24-penalty shootout
+ - [https://www.cnn.com/2020/10/02/football/ac-milan-penalty-shootout-europa-league-spt-intl/index.html](https://www.cnn.com/2020/10/02/football/ac-milan-penalty-shootout-europa-league-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 10:25:51+00:00
+
+AC Milan secured its place in this season's Europa League group stage after scraping past Portuguese opponents Rio Ave in an epic 24-penalty shootout on Thursday.
+
+## India's richest man has raised $3.4 billion for his retail empire in just a few weeks
+ - [https://www.cnn.com/2020/10/02/business/reliance-retail-india-intl-hnk/index.html](https://www.cnn.com/2020/10/02/business/reliance-retail-india-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 10:15:54+00:00
+
+Mukesh Ambani is on another serious fundraising spree.
+
+## The future of clean energy according to solar pioneer
+ - [https://www.cnn.com/2020/10/02/world/bertrand-piccard-modern-explorers-spc-intl/index.html](https://www.cnn.com/2020/10/02/world/bertrand-piccard-modern-explorers-spc-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 09:19:51+00:00
+
+As a boy, Bertrand Piccard traveled to Cape Canaveral, Florida, to watch the launch of an Apollo mission. As formative experiences go, it's up there. The roar of thrusters, burning bright; the arc of the rocket piercing the sky, heading for the depths of space. These are things one doesn't forget. Especially if, like Piccard, you watched six launches while still a child.
+
+## Australian man jailed after stomping on pregnant Muslim woman
+ - [https://www.cnn.com/2020/10/02/australia/australia-pregnant-woman-attack-intl-hnk-scli/index.html](https://www.cnn.com/2020/10/02/australia/australia-pregnant-woman-attack-intl-hnk-scli/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 08:10:30+00:00
+
+An Australian man who punched and stomped on a pregnant Muslim woman has been sentenced to three years in prison.
+
+## Microsoft, why is there an abyss in the middle of Brazil?
+ - [https://www.cnn.com/travel/article/microsoft-flight-simulator-abyss/index.html](https://www.cnn.com/travel/article/microsoft-flight-simulator-abyss/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 07:58:01+00:00
+
+Microsoft released its rebooted Flight Simulator program in August 2020, immediately wowing gamers with its hyper-realistic scenery, digitally distilled from satellite imagery.
+
+## Hear what Melania Trump said on secret recording
+ - [https://www.cnn.com/videos/politics/2020/10/02/melania-trump-audio-recording-christmas-stephanie-winston-wolkoff-sot-ac360-vpx.cnn](https://www.cnn.com/videos/politics/2020/10/02/melania-trump-audio-recording-christmas-stephanie-winston-wolkoff-sot-ac360-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 04:17:28+00:00
+
+First Lady Melania Trump is heard complaining about Christmas decorations on a tape secretly recorded by Stephanie Winston Wolkoff, a former friend and senior adviser to the first lady.
+
+## Rare photos of 19th-century China
+ - [https://www.cnn.com/style/article/china-photos-19th-century-loewentheil-collection/index.html](https://www.cnn.com/style/article/china-photos-19th-century-loewentheil-collection/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 03:04:40+00:00
+
+Before the arrival of photography, the Western imagination of China was based on paintings, written travelogues and dispatches from a seemingly far-off land.
+
+## Fox News paid Kimberly Guilfoyle's former assistant $4 million after sexual harassment accusations, New Yorker reports
+ - [https://www.cnn.com/2020/10/01/media/kimberly-guilfoyle-fox-allegations/index.html](https://www.cnn.com/2020/10/01/media/kimberly-guilfoyle-fox-allegations/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 02:31:14+00:00
+
+Fox News paid the former assistant to ex-host Kimberly Guilfoyle upward of $4 million to avoid going to trial after the employee wrote a 2018 draft complaint detailing allegations of sexual harassment against her, The New Yorker reported Thursday, citing two well-informed sources.
+
+## Farm goes from 'biological desert' to biodiversity hotspot by letting the animals take charge
+ - [https://www.cnn.com/2020/10/01/world/knepp-farm-rewilding-scn-cte-spc/index.html](https://www.cnn.com/2020/10/01/world/knepp-farm-rewilding-scn-cte-spc/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-02 02:04:42+00:00
+
+During the spring and summer months, the birdsong on Knepp estate is a glorious cacophony of sound.
+

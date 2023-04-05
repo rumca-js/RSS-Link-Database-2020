@@ -1,0 +1,450 @@
+# Source:The Guardian, URL:https://www.theguardian.com/rss, language:en-UK
+
+## Sainsbury’s top man steps down just as the panic-buying revenues roll in
+ - [https://www.theguardian.com/business/2020/apr/25/sainsburys-man-at-top-steps-down-panic-buying-revenues-mike-coupe](https://www.theguardian.com/business/2020/apr/25/sainsburys-man-at-top-steps-down-panic-buying-revenues-mike-coupe)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 23:05:00+00:00
+
+Not everything Mike Coupe did went well, but he, like his retail rivals, has had to tackle historic challenges<p>Mike Coupe is preparing to deliver Sainsbury’s annual results on Thursday, his last presentation to investors as head of Britain’s second biggest supermarket chain. After almost six years at the top, <a href="https://www.theguardian.com/business/2020/jan/22/sainsburys-chief-executive-mike-coupe-to-step-down-in-may" title="">the 59-year-old is retiring</a><a href="https://www.theguardian.com/business/2020/jan/22/sainsburys-chief-executive-mike-coupe-to-step-down-in-may" title=""> on 31 May</a>, and will hand over to Simon Roberts, the group’s retail and operations director.</p><p>You wonder how Roberts might be feeling about that. Few could have predicted the challenges facing the retailer, and the country, when Coupe’s departure was announced in January – just as Public Health England was declaring that the risk to the British public from coronavirus was low.</p> <a href="https://www.theguardian.com/business/2020/apr/25/sainsburys-man-at-top-steps-down-panic-buying-revenues-mike-coupe">Continue reading...</a>
+
+## Everton 'appalled' after Moise Kean hosts coronavirus lockdown party
+ - [https://www.theguardian.com/football/2020/apr/26/everton-appalled-moise-kean-hosts-coronavirus-lockdown-party](https://www.theguardian.com/football/2020/apr/26/everton-appalled-moise-kean-hosts-coronavirus-lockdown-party)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 23:02:24+00:00
+
+<ul><li>Striker filmed himself partying at home with guests</li><li>‘The club has made it clear such actions are unacceptable’</li></ul><p>Everton have labelled Moise Kean’s actions “unacceptable” after he flouted coronavirus lockdown restrictions.</p><p>The striker filmed himself partying at home with guests in a breach of social distancing regulations during the coronavirus pandemic. Kean, who joined from Juventus for a reported £24m last summer, is likely to face disciplinary action.</p> <a href="https://www.theguardian.com/football/2020/apr/26/everton-appalled-moise-kean-hosts-coronavirus-lockdown-party">Continue reading...</a>
+
+## Hong Kong arrests and Taiwan flybys: China advances its interests during Covid-19 crisis
+ - [https://www.theguardian.com/world/2020/apr/26/hong-kong-arrests-and-taiwan-flybys-chinas-advances-its-interests-during-covid-19-crisis](https://www.theguardian.com/world/2020/apr/26/hong-kong-arrests-and-taiwan-flybys-chinas-advances-its-interests-during-covid-19-crisis)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 23:00:00+00:00
+
+<p>Beijing has drawn accusations it is using the distraction of the coronavirus pandemic to advance regional interests. Here are some examples</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>China has been accused of using the coronavirus pandemic as an excuse to take some bold and provocative actions, including expansions in the South China Sea, crackdowns on activists in Hong Kong and further detention of activists in the mainland. Some analysts have suggested Beijing is <a href="https://www.reuters.com/article/us-china-security/china-rattles-sabres-as-world-battles-coronavirus-pandemic-idUSKBN2230GC">sending a message that China’s aggressive foreign policy is still business as usual</a>, or <a href="https://warontherocks.com/2020/04/same-as-it-ever-was-chinas-pandemic-opportunism-on-its-periphery/">testing its adversaries for weaknesses</a>.</p> <a href="https://www.theguardian.com/world/2020/apr/26/hong-kong-arrests-and-taiwan-flybys-chinas-advances-its-interests-during-covid-19-crisis">Continue reading...</a>
+
+## Trump says briefings 'not worth the effort' amid fallout from disinfectant comments
+ - [https://www.theguardian.com/us-news/2020/apr/25/donald-trump-stays-away-from-briefings-amid-fallout-from-disinfectant-comments](https://www.theguardian.com/us-news/2020/apr/25/donald-trump-stays-away-from-briefings-amid-fallout-from-disinfectant-comments)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 22:26:53+00:00
+
+<p>The president remained behind closed doors after advisers reportedly warned him that the briefings were hurting his campaign</p><p>After more than a month of near-daily White House coronavirus press briefings, Donald Trump stayed behind closed doors on Saturday after advisers reportedly warned the president that his appearances were hurting his campaign.</p><p>Trump himself referenced his absence when he wrote on Twitter that the briefings are “not worth the time &amp; effort”. The president wrote the tweet on Saturday evening, when he would usually be taking the podium to address journalists.</p> <a href="https://www.theguardian.com/us-news/2020/apr/25/donald-trump-stays-away-from-briefings-amid-fallout-from-disinfectant-comments">Continue reading...</a>
+
+## Olympic hopeful Eleanor Davis puts Tokyo ambition on hold to save lives
+ - [https://www.theguardian.com/sport/2020/apr/25/olympic-athletics-hopeful-eleanor-davis-puts-tokyo-ambition-on-hold-to-save-lives](https://www.theguardian.com/sport/2020/apr/25/olympic-athletics-hopeful-eleanor-davis-puts-tokyo-ambition-on-hold-to-save-lives)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 21:30:00+00:00
+
+<p>The athlete intended to spend Sunday running the London Marathon but will be on a Covid-19 ward helping patients</p><p>Eleanor Davis had intended to spend Sunday on a 42,000-step journey towards Team GB’s squad for the 2020 Olympics. Instead, at 8.55am, when the London Marathon elite women’s race was due to start, Davis will be on a Covid-19 ward saving lives. “It’s gutting that the race has been cancelled,” says Davis, a doctor at Stepping Hill hospital in Stockport. “But there are more important things going on.”</p><p>In December, the 31-year-old put years of injury niggles behind her by running a 2hr 33min marathon in Valencia – putting her in the UK’s top 10 last year – and believed she was on course to go under 2:30 in London. That would have given her a live shot at securing one of the three places for Tokyo. But when the virus spread, she volunteered for extra shifts and put her ambitions on hold.</p> <a href="https://www.theguardian.com/sport/2020/apr/25/olympic-athletics-hopeful-eleanor-davis-puts-tokyo-ambition-on-hold-to-save-lives">Continue reading...</a>
+
+## New York mourns the artists lost to Covid-19 – and dares to ponder its future
+ - [https://www.theguardian.com/world/2020/apr/25/new-york-coronavirus-culture](https://www.theguardian.com/world/2020/apr/25/new-york-coronavirus-culture)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 21:02:00+00:00
+
+<p>Singers and impresarios have died, and with them has gone a cultural moment. How will the city respond when the pandemic has waned?<br /></p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>The streets of Manhattan are empty, the skyline brittle, and the subways populated only by healthcare workers, the mentally ill and homeless. The Covid-19 pandemic has cleared out wealthy parts of the metropolis, transitory at the best of times. On the streets, masked strangers treat each other warily, invoking a previous era of economic desolation and prudent social separation.</p><p>Yet as the new infection rate falls, and the horrific daily death toll begins to taper, the city is beginning to draw breath and imagine itself anew. But what kind of city will it be?</p> <a href="https://www.theguardian.com/world/2020/apr/25/new-york-coronavirus-culture">Continue reading...</a>
+
+## Top Tories join calls to bar Cummings from scientific advisory group
+ - [https://www.theguardian.com/politics/2020/apr/25/top-tories-demand-dominic-cummings-sage-bar-cross-party-call](https://www.theguardian.com/politics/2020/apr/25/top-tories-demand-dominic-cummings-sage-bar-cross-party-call)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 21:00:00+00:00
+
+<p>Cross-party demand for transparency after chief adviser is revealed as attending meetings of Sage</p><p>Boris Johnson is facing cross-party calls to stop his chief adviser from attending meetings of the secret scientific group advising him on the coronavirus pandemic, as demands grow for the committee’s deliberations to be made public.</p><p>The former Brexit secretary, David Davis, is among those calling for Dominic Cummings and Ben Warner, an adviser who ran the Tories’ private election computer model, to be prevented from attending future meetings of <a href="https://www.theguardian.com/world/2020/apr/24/coronavirus-whos-who-on-secret-scientific-group-advising-uk-government-sage" title="">the Scientific Advisory Group for Emergencies (Sage)</a>.</p> <a href="https://www.theguardian.com/politics/2020/apr/25/top-tories-demand-dominic-cummings-sage-bar-cross-party-call">Continue reading...</a>
+
+## El Salvador imposes prisons lockdown after 22 murders in a day
+ - [https://www.theguardian.com/world/2020/apr/25/el-salvador-imposes-prisons-lockdown-after-22-murders-in-a-day](https://www.theguardian.com/world/2020/apr/25/el-salvador-imposes-prisons-lockdown-after-22-murders-in-a-day)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 20:37:05+00:00
+
+<p>‘Maximum emergency’ to allow police investigate highest single-day homicide tally</p><p>The Salvadoran president, Nayib Bukele, late on Friday ordered a 24-hour lockdown of prisons containing gang members, and said their leaders would be sent into solitary confinement after a sudden spike in homicides during the day.</p><p>“No contact with the outside world. Shops will remain closed and all activities are suspended until further notice,” Bukele tweeted shortly before midnight. “Gang leaders will go into solitary confinement.”</p> <a href="https://www.theguardian.com/world/2020/apr/25/el-salvador-imposes-prisons-lockdown-after-22-murders-in-a-day">Continue reading...</a>
+
+## Hamilton Bohannon, disco and Motown star, dies aged 78
+ - [https://www.theguardian.com/music/2020/apr/25/hamilton-bohannon-disco-and-motown-star-dies-aged-78](https://www.theguardian.com/music/2020/apr/25/hamilton-bohannon-disco-and-motown-star-dies-aged-78)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 20:22:19+00:00
+
+<p>Drummer backed Stevie Wonder and Marvin Gaye before writing a string of much-sampled disco hits</p><p>The US disco, funk and soul musician Hamilton Bohannon, who backed Motown’s greats before starting a respected solo career, has died at age 78.</p><p>No cause of death has been announced, according to the <a href="https://times-herald.com/news/2020/04/music-legend-bohannon-passes">Newnan Times-Herald</a> newspaper in the Georgia town of his birth. They reported speaking to family members.</p> <a href="https://www.theguardian.com/music/2020/apr/25/hamilton-bohannon-disco-and-motown-star-dies-aged-78">Continue reading...</a>
+
+## Bushfires leave 470 plants and 200 animals in dire straits – government analysis
+ - [https://www.theguardian.com/environment/2020/apr/26/bushfires-leave-470-plants-and-200-animals-in-dire-straits-government-analysis](https://www.theguardian.com/environment/2020/apr/26/bushfires-leave-470-plants-and-200-animals-in-dire-straits-government-analysis)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 20:00:54+00:00
+
+<p>The most severely affected invertebrates and plants lost at least 30% of habitat to the fires</p><p>More than 400 plants and nearly 200 invertebrates need urgent attention after the bushfire crisis, new analysis for the federal environment department has found.</p><p>Freshwater mussels, shrimps, burrowing crayfish, land snails, spiders, millipedes, bees, dragonflies and butterflies were among the invertebrates whose ranges have been severely affected by the unprecedented fires through spring and summer.</p> <a href="https://www.theguardian.com/environment/2020/apr/26/bushfires-leave-470-plants-and-200-animals-in-dire-straits-government-analysis">Continue reading...</a>
+
+## Sunderland's Victorian all-stars blazed trail for money's rule of football
+ - [https://www.theguardian.com/football/blog/2020/apr/25/even-when-sunderland-ruled-the-globe-club-world-cups-were-controversial](https://www.theguardian.com/football/blog/2020/apr/25/even-when-sunderland-ruled-the-globe-club-world-cups-were-controversial)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 19:00:53+00:00
+
+<p>The 5-3 win over the Scottish champions, Hearts, by the 1895 First Division winners was set against a backdrop of unease</p><p>The Club World Cup has never stimulated universal enthusiasm. “The whole case goes to show how undesirable such events are from a sporting point of view, and what a prostitution of titles they are,” raged the <em>Edinburgh Evening News</em>, but that was 1895 and it wasn’t talking about the soft-power festival of greed that, in the distant days before the virus, was supposed to be taking place in China in the summer of 2021.</p><p>Rather it was talking about the first meeting of league winners of England and Scotland, of the match played 125 years ago on Monday, in which Sunderland became world champions.</p> <a href="https://www.theguardian.com/football/blog/2020/apr/25/even-when-sunderland-ruled-the-globe-club-world-cups-were-controversial">Continue reading...</a>
+
+## Michigan senator apologizes for wearing Confederate flag face mask
+ - [https://www.theguardian.com/us-news/2020/apr/25/michigan-senator-mask-confederate-flag](https://www.theguardian.com/us-news/2020/apr/25/michigan-senator-mask-confederate-flag)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 18:23:36+00:00
+
+<p>Dale Zorn initially defended his actions, saying it was part of ‘our history’, but eventually apologized after widespread outrage</p><p>A Republican politician in Michigan has apologized after wearing a face mask that appeared to depict the Confederate flag, an image offensive to many Americans as a symbol of racism and slavery.</p><p>Michigan state Senator Dale Zorn <a href="https://twitter.com/RealBNewland/status/1254052036909416450?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1254052036909416450&amp;ref_url=https%3A%2F%2Fwww.theguardian.com%2Fus-news%2Flive%2F2020%2Fapr%2F25%2Fcoronavirus-us-live-news-donald-trump-updates">wore the mask</a> during a Senate vote at the state capitol in Lansing on Friday. He initially defended his actions, saying his wife had made the mask and that it depicted the <a href="https://en.wikipedia.org/wiki/Flag_of_Tennessee">flag of Tennessee</a> or <a href="https://en.wikipedia.org/wiki/Flag_of_Kentucky">Kentucky</a>.</p> <a href="https://www.theguardian.com/us-news/2020/apr/25/michigan-senator-mask-confederate-flag">Continue reading...</a>
+
+## A growing clamour of voices treats the pandemic as if it's just health and safety gone mad | Catherine Bennett
+ - [https://www.theguardian.com/commentisfree/2020/apr/25/lift-the-lockdown-on-the-say-so-of-a-tory-with-an-empathy-bypass-no-thanks-catherine-bennett](https://www.theguardian.com/commentisfree/2020/apr/25/lift-the-lockdown-on-the-say-so-of-a-tory-with-an-empathy-bypass-no-thanks-catherine-bennett)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 18:00:52+00:00
+
+<p>Far too many are making a ‘commonsense’ case for relaxing restrictions<br /></p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p><br />The quiet stoicism of some Conservative MPs. “We have to accept a little bit of risk,” says Geoffrey Clifton-Brown, the treasurer of the 1922 Committee. This group of predominantly middle-aged men is <a href="https://www.dailymail.co.uk/news/article-8248401/Tory-MPs-fury-coronavirus-lockdown-limbo.html">defiant in the face of the deaths</a> that could follow an accelerated easing of lockdown, which it supports for economic reasons. “That inevitably will mean that there will be, at each time, more coronavirus cases. And we just have to accept that,” Clifton-Brown has <a href="https://twitter.com/bbc5live/status/1253283963638091776">said</a>.</p><p>Is he well cast as the reaper’s apprentice? Perhaps, if you accept that Clifton-Brown’s tolerance of possibly large-scale virus-hastened exits may be perfectly reconcilable with his vote against assisted dying. Until last week, the main thing one remembered about this MP was an altercation <a href="https://www.dailymail.co.uk/news/article-7527299/Im-mortified-Sir-Geoffrey-Clifton-Brown-apologises-kicked-Tory-conference.html">at last year’s Tory conference</a>, involving a missing pass, “remonstration” and the police being called.</p> <a href="https://www.theguardian.com/commentisfree/2020/apr/25/lift-the-lockdown-on-the-say-so-of-a-tory-with-an-empathy-bypass-no-thanks-catherine-bennett">Continue reading...</a>
+
+## Finishing Premier League season for the sake of it would be pointless | Paul Wilson
+ - [https://www.theguardian.com/football/blog/2020/apr/25/finishing-premier-league-season-pointless-football](https://www.theguardian.com/football/blog/2020/apr/25/finishing-premier-league-season-pointless-football)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 18:00:52+00:00
+
+<p>It’s the money men who want games played behind closed doors and any restart would be both artificial and risky</p><p>Word must have somehow reached Uefa that people are suffering in the present crisis, with the return of competitive football not really their highest priority, since the <a href="https://www.theguardian.com/football/2020/apr/23/uefa-european-leagues-to-determine-placings-on-sporting-merit">governing body’s latest edict</a> not only showed uncharacteristic humility but revealed an unexpected shift towards common sense.</p><p>Of course leagues around Europe should not be penalised for scrapping the present, wrecked, season without playing any more games. Of all the solutions being suggested over the past few weeks this is the obvious one and the easiest to put into practice.</p> <a href="https://www.theguardian.com/football/blog/2020/apr/25/finishing-premier-league-season-pointless-football">Continue reading...</a>
+
+## Premiership rugby clubs in danger due to funding shortfall from paused season
+ - [https://www.theguardian.com/sport/2020/apr/25/premiership-rugby-union-clubs-in-danger-funding-shortfall-from-paused-season](https://www.theguardian.com/sport/2020/apr/25/premiership-rugby-union-clubs-in-danger-funding-shortfall-from-paused-season)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 18:00:52+00:00
+
+<ul><li>Funds next term based on RFU revenue who forecast £50m loss<br /></li><li>At least one club may go bust if lockdown goes through summer<br /></li></ul><p>Premiership clubs face losing out on millions in central funding because of a clause in the longstanding agreement with the Rugby Football Union which will become active at the end of the coronavirus pandemic-interrupted season. A significant shortfall could prove fatal for some clubs, with at least one thought to be in danger of going bust if the lockdown extends through the summer.</p><p>Under the eight-year Professional Game Agreement, signed in 2016 between Premiership Rugby Limited (PRL) and the RFU, clubs are guaranteed funding from the union each season. For the first four, they have received a fixed amount and £25.5m for this campaign. But as of next term that sum becomes variable and, crucially, is based on the RFU’s revenues.</p> <a href="https://www.theguardian.com/sport/2020/apr/25/premiership-rugby-union-clubs-in-danger-funding-shortfall-from-paused-season">Continue reading...</a>
+
+## Premier League's virtual comeback a triumph – especially for Diogo Jota | Simon Burnton
+ - [https://www.theguardian.com/sport/2020/apr/25/diogo-jota-wins-virtual-football-final-against-trent-alexander-arnold](https://www.theguardian.com/sport/2020/apr/25/diogo-jota-wins-virtual-football-final-against-trent-alexander-arnold)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 18:00:51+00:00
+
+<p>The Wolves man’s golden-goal win against Trent Alexander-Arnold kept Liverpool waiting for a title at the climax of a pound-shop version of MTV Cribs</p><p>It was the least fitting of finals: after a tournament that had featured a net-busting 106 goals in just 18 matches when the best players met there were just two in the final, shared between Trent Alexander-Arnold and Diogo Jota, with the latter eventually winning after 68 impossibly tense, albeit sped-up minutes of golden-goal extra time. Still, after the events of the last few weeks the merest glimpse of the word “live” in the corner of a Sky Sports screen must have been enough to make action-starved fans quite emotional.</p><p> <span>Related: </span><a href="https://www.theguardian.com/sport/2020/apr/11/esports-ride-crest-of-a-wave-as-figures-rocket-during-covid-19-crisis">Esports ride crest of a wave as figures rocket during Covid-19 crisis | Scott Heinrich</a> </p> <a href="https://www.theguardian.com/sport/2020/apr/25/diogo-jota-wins-virtual-football-final-against-trent-alexander-arnold">Continue reading...</a>
+
+## Leading Muslims hit out at Trevor Phillips’s role in Covid-19 BAME deaths inquiry
+ - [https://www.theguardian.com/world/2020/apr/25/leading-muslims-hit-out-at-trevor-phillipss-role-in-covid-19-bame-deaths-inquiry](https://www.theguardian.com/world/2020/apr/25/leading-muslims-hit-out-at-trevor-phillipss-role-in-covid-19-bame-deaths-inquiry)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 17:38:13+00:00
+
+<p>Objections raised to inclusion of man suspended from Labour over Islamophobia allegations</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>The selection of Trevor Phillips to investigate why Covid-19 is killing more Black, Asian and minority ethnic people has sparked a row after leading Muslims criticised his appointment as “insensitive”.</p><p>Phillips, the former chairman of the Equalities and Human Rights Commission, was asked by Public Health England to provide expert support to an inquiry into why increasing numbers of victims of the coronavirus pandemic are from BAME backgrounds.</p> <a href="https://www.theguardian.com/world/2020/apr/25/leading-muslims-hit-out-at-trevor-phillipss-role-in-covid-19-bame-deaths-inquiry">Continue reading...</a>
+
+## Brexit, the elephant in the hospital room – cartoon
+ - [https://www.theguardian.com/commentisfree/picture/2020/apr/25/brexit-the-elephant-in-the-hospital-room-cartoon](https://www.theguardian.com/commentisfree/picture/2020/apr/25/brexit-the-elephant-in-the-hospital-room-cartoon)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 17:00:50+00:00
+
+<p>A large pachyderm interrupts Boris Johnson’s lockdown exit planning</p><p>•<a href="https://guardianprintshop.com/collections/chris-riddell-1/products/26th-april-2020">You can buy your own print of this cartoon</a></p> <a href="https://www.theguardian.com/commentisfree/picture/2020/apr/25/brexit-the-elephant-in-the-hospital-room-cartoon">Continue reading...</a>
+
+## Coventry City 3-2 Tottenham Hotspur: 1987 FA Cup final – as it happened
+ - [https://www.theguardian.com/sport/live/2020/apr/25/coventry-city-v-tottenham-hotspur-1987-fa-cup-final-live](https://www.theguardian.com/sport/live/2020/apr/25/coventry-city-v-tottenham-hotspur-1987-fa-cup-final-live)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 16:56:25+00:00
+
+<ul><li>Coventry win first trophy in their 104-year history</li><li>Spurs end season empty-handed after instant classic</li><li><a href="https://www.theguardian.com/football/blog/2016/may/20/golden-goal-keith-houchen-for-coventry-city-v-tottenham-1987">Golden Goal: Daniel Harris on Keith Houchen’s header</a></li></ul><p class="block-time published-time"> <time datetime="2020-04-25T16:52:51.755Z">5.52pm <span class="timezone">BST</span></time> </p><p><strong>So congratulations to Coventry City, the deserved winners of the 1987 FA Cup! </strong>Onwards and upwards for a club that has finally come of age as a top-flight concern. Next season’s kit, a gorgeous sky-blue take on Denmark’s beloved Hummel number from Mexico 86, looks like a statement of intent to us. As for Spurs ... only those with a heart of stone or a Highbury season ticket will fail to feel for them, after contributing so much to the league and both cups, only to come away with nothing. They’ll be back at Wembley soon enough, just like David Pleat promises. Anyway, thanks for reading this MBM. David Lacey’s report has landed; click below and enjoy. Here’s hoping for more David-Goliath cup drama next year!</p><p> <span>Related: </span><a href="https://www.theguardian.com/football/1987/may/16/facup.sport">Cup earned by the Blue crew</a> </p><p class="block-time published-time"> <time datetime="2020-04-25T16:51:59.546Z">5.51pm <span class="timezone">BST</span></time> </p><p><strong>Meanwhile up at Hampden Park, St Mirren held on to beat Dundee United by that Ian Ferguson goal.</strong> Here’s Simon McMahon, albeit in heavily edited form: “<em>[Deleted by Family Newspaper Editor]</em> knew it. <em>[Deleted by Family Newspaper Editor]</em> St. Mirren. But at least we’ve got three full days to prepare for the second leg of the Uefa Cup final. <em>[Deleted by Family Newspaper Editor]</em> sakes. I think we all know how this ends, right?”</p> <a href="https://www.theguardian.com/sport/live/2020/apr/25/coventry-city-v-tottenham-hotspur-1987-fa-cup-final-live">Continue reading...</a>
+
+## The week in radio: Black Music in Europe; A History of the World in 100 Objects; Prison Bag – review
+ - [https://www.theguardian.com/tv-and-radio/2020/apr/25/the-week-in-radio-black-music-in-europe-a-history-of-the-world-in-100-objects-prison-bag-review](https://www.theguardian.com/tv-and-radio/2020/apr/25/the-week-in-radio-black-music-in-europe-a-history-of-the-world-in-100-objects-prison-bag-review)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 16:00:50+00:00
+
+<p>Clarke Peters tells more stories of how Europe became a musical melting pot – and another chance to hear a Radio 4 classic…</p><p><strong>Black Music in Europe: A Hidden History</strong> (Radio 4) | <a href="https://www.bbc.co.uk/programmes/m000hfxw">BBC Sounds</a> </p><p><strong>A History of the World In 100 Objects</strong> (Radio 4) | <a href="https://www.bbc.co.uk/programmes/b00nrtd2/broadcasts/upcoming">BBC Sounds</a> </p> <a href="https://www.theguardian.com/tv-and-radio/2020/apr/25/the-week-in-radio-black-music-in-europe-a-history-of-the-world-in-100-objects-prison-bag-review">Continue reading...</a>
+
+## Google Earth in wool and satin – in pictures
+ - [https://www.theguardian.com/lifeandstyle/gallery/2020/apr/25/google-earth-in-wool-and-satin-in-pictures](https://www.theguardian.com/lifeandstyle/gallery/2020/apr/25/google-earth-in-wool-and-satin-in-pictures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 16:00:49+00:00
+
+<p><a href="https://www.instagram.com/chromato_mania/?hl=en">Victoria Rose Richards</a> creates “embroidered landscapes” influenced by the Devonshire countryside where she grew up. “I get inspiration from aerial views on Google Earth,” says the 21-year-old artist, who uses wool, French knots and satin stitch to make her “colourful and optimistic” scenes. As a recent biological science graduate, Richards plans to work in ecology or environmental science, but also hopes to keep developing her art and, she says, “creating more details, textures and depth to my pieces, to possibly even give them a 3D element”. </p><p><a href="https://www.instagram.com/chromato_mania/?hl=en">See more of her work on Instagram</a></p> <a href="https://www.theguardian.com/lifeandstyle/gallery/2020/apr/25/google-earth-in-wool-and-satin-in-pictures">Continue reading...</a>
+
+## Working from home? How to stay in touch and stay secure
+ - [https://www.theguardian.com/technology/2020/apr/25/working-from-home-how-to-stay-in-touch-and-stay-secure](https://www.theguardian.com/technology/2020/apr/25/working-from-home-how-to-stay-in-touch-and-stay-secure)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 16:00:49+00:00
+
+<p>Covid-19 has forced millions into the unfamiliar world of the home office, where new security threats loom. Here’s how to protect yourself and colleagues</p><p>Businesses are used to being prepared for a disaster and most will have had a well-rehearsed continuity plan in place in case one struck. But even the best plan couldn’t have effectively anticipated the wholesale overnight shift to home working that Covid-19 has caused.</p><p>“As a result,” Morgan Wright, chief security adviser at cybersecurity firm SentinelOne says, “issues of privacy, collaboration, access and compliance have highlighted weakness in policies and gaps in security.” One of the problems is that even at many larger companies, being caught on the hop by the lockdown has meant that individual departments have been left to find their own ways to work collaboratively.</p> <a href="https://www.theguardian.com/technology/2020/apr/25/working-from-home-how-to-stay-in-touch-and-stay-secure">Continue reading...</a>
+
+## Far right hijack coronavirus crisis to push agenda and boost support
+ - [https://www.theguardian.com/world/2020/apr/25/far-right-hijack-coronavirus-crisis-to-push-agenda-and-boost-support](https://www.theguardian.com/world/2020/apr/25/far-right-hijack-coronavirus-crisis-to-push-agenda-and-boost-support)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 15:25:48+00:00
+
+<p>Extremists are using the pandemic to promote themselves as supporters of the community and spread fake information</p><ul><li><strong><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></strong></li><li><strong><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></strong></li></ul><p>Far-right movements are exploiting the coronavirus crisis to push their anti-minority agendas and win new support.</p><p>A report by Zinc Network, <a href="https://zincnetwork.com/">a communications agency</a> that tracks disinformation and propaganda, suggests there has been a clear pivot among far-right groups in the UK, EU and US to “utilise the pandemic to bring new relevancy, attention and support for their key grievances”.</p> <a href="https://www.theguardian.com/world/2020/apr/25/far-right-hijack-coronavirus-crisis-to-push-agenda-and-boost-support">Continue reading...</a>
+
+## Poorer expectant mums lose over £4,000 through  ‘unfair’ anomaly in benefits
+ - [https://www.theguardian.com/society/2020/apr/25/poorer-expectant-mums-lose-over-4000-through-unfair-anomaly-in-benefits](https://www.theguardian.com/society/2020/apr/25/poorer-expectant-mums-lose-over-4000-through-unfair-anomaly-in-benefits)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 15:22:01+00:00
+
+<p>System treats maternity allowance as unpaid income, skewing the amount of universal credit paid out</p><p>Pregnant women on the lowest incomes are being denied vital financial support during the Covid-19 crisis, according to unions and women’s support groups, who are calling for urgent<a href="https://www.theguardian.com/society/2020/apr/23/universal-credit-system-will-not-change-under-pandemic-mps-told"> reforms to universal credit</a>.</p><p>An anomaly in the way universal credit differentiates between pregnant earners has created an unfair system, it is argued. Universal credit treats maternity allowance, which is paid to the lowest-earning women and those who are self-employed, as “unearned income”, which means it is deducted from their benefit payments.</p> <a href="https://www.theguardian.com/society/2020/apr/25/poorer-expectant-mums-lose-over-4000-through-unfair-anomaly-in-benefits">Continue reading...</a>
+
+## Radio 4's Aasmah Mir quits amid rumours of Times Radio role
+ - [https://www.theguardian.com/media/2020/apr/25/radio-4-aasmah-mir-quits-amid-rumours-of-times-radio-role](https://www.theguardian.com/media/2020/apr/25/radio-4-aasmah-mir-quits-amid-rumours-of-times-radio-role)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 15:05:03+00:00
+
+<p>Saturday Live presenter may be in line for position at rival station, according to insiders</p><p>The broadcaster Aasmah Mir has quit the BBC and is understood to be joining Times Radio, as the new station prepares to launch in a bid to challenge Radio 4’s dominance.</p><p>Mir confirmed this weekend’s edition of Saturday Live on BBC Radio 4, which she co-hosts with the Rev Richard Coles, would be her final appearance on the morning programme.</p> <a href="https://www.theguardian.com/media/2020/apr/25/radio-4-aasmah-mir-quits-amid-rumours-of-times-radio-role">Continue reading...</a>
+
+## Contact apps won't end lockdown. But they might kill off democracy | John Naughton
+ - [https://www.theguardian.com/commentisfree/2020/apr/25/contact-apps-wont-end-lockdown-but-they-might-kill-off-democracy](https://www.theguardian.com/commentisfree/2020/apr/25/contact-apps-wont-end-lockdown-but-they-might-kill-off-democracy)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 15:00:48+00:00
+
+<p>A tech solution to the crisis of the type being pursed by the UK government will be both ineffective and a civil rights nightmare</p><p>Repeat after me: there is no magic bullet for getting us through this pandemic. And smartphone-based proximity-sensing is definitely not that bullet, though it might be useful if two conditions are met. One is that it’s perceived by citizens to be trustworthy and protects their privacy; the other is that it’s deployed in conjunction with a massive increase in state capacity for testing and treatment. Neither condition will be easy to satisfy.</p><p>There are clear indications that the UK government is now actively considering use of the technology as a way of easing the lockdown. If this signals an outbreak in Whitehall of <a href="http://bostonreview.net/books-ideas/whats-wrong-technological-fixes">tech “solutionism</a>” – the belief that for every problem there is a technological answer – then we should be concerned. Tech solutions often do as much harm as good, for example, by increasing social exclusion, lacking accountability and failing to make real inroads into the problem they are supposedly addressing.</p> <a href="https://www.theguardian.com/commentisfree/2020/apr/25/contact-apps-wont-end-lockdown-but-they-might-kill-off-democracy">Continue reading...</a>
+
+## Oil market faces storage crisis in a world awash with crude
+ - [https://www.theguardian.com/business/2020/apr/25/oil-market-storage-crisis-coronavirus-plummeting-demand](https://www.theguardian.com/business/2020/apr/25/oil-market-storage-crisis-coronavirus-plummeting-demand)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 15:00:48+00:00
+
+Plummeting demand during the coronavirus pandemic has left traders scrambling for ships and other alternative facilities<p>Supergiant oil tankers are floating outside the world’s largest shipping ports with enough oil to meet the world’s daily demand twice over. Only months ago these vessels criss-crossed the globe laden with up to 2 million barrels. Today they stand motionless and bloated with crude that no one will buy.</p><p>The record volume of stranded crude cargo illustrates a deepening crisis in the global oil industry. Demand for oil has fallen so severely, and at such pace, that there is little space left on land to store the crude made redundant by the coronavirus crisis. At least 160 million barrels are now<a href="https://www.theguardian.com/business/2020/apr/19/supertankers-drafted-in-to-store-glut-of-crude-oil-coronavirus" title=""> stored at sea,</a> outside global shipping ports from Singapore to Suffolk and along the US gulf coast as oil traders brace for storage facilities to reach capacity imminently.</p> <a href="https://www.theguardian.com/business/2020/apr/25/oil-market-storage-crisis-coronavirus-plummeting-demand">Continue reading...</a>
+
+## No sweat: how tracksuit bottoms became the height of lockdown fashion
+ - [https://www.theguardian.com/fashion/2020/apr/25/no-sweat-how-tracksuit-bottoms-became-the-height-of-lockdown-fashion](https://www.theguardian.com/fashion/2020/apr/25/no-sweat-how-tracksuit-bottoms-became-the-height-of-lockdown-fashion)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 14:55:48+00:00
+
+<p>Sales of sweatpants soar as fashionistas embrace the joys of an elasticated waistline in their working-from-home outfits</p><p>Traditionally, tracksuit bottoms have been the enemy of fashion. Karl Lagerfeld’s withering, oft-quoted maxim – “Sweatpants are a sign of defeat. You lost control of your life so you bought some sweatpants” – summed up an attitude, certainly in some luxury fashion circles.</p><p>But lockdown has brought change. Last week, Anna Wintour, <em>Vogue </em>editor in chief, stunned many fashionistas by <a href="https://www.instagram.com/p/B-7J-9Un8qn/?utm_source=ig_embed">posting a photo </a>of her work-from-home outfit: a Breton top and joggers. For context, during an otherwise breezy online Q+A session held last July, the air turned decidedly frosty when a fan piped up with: “Hey Anna! Do you wear sweatpants?” Wintour replied with a stern: “No!” followed by a dramatic pause. </p> <a href="https://www.theguardian.com/fashion/2020/apr/25/no-sweat-how-tracksuit-bottoms-became-the-height-of-lockdown-fashion">Continue reading...</a>
+
+## UK increases arms sales to repressive regimes
+ - [https://www.theguardian.com/world/2020/apr/25/uk-arms-trade-repressive-regimes](https://www.theguardian.com/world/2020/apr/25/uk-arms-trade-repressive-regimes)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 14:30:47+00:00
+
+<p>Campaigners condemn government and defence exporters accused of selling weapons to states with poor human rights records</p><p>UK arms sales to repressive regimes increased by £1bn last year compared with 2018.</p><p>The increase, of more than 300%, has been condemned by arms control campaigners, who accuse the government of putting profits before human rights.</p> <a href="https://www.theguardian.com/world/2020/apr/25/uk-arms-trade-repressive-regimes">Continue reading...</a>
+
+## Chelsea fail to agree wage reduction with players while Villa's take 25% cut
+ - [https://www.theguardian.com/football/2020/apr/25/chelsea-first-team-players-coronavirus-wage-cut-talks-cesar-azpilicueta](https://www.theguardian.com/football/2020/apr/25/chelsea-first-team-players-coronavirus-wage-cut-talks-cesar-azpilicueta)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 14:24:26+00:00
+
+<ul><li>Club reject offer put forward by captain César Azpilicueta<br /></li><li>Azpilicueta negotiating as Frank Lampard sits out</li></ul><p>Chelsea have still not reached an agreement with their first team players over pay cuts after rejecting a proposal put forward by the club captain César Azpilicueta.</p><p>The club insists negotiations are both amicable and continuing, but after originally asking players to take the 30% cut <a href="https://www.theguardian.com/football/2020/apr/03/premier-league-clubs-will-ask-players-to-take-30-per-cent-wage-drop-cuts-deferrals">suggested by the Premier League during the coronavirus crisis</a>, Chelsea are unwilling to approve what the players have offered, which is believed to be less than the 10% figure that has been reported.</p> <a href="https://www.theguardian.com/football/2020/apr/25/chelsea-first-team-players-coronavirus-wage-cut-talks-cesar-azpilicueta">Continue reading...</a>
+
+## British farmers turn to homegrown force to bring in the harvest
+ - [https://www.theguardian.com/environment/2020/apr/25/farmers-turn-to-homegrown-force-to-bring-in-the-harvest](https://www.theguardian.com/environment/2020/apr/25/farmers-turn-to-homegrown-force-to-bring-in-the-harvest)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 14:05:28+00:00
+
+<p>With Covid-19 keeping eastern Europeans away, furloughed British workers are signing up to fill seasonal vacancies – but will there be enough of them? </p><ul><li><strong><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></strong></li><li><strong><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></strong></li></ul><p>Right now, Bruce Kerr is fretting about the shape of a certain curve – but not the one relating to the spread of Covid-19.</p><p>Kerr is an asparagus farmer in east Suffolk. In a good year he will harvest up to 500 tonnes of the highly prized vegetable, which requires urgent attention when the mercury rises.</p> <a href="https://www.theguardian.com/environment/2020/apr/25/farmers-turn-to-homegrown-force-to-bring-in-the-harvest">Continue reading...</a>
+
+## Birds join chorus of approval as wildlife thrives in a quieter world
+ - [https://www.theguardian.com/environment/2020/apr/25/birds-join-chorus-of-approval-as-wildlife-thrives-in-a-quieter-world](https://www.theguardian.com/environment/2020/apr/25/birds-join-chorus-of-approval-as-wildlife-thrives-in-a-quieter-world)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 13:55:47+00:00
+
+<p>Deer roam city streets and hedgehogs can safely cross roads… but a radical policy shift is needed to protect wildlife in future, say campaigners </p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>Britain’s wildlife may be thriving during the current lockdown but its long-term future is looking bleak, according to leading conservation organisations.</p><p>Nikki Williams, head of campaigns at the Wildlife Trusts, said: “The current crisis means nature is losing out, because many organisations are having to scale back important work caring for special places, which they usually do with the vital help of thousands of volunteers.”</p> <a href="https://www.theguardian.com/environment/2020/apr/25/birds-join-chorus-of-approval-as-wildlife-thrives-in-a-quieter-world">Continue reading...</a>
+
+## 'People fell under its spell': Shelley Klein on growing up in one of Britain's finest modernist houses
+ - [https://www.theguardian.com/artanddesign/2020/apr/25/people-fell-under-its-spell-shelley-klein-on-growing-up-in-one-of-britains-finest-modernist-houses](https://www.theguardian.com/artanddesign/2020/apr/25/people-fell-under-its-spell-shelley-klein-on-growing-up-in-one-of-britains-finest-modernist-houses)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 13:00:46+00:00
+
+<p>Textile designer Bernat Klein found solace in High Sunderland, his minimal 1950s house in the Scottish Borders. In her memoir, his daughter recalls returning to her childhood home<br /></p><p>In December 2009, Shelley Klein left her home in the fishing village of Port Isaac, Cornwall, and set off for the house in the Scottish Borders where she had grown up. The 450-mile journey was ostensibly the result of her recent decision to move in with her elderly, widowed father (alone of her siblings, she was able to to do this, being single and self-employed). But in truth it wasn’t the only reason; another, almost equally powerful force was also in play. In the three decades since she’d last lived there, Klein had never been able fully to shake off the spell cast by High Sunderland, the house in question. Wherever she went, whatever she did, it was always at the back of her mind, to the point where she wondered whether her feelings for it were entirely rational. Can a house be loved as a person is? Perhaps not. All she knew was that it was a part of her, just as it was a part of her father.</p><p>Adults who return home often revert to being teenagers – we’ve all done it, even in the course only of a long weekend – and our parents, too, tend to talk to us just as they always did once we’re over the threshold. In the first moments after her arrival at High Sunderland, Shelley drank in its old, familiar smells: paprika, woodsmoke, freshly ground coffee. But the mood didn’t last long. Carrying her possessions from van to house, her father was horrified to see among them a Victorian chair – a piece of furniture he unhesitatingly deemed to be “ghastly”. Nor was he pleased to see her arranging a collection of potted herbs on the kitchen windowsill. Couldn’t she put them elsewhere? For instance, in her bedroom. Irritated, Shelley asked what he had against them. “They’re messy,” he said. “They spoil the line of the house.” In his eyes, only chives, a pleasingly “vertical” plant, could ever be even vaguely acceptable as interior decoration.</p> <a href="https://www.theguardian.com/artanddesign/2020/apr/25/people-fell-under-its-spell-shelley-klein-on-growing-up-in-one-of-britains-finest-modernist-houses">Continue reading...</a>
+
+## Roisin Conaty: ‘Standup is a confidence game. You sell the sizzle, not the sausage’
+ - [https://www.theguardian.com/lifeandstyle/2020/apr/25/roisin-conaty-standup-is-a-confidence-game-you-sell-the-sizzle-not-the-sausage-](https://www.theguardian.com/lifeandstyle/2020/apr/25/roisin-conaty-standup-is-a-confidence-game-you-sell-the-sizzle-not-the-sausage-)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 13:00:46+00:00
+
+<p>The comedian, 41, on getting women’s sitcoms on to TV, overordering in restaurants and preferring decent to shiny people</p><p><strong>I’m from an Irish</strong> family and, even though I grew up in 80s London, I spent a lot of my childhood in southwest Ireland. It was like two lives. Our Camden council estate was colourful, bright and noisy. But every school holiday I’d get plonked in a field in County Kerry and I’d just pray for a car to drive past.</p><p><strong>Beware of onesies.</strong> My most embarrassing moment was answering the door to a Deliveroo driver topless. I was wearing a onesie and had forgotten to pull the top bit back up after using the bathroom. I’ll never forget the look on the driver’s face.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/apr/25/roisin-conaty-standup-is-a-confidence-game-you-sell-the-sizzle-not-the-sausage-">Continue reading...</a>
+
+## Trump-supporting protesters are wearing handmaid's outfits – do they not see the irony? | Arwa Mahdawi
+ - [https://www.theguardian.com/commentisfree/2020/apr/25/trump-handmaids-tale-coronavirus](https://www.theguardian.com/commentisfree/2020/apr/25/trump-handmaids-tale-coronavirus)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 13:00:46+00:00
+
+<p>We’ve reached a level of dystopia that I’m not sure even Margaret Atwood could have imagined</p><p><em>Sign up for the Week in Patriarchy, a newsletter​ on feminism and sexism sent every Saturday</em></p> <a href="https://www.theguardian.com/commentisfree/2020/apr/25/trump-handmaids-tale-coronavirus">Continue reading...</a>
+
+## No campus lectures and shut student bars: UK universities' £1bn struggle to move online
+ - [https://www.theguardian.com/education/2020/apr/25/degrees-of-separation-can-universities-adapt-in-the-rush-to-online-learning](https://www.theguardian.com/education/2020/apr/25/degrees-of-separation-can-universities-adapt-in-the-rush-to-online-learning)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 12:35:45+00:00
+
+<p>A potential £1bn bill now faces the sector, but the real problem will be maintaining quality for students in a radically altered world this September<br /></p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>UK universities need to spend hundreds of millions of pounds to deliver degrees online, with warnings that many are unprepared to deal with the impact of the coronavirus pandemic on students’ education.</p><p>Only around 20 universities are in a good position to provide a range of high-quality online courses by the start of the new academic year in September, according to Prof Sir Tim O’Shea, the former vice-chancellor of Edinburgh University. Some of the country’s top-ranked Russell Group institutions, including Oxford and Cambridge, were not in that category, he added.</p> <a href="https://www.theguardian.com/education/2020/apr/25/degrees-of-separation-can-universities-adapt-in-the-rush-to-online-learning">Continue reading...</a>
+
+## Coronavirus tests for key workers in England run out quickly for second day
+ - [https://www.theguardian.com/world/2020/apr/25/england-and-wales-coronavirus-test-slots-and-kits-run-out-again](https://www.theguardian.com/world/2020/apr/25/england-and-wales-coronavirus-test-slots-and-kits-run-out-again)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 12:27:52+00:00
+
+<p>Home-testing kits unavailable 15 minutes after website opens and drive-through slots booked up within hour</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>Coronavirus tests for key workers through the government’s new booking website have run out quickly in England for a second consecutive day.</p><p>More than 10 million key workers and their households are eligible for Covid-19 tests as the government attempts to deliver its pledge of 100,000 tests a day by Thursday, but home-testing kits for people across the UK and slots to visit testing centres in England and Northern Ireland were quickly taken up on Saturday morning.</p> <a href="https://www.theguardian.com/world/2020/apr/25/england-and-wales-coronavirus-test-slots-and-kits-run-out-again">Continue reading...</a>
+
+## Man arrested after gun fired at Manchester funeral
+ - [https://www.theguardian.com/uk-news/2020/apr/25/man-arrested-after-gun-fired-at-manchester-funeral-clive-pinnock](https://www.theguardian.com/uk-news/2020/apr/25/man-arrested-after-gun-fired-at-manchester-funeral-clive-pinnock)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 12:13:47+00:00
+
+<p>Police let hundreds gather at ceremony for convicted criminal Clive Pinnock in ‘interests of public safety’</p><p>A man has been arrested after a gun was fired as hundreds of mourners gathered for the Manchester funeral of a criminal known as “Mr Ibiza”, despite social distancing rules.</p><p>Armed police scrambled to Gorton Cemetery in Manchester on Thursday after chaos broke out during the funeral of Clive Pinnock, 38, from Longsight, south Manchester, who died in a road crash earlier this month.</p> <a href="https://www.theguardian.com/uk-news/2020/apr/25/man-arrested-after-gun-fired-at-manchester-funeral-clive-pinnock">Continue reading...</a>
+
+## In a Paris banlieue, coronavirus amplifies years of inequality
+ - [https://www.theguardian.com/world/2020/apr/25/paris-banlieue-virus-amplifies-inequality-seine-saint-denis](https://www.theguardian.com/world/2020/apr/25/paris-banlieue-virus-amplifies-inequality-seine-saint-denis)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 12:00:44+00:00
+
+<p>Seine-Saint-Denis has long been one of France’s poorest areas, but the pandemic has laid bare social rifts as never before</p><ul><li><strong><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></strong></li><li><strong><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></strong></li></ul><p>In his small apartment in Paris’s outer suburbs , the 85-year-old’s food cupboards were bare. When volunteers arrived, the man was down to a crust of old baguette and a few dry biscuits. Living alone and with no family, the pensioner, who had come from Morocco to France after the war to help rebuild the railways, was too afraid to leave his home.</p><p>“He was trapped there with nothing to eat and hadn’t seen his doctor in weeks,” said Abdelaali El Badaoui, founder of charity Banlieues Santé.</p> <a href="https://www.theguardian.com/world/2020/apr/25/paris-banlieue-virus-amplifies-inequality-seine-saint-denis">Continue reading...</a>
+
+## There is no point talking to Trump. We need to talk past him | Jan Werner-Muller
+ - [https://www.theguardian.com/commentisfree/2020/apr/25/trump-coronavirus-jan-werner-muller](https://www.theguardian.com/commentisfree/2020/apr/25/trump-coronavirus-jan-werner-muller)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 12:00:44+00:00
+
+<p>Governors, officials and Democrats should start proposing concrete plans to deal with the crisis. It’s time to build a ‘parallel polis’</p><p>Can a man who is both head of state and chief executive somehow not be the center of attention during a national crisis? All eyes remain on Trump. Yet the president has effectively abdicated responsibility, nationally and internationally. He is just keeping up a nightly theater of leadership – with an eye on the ratings, as opposed to the lived reality of millions of Americans for whom he cannot muster even a performance of empathy. It is time to focus elsewhere. And it is urgent for Democrats to provide actual guidance for a country in disarray.</p><p> <span>Related: </span><a href="https://www.theguardian.com/commentisfree/2020/apr/24/the-guardian-view-on-the-eu-and-covid-19-better-late-than-never">The Guardian view on the EU and Covid-19: better late than never | Editorial</a> </p> <a href="https://www.theguardian.com/commentisfree/2020/apr/25/trump-coronavirus-jan-werner-muller">Continue reading...</a>
+
+## Abducted Hong Kong bookseller Lam Wing-kee opens Taiwan shop
+ - [https://www.theguardian.com/world/2020/apr/25/abducted-hong-kong-bookseller-lam-wing-kee-opens-taiwan-shop-china](https://www.theguardian.com/world/2020/apr/25/abducted-hong-kong-bookseller-lam-wing-kee-opens-taiwan-shop-china)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 11:21:22+00:00
+
+<p>Part-owner of shop that used to sell texts critical of China opens new business in Taipei</p><p>The part-owner of a Hong Kong bookstore specialising in texts critical of China’s leaders has reopened his shop in Taiwan after fleeing Hong Kong because of legal troubles.</p><p>The opening and accompanying news conference came days after a masked man threw red paint at Lam Wing-kee while he sat alone at a coffee shop in Taiwan. Lam suffered no physical injuries and showed little sign of the attack other than a red tint to his hair.</p> <a href="https://www.theguardian.com/world/2020/apr/25/abducted-hong-kong-bookseller-lam-wing-kee-opens-taiwan-shop-china">Continue reading...</a>
+
+## 'Lockdown is a great test': the New York couples getting married on Zoom
+ - [https://www.theguardian.com/lifeandstyle/2020/apr/25/weddings-zoom-new-york](https://www.theguardian.com/lifeandstyle/2020/apr/25/weddings-zoom-new-york)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 11:00:44+00:00
+
+<p>Couples are having virtual toasts with friends and family during the pandemic after the state announced it was legalising video wedding ceremonies</p><ul><li><a href="https://www.theguardian.com/us-news/series/us-politics-live/latest">Coronavirus – live US updates</a></li><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Live global updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>Sayaka Fukuda and James Storr Brown had been trying in vain since January to get married after coronavirus disrupted their wedding plans.</p><p>So when New York state announced it was legalising video wedding ceremonies last weekend, they immediately decided to get married on Zoom, and were among the first to take advantage of the new law.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/apr/25/weddings-zoom-new-york">Continue reading...</a>
+
+## Reporting in Wuhan: 'I thought Sars wouldn't be repeated, this was worse'
+ - [https://www.theguardian.com/membership/2020/apr/25/reporting-in-wuhan-i-thought-sars-wouldnt-be-repeated-this-was-worse](https://www.theguardian.com/membership/2020/apr/25/reporting-in-wuhan-i-thought-sars-wouldnt-be-repeated-this-was-worse)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 11:00:44+00:00
+
+<p>The Guardian’s Beijing bureau chief reflects on four months of risk and emotion at the heart of the Covid-19 epidemic</p><p>On 6 January, I wrote a short memo to our newsdesk: “Something we probably want to keep an eye on are these severe viral pneumonia cases that have been racking up (now 44) in Wuhan – China has said that it is not Sars.”</p><p>Since then, I have been reporting on coronavirus from Beijing, Hong Kong, Shanghai and most recently Wuhan. I could not have known then how my life would soon be consumed by this story. I have spent the four months since constantly weighing the risks to my family, my colleagues and the people we interviewed against my responsibility as a journalist.</p> <a href="https://www.theguardian.com/membership/2020/apr/25/reporting-in-wuhan-i-thought-sars-wouldnt-be-repeated-this-was-worse">Continue reading...</a>
+
+## Climate science deniers at forefront of downplaying coronavirus pandemic
+ - [https://www.theguardian.com/world/2020/apr/25/climate-science-deniers-downplaying-coronavirus-pandemic](https://www.theguardian.com/world/2020/apr/25/climate-science-deniers-downplaying-coronavirus-pandemic)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 10:00:42+00:00
+
+<p>Vocal influencers such as the conspiracy theorist Alex Jones and the Heartland Institute are hitting back at a time when people’s trust in science is rising</p><ul><li><a href="https://www.theguardian.com/us-news/series/us-politics-live/latest">Coronavirus – latest US updates</a></li><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">C</a><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">oronavirus – latest global updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>Fringe climate science deniers who spread online disinformation are now downplaying the seriousness of the Covid-19 pandemic, according to a new analysis.</p><p> <span>Related: </span><a href="https://www.theguardian.com/us-news/commentisfree/2020/apr/21/anti-lockdown-protests-trump-right-wing">The 'anti-lockdown' protests are about more than just quarantines | Cas Mudde</a> </p> <a href="https://www.theguardian.com/world/2020/apr/25/climate-science-deniers-downplaying-coronavirus-pandemic">Continue reading...</a>
+
+## Manchester University braced for losses of more than £270m
+ - [https://www.theguardian.com/education/2020/apr/25/manchester-university-braced-for-losses-of-more-than-270m](https://www.theguardian.com/education/2020/apr/25/manchester-university-braced-for-losses-of-more-than-270m)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 09:52:51+00:00
+
+<p>Vice-chancellor warns of possible pay cuts and job losses in wake of pandemic</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>The vice-chancellor of the University of Manchester has said the institution faces losses in excess of £270m next year if students cancel their studies because of the coronavirus pandemic.</p><p>Prof Dame Nancy Rothwell told staff that job losses and pay cuts might be required, along with “rapid and radical changes to our university and the way we operate”.</p> <a href="https://www.theguardian.com/education/2020/apr/25/manchester-university-braced-for-losses-of-more-than-270m">Continue reading...</a>
+
+## Best noise-cancelling headphones for working from home
+ - [https://www.theguardian.com/technology/2020/apr/25/best-noise-cancelling-headphones-working-from-home-coronavirus-lockdown](https://www.theguardian.com/technology/2020/apr/25/best-noise-cancelling-headphones-working-from-home-coronavirus-lockdown)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 09:30:41+00:00
+
+<p>Owning a decent headset can really help if you need some peace during the coronavirus lockdown</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>Coping with lockdown life is hard enough without having to listen to other members of your household while you are trying to work.</p><p>If you can’t get away physically, a set of noise-cancelling headphones could be just the ticket to isolate you just enough to concentrate. From amazing value to truly fantastic sound, at a price, here’s a guide to the best available.</p> <a href="https://www.theguardian.com/technology/2020/apr/25/best-noise-cancelling-headphones-working-from-home-coronavirus-lockdown">Continue reading...</a>
+
+## Three held after police seize £3m worth of cocaine in Dover
+ - [https://www.theguardian.com/uk-news/2020/apr/25/three-held-after-police-seize-3m-worth-of-cocaine-in-dover](https://www.theguardian.com/uk-news/2020/apr/25/three-held-after-police-seize-3m-worth-of-cocaine-in-dover)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 09:17:33+00:00
+
+<p>National Crime Agency and Border Force officers recover at least 36kg of class A drug </p><p>Two men have been charged with conspiracy to import class A drugs after cocaine worth £3m was discovered in a purpose-built hide in a lorry that had travelled by ferry from France to Dover.</p><p>The National Crime Agency said Gary Sloan, 50, from Magheralin in Co Armagh, and Jason Bunce, 57, from Kingswood in Kent, would appear at Canterbury magistrates court on Saturday.</p> <a href="https://www.theguardian.com/uk-news/2020/apr/25/three-held-after-police-seize-3m-worth-of-cocaine-in-dover">Continue reading...</a>
+
+## Love and obsession: how leading UK ceramics collection ended up in London council flat
+ - [https://www.theguardian.com/artanddesign/2020/apr/25/ceramics-michael-evans-london-council-flat-dayabandu](https://www.theguardian.com/artanddesign/2020/apr/25/ceramics-michael-evans-london-council-flat-dayabandu)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 09:00:41+00:00
+
+<p>Michael Evans filled every available space with a treasure trove of British, French and Japanese works. Now they’re up for auction</p><p>Until recently, one of the best British postwar ceramics collections was to be found on a council estate in east London. “It was a bit like walking into a reliquary,” says the ceramicist Annie Turner, a regular visitor to the two-bed flat. “You’d go into a pretty brutal-looking 1970s building and up a dull concrete stairwell and think, ‘Am I in the right place?’. Then you opened this door, and it was like entering another world.”</p><p>Behind that very ordinary front door was a treasure trove. Mostly British, French or Japanese, around 1,200 ceramic works clustered on shelves, grouped on tables and desks, and even used as planters on the tiny balcony. Among the objects were key pieces by <a href="https://www.independent.co.uk/news/people/obituaries-dame-lucie-rie-1614074.html">Lucie Rie</a> and <a href="https://www.theguardian.com/culture/2010/may/29/edmund-waal-hare-amber-netsuke">Edmund de Waal</a>, and contemporary works by <a href="https://cavalierofinn.com/2019/06/in-conversation-with-annie-turner-loewe-craft-prize-finalist-2019/">Turner</a> herself, and <a href="https://pinupmagazine.org/articles/artist-sara-flynn-ceramicist">Sara Flynn</a> – two award-winning artists whose prices have recently risen sharply.</p> <a href="https://www.theguardian.com/artanddesign/2020/apr/25/ceramics-michael-evans-london-council-flat-dayabandu">Continue reading...</a>
+
+## Saudi Arabia to end flogging as a form of punishment
+ - [https://www.theguardian.com/world/2020/apr/25/saudi-arabia-to-end-flogging-as-a-form-of-punishment](https://www.theguardian.com/world/2020/apr/25/saudi-arabia-to-end-flogging-as-a-form-of-punishment)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 08:50:48+00:00
+
+<p>Form of corporal punishment will be replaced by jail terms, fines or a mixture of both<br /></p><p>Saudi Arabia is ending flogging as a form of punishment, according to a document from the kingdom’s top court.</p><p>The decision by the general commission for the supreme court, taken sometime this month, will mean the punishment will be replaced by prison sentences, fines or a mixture of both.</p> <a href="https://www.theguardian.com/world/2020/apr/25/saudi-arabia-to-end-flogging-as-a-form-of-punishment">Continue reading...</a>
+
+## Yotam Ottolenghi's Sunday lunch recipes
+ - [https://www.theguardian.com/food/2020/apr/25/yotam-ottolenghi-sunday-lunch-recipes-garlic-chicken-lettuce-horseradish-salad-roly-poly-custard](https://www.theguardian.com/food/2020/apr/25/yotam-ottolenghi-sunday-lunch-recipes-garlic-chicken-lettuce-horseradish-salad-roly-poly-custard)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 08:30:40+00:00
+
+<p>A creamy, garlicky roast chicken with a punchy salad, followed by an ingenious take on the classic jam roly-poly</p><p>Routine, oh how I miss you … To know what to expect, every single day, is priceless: it keeps you sound and sensible; it gives purpose and focus. But not all is lost in these days of lockdown. Old routines are transforming into new ones, and many of them, I am happy to say, revolve around food. Mealtimes have been regaining their past glory as our main way to punctuate the day, or week. In my house, lunches are now makeshift picnics, Saturday mornings are official pancake time, Tuesday afternoons are dedicated to baking, and on Sundays we’ve reclaimed the old lunch tradition. If you are able to sit down for Sunday lunch, with family, housemates or Zoom pals, it can really provide that bit of comfort that is so needed right now.</p> <a href="https://www.theguardian.com/food/2020/apr/25/yotam-ottolenghi-sunday-lunch-recipes-garlic-chicken-lettuce-horseradish-salad-roly-poly-custard">Continue reading...</a>
+
+## England campaign targets seriously ill patients avoiding hospitals
+ - [https://www.theguardian.com/world/2020/apr/25/england-campaign-targets-seriously-ill-patients-avoiding-hospitals](https://www.theguardian.com/world/2020/apr/25/england-campaign-targets-seriously-ill-patients-avoiding-hospitals)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 07:45:48+00:00
+
+<p>Campaign will urge people with serious non-coronavirus-related conditions to seek help </p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>A government campaign has been launched to encourage people who are seriously ill with non-coronavirus conditions such as heart attacks to seek help amid concerns some are avoiding hospitals.</p><p>The campaign, which will be rolled out next week, aims to encourage people to use vital services – such as cancer screening and care, maternity appointments and mental health support – as they usually would.<strong><br /><br /></strong>The NHS chief executive, Sir Simon Stevens, said delays in getting treatment posed a long-term risk to people’s health.</p> <a href="https://www.theguardian.com/world/2020/apr/25/england-campaign-targets-seriously-ill-patients-avoiding-hospitals">Continue reading...</a>
+
+## Coronavirus refunds: why fans are raging over ticket policies
+ - [https://www.theguardian.com/money/2020/apr/25/coronavirus-refunds-fans-ticket-policies](https://www.theguardian.com/money/2020/apr/25/coronavirus-refunds-fans-ticket-policies)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 06:00:38+00:00
+
+<p>With thousands of live events axed or rescheduled, many fans are finding it tricky to get money back</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>The coronavirus shutdown has cut a swathe through the world’s cultural events, with UK casualties ranging from the Glastonbury festival to thousands of gigs and theatre performances.</p><p>Theatre and music fans whose plans have been dashed are reporting long waits for refunds, with some claiming that companies are trying to fob them off with credit vouchers rather than giving them their money back.</p> <a href="https://www.theguardian.com/money/2020/apr/25/coronavirus-refunds-fans-ticket-policies">Continue reading...</a>
+
+## Durham University retracts controversial plan to provide online-only degrees
+ - [https://www.theguardian.com/education/2020/apr/25/durham-university-retracts-controversial-plan-to-provide-online-only-degrees](https://www.theguardian.com/education/2020/apr/25/durham-university-retracts-controversial-plan-to-provide-online-only-degrees)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 06:00:38+00:00
+
+<p>Academics and students had criticised the plans for being unworkable and damaging to the university’s reputation</p><p>Durham University has retracted controversial <a href="https://www.theguardian.com/education/2020/apr/17/lecturers-condemn-durham-universitys-plan-to-shift-degrees-online">plans to provide online-only degrees due to the coronavirus pandemic</a> following a backlash from students and lecturers.</p><p>The university’s senate was due to vote on a resolution that would see Durham develop a range of online degrees to “complement its existing high quality residential educational programme”.</p> <a href="https://www.theguardian.com/education/2020/apr/25/durham-university-retracts-controversial-plan-to-provide-online-only-degrees">Continue reading...</a>
+
+## Sexy beats: How Normal People’s ‘intimacy coordinator’ works
+ - [https://www.theguardian.com/books/2020/apr/25/normal-people-intimacy-coordinator-works-sally-rooney-sex-scenes](https://www.theguardian.com/books/2020/apr/25/normal-people-intimacy-coordinator-works-sally-rooney-sex-scenes)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 06:00:38+00:00
+
+<p>Ita O’Brien, who worked on the BBC version of Sally Rooney’s novel, explains her often vexed role and how she helped with a story that depends on its sex scenes<br /></p><p>It’s easy to forget just how much sex there is in Sally Rooney’s Normal People, when many of its greatest romantic beats are carried in a furtive glance or something left unsaid. But when putting the novel’s most intimate scenes between Marianne and Connell on screen, what was once a matter of lines on the page becomes minutes of closeups on flushed and sweaty skin.</p><p>Every sex scene in the BBC’s much-anticipated adaptation, starting on Sunday, even the clumsiest teenage fumblings – a bra getting stuck over Marianne’s head, Connell tripping over his trousers – was carefully choreographed by Ita O’Brien, an “intimacy coordinator” who makes sure actors are comfortable while filming rumpy pumpy. Over the last decade, intimacy coordinators have become more commonplace on theatre, film and TV sets, particularly in the aftermath of Harvey Weinstein’s fall. Suddenly, producers and directors are falling over themselves to hire someone like O’Brien, who has worked on everything from Netflix’s Sex Education to HBO’s Watchmen and BBC’s Gangs of London.</p> <a href="https://www.theguardian.com/books/2020/apr/25/normal-people-intimacy-coordinator-works-sally-rooney-sex-scenes">Continue reading...</a>
+
+## Outcry as rich Saint-Tropez residents 'given coronavirus tests'
+ - [https://www.theguardian.com/world/2020/apr/25/outcry-as-rich-saint-tropez-residents-given-coronavirus-tests](https://www.theguardian.com/world/2020/apr/25/outcry-as-rich-saint-tropez-residents-given-coronavirus-tests)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 06:00:37+00:00
+
+<p>Neighbourhood of Les Parcs de Saint Tropez reportedly screened as local hospital staff do without</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>On the sunny Côte d’Azur, playground of the rich and famous, lockdown life in Les Parcs de Saint Tropez is good.</p><p>The Mediterranean – accessed via a private beach – is a little cool this time of year, but the luxury mansions and château here on the Cap Saint Pierre have swimming pools and if the temperature drops below 70F, as it did briefly this week, there is always the tennis courts or vast landscaped gardens.</p> <a href="https://www.theguardian.com/world/2020/apr/25/outcry-as-rich-saint-tropez-residents-given-coronavirus-tests">Continue reading...</a>
+
+## Coronavirus live news: Brazil’s health system on verge of collapse, medics warn
+ - [https://www.theguardian.com/world/live/2020/apr/25/coronavirus-live-news-brazils-health-system-on-verge-of-collapse-medics-warn](https://www.theguardian.com/world/live/2020/apr/25/coronavirus-live-news-brazils-health-system-on-verge-of-collapse-medics-warn)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 05:58:38+00:00
+
+<p>Leader of US group peddling bleach as ‘miracle’ cure wrote to Trump before remarks; Australia and New Zealand mark Anzac Day from driveways</p><ul><li><a href="https://www.theguardian.com/world/2020/apr/24/revealed-leader-group-peddling-bleach-cure-lobbied-trump-coronavirus">Leader of group peddling bleach as ‘cure’ wrote to Trump this week</a><br /></li><li><a href="https://www.theguardian.com/world/2020/apr/24/sweden-queries-basis-of-lockdowns-as-germany-keeps-its-guard-up">Global report: Sweden queries lockdowns as Germany keeps guard up</a></li><li><a href="https://www.theguardian.com/world/2020/apr/24/coronavirus-latest-at-a-glance-24-april">Coronavirus latest: at a glance</a></li><li><a href="https://www.theguardian.com/world/live/2020/apr/24/coronavirus-us-live-news-trump-cuomo-georgia-cases-latest">US coronavirus updates – live</a><br /></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p class="block-time published-time"> <time datetime="2020-04-25T05:58:38.800Z">6.58am <span class="timezone">BST</span></time> </p><p>Boris Johnson is expected to return to work soon after his recovery from Covid-19, as pressure mounts on his government to explain how to get Britain out of lockdown.</p><p>Johnson, 55, has been recuperating at the British prime ministerial retreat, Chequers, outside London since his release from hospital on 12 April.</p><p class="block-time published-time"> <time datetime="2020-04-25T05:40:44.272Z">6.40am <span class="timezone">BST</span></time> </p><p>Australia’s national sporting codes - like most in the world - have been shut down by the pandemic, but its national rugby league competition is determined to come back as soon as possible. </p><p>There’s been talk of <a href="https://www.theguardian.com/sport/2020/apr/06/nrl-island-recipe-for-ruin-or-a-world-leading-game-changer">staging a televised competition on an island</a>, or another dedicated site cut off from the outside world. The organisation also <a href="https://www.smh.com.au/sport/nrl/channel-nine-slams-brakes-on-premature-may-28-nrl-restart-20200423-p54mi8.html">went rogue and declared it would restart in May</a>, despite government advice or a plan on how to do it.</p> <a href="https://www.theguardian.com/world/live/2020/apr/25/coronavirus-live-news-brazils-health-system-on-verge-of-collapse-medics-warn">Continue reading...</a>
+
+## Trump attack on Biden highlights president's own financial dealings with China
+ - [https://www.theguardian.com/us-news/2020/apr/24/donald-trump-bank-of-china-debt-report](https://www.theguardian.com/us-news/2020/apr/24/donald-trump-bank-of-china-debt-report)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 05:14:28+00:00
+
+<p>Trump Organisation’s far-flung real estate business has involved dealings with Chinese state-owned firms on several occasions</p><p>Donald Trump has a share in a New York property development that borrowed tens of millions of dollars from China, it was reported on Friday.</p><p>The debt derived from a 30% share the US president owns in a billion-dollar building on the Avenue of the Americas in Manhattan, which was refinanced in 2012 with $211m of the funding coming from the state-owned Bank of China, <a href="https://www.politico.com/news/2020/04/24/trump-biden-china-debt-205475">Politico reported</a> on Friday.</p> <a href="https://www.theguardian.com/us-news/2020/apr/24/donald-trump-bank-of-china-debt-report">Continue reading...</a>
+
+## 'We did it to ourselves': scientist says intrusion into nature led to pandemic
+ - [https://www.theguardian.com/world/2020/apr/25/ourselves-scientist-says-human-intrusion-nature-pandemic-aoe](https://www.theguardian.com/world/2020/apr/25/ourselves-scientist-says-human-intrusion-nature-pandemic-aoe)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 05:00:36+00:00
+
+<p>Leading US biologist Thomas Lovejoy says to stop future outbreaks we need more respect for natural world</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>The vast illegal wildlife trade and humanity’s excessive intrusion into nature is to blame for the coronavirus pandemic, according to a leading US scientist who says “this is not nature’s revenge, we did it to ourselves”.</p><p>Scientists are discovering two to four new viruses are created every year as a result of human infringement on the natural world, and any one of those could turn into a pandemic, according to Thomas Lovejoy, who coined the term “biological diversity” in 1980 and is often referred to as the godfather of biodiversity.</p> <a href="https://www.theguardian.com/world/2020/apr/25/ourselves-scientist-says-human-intrusion-nature-pandemic-aoe">Continue reading...</a>
+
+## Blind date: 'I put on perfume for a video call'
+ - [https://www.theguardian.com/lifeandstyle/2020/apr/25/blind-date-kayleigh-josh](https://www.theguardian.com/lifeandstyle/2020/apr/25/blind-date-kayleigh-josh)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 05:00:36+00:00
+
+<p>Kayleigh, 28, marketing manager, and Josh, 28, senior account executive, meet online</p><p><strong>What were you hoping for?<br /></strong>The One or a good anecdote.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/apr/25/blind-date-kayleigh-josh">Continue reading...</a>
+
+## Liam Charles' recipe for luxurious French toast | The sweet spot
+ - [https://www.theguardian.com/food/2020/apr/25/liam-charles-recipe-for-luxurious-french-toast](https://www.theguardian.com/food/2020/apr/25/liam-charles-recipe-for-luxurious-french-toast)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 05:00:36+00:00
+
+<p>It’s French toast, but not as you know it, with a distinctly Australian spin thanks to the coconut sugar coating</p><p>French toast is such a treat for a weekend breakfast, and I’ve found a way of making it even more decadent. Here, I’ve been inspired by the Australian lamington cake, tossing the just-fried toast in a coconut-sugar coating before serving it alongside sweetened cream and a raspberry compote. You’re welcome.</p> <a href="https://www.theguardian.com/food/2020/apr/25/liam-charles-recipe-for-luxurious-french-toast">Continue reading...</a>
+
+## Tim Dowling: Am I being gaslit by my own garden?
+ - [https://www.theguardian.com/lifeandstyle/2020/apr/25/tim-dowling-am-i-being-gaslit-by-my-own-garden](https://www.theguardian.com/lifeandstyle/2020/apr/25/tim-dowling-am-i-being-gaslit-by-my-own-garden)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 05:00:36+00:00
+
+<p>Yesterday there were eight seedlings, today there are six. It makes no sense – they were healthy, and had everything to live for<br /><br /></p><p>A friend sends me a picture of his lettuce seedlings, grown from seed I gave him so that he could find purpose in isolation. He wants to know if he can plant them out yet.</p><p>“No,” I write back. “Too soon.” He is still bowing to my expertise, even though my seed tray remains bare. He doesn’t need to know I am struggling to find purpose in isolation.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/apr/25/tim-dowling-am-i-being-gaslit-by-my-own-garden">Continue reading...</a>
+
+## Brett Crozier: US navy seeks to reinstate captain demoted over Covid-19
+ - [https://www.theguardian.com/us-news/2020/apr/25/brett-crozier-us-navy-seeks-to-reinstate-captain-demoted-over-covid-19](https://www.theguardian.com/us-news/2020/apr/25/brett-crozier-us-navy-seeks-to-reinstate-captain-demoted-over-covid-19)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 04:24:53+00:00
+
+<p>Pentagon suggests no decision imminent on the navy’s preliminary inquiry into the USS Theodore Roosevelt</p><p>The US navy has recommended reinstating the fired captain of the aircraft carrier Theodore Roosevelt, whose crew hailed him as their hero for risking his job to safeguard their lives from coronavirus, officials have said.</p><p> <span>Related: </span><a href="https://www.theguardian.com/us-news/2020/apr/05/us-navy-captain-brett-crozier-fired-coronavirus-ests-positive">US Navy captain fired for raising coronavirus concerns tests positive himself</a> </p> <a href="https://www.theguardian.com/us-news/2020/apr/25/brett-crozier-us-navy-seeks-to-reinstate-captain-demoted-over-covid-19">Continue reading...</a>
+
+## Why do female leaders seem to be more successful at managing the coronavirus crisis?
+ - [https://www.theguardian.com/world/2020/apr/25/why-do-female-leaders-seem-to-be-more-successful-at-managing-the-coronavirus-crisis](https://www.theguardian.com/world/2020/apr/25/why-do-female-leaders-seem-to-be-more-successful-at-managing-the-coronavirus-crisis)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 04:00:35+00:00
+
+<p>Plenty of countries with male leaders have also done well. But few with female leaders have done badly</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>On 1 April, the prime minister of Sint Maarten addressed her nation’s 41,500 people. Coronavirus cases were rising, and Silveria Jacobs knew the small island country, which welcomes 500,000 tourists a year, was at great risk: it had two ICU beds.</p><p>Jacobs did not want to impose a strict lockdown, but she did want physical distancing observed. So she spelled it out: “Simply. Stop. Moving,” she said. “If you don’t have the bread you like in your house, eat crackers. Eat cereal. Eat oats. Eat … sardines.”</p> <a href="https://www.theguardian.com/world/2020/apr/25/why-do-female-leaders-seem-to-be-more-successful-at-managing-the-coronavirus-crisis">Continue reading...</a>
+
+## Kim Jong-un: China sends doctors to check on health – report
+ - [https://www.theguardian.com/world/2020/apr/25/kim-jong-un-china-sends-doctors-to-advise-on-health-report](https://www.theguardian.com/world/2020/apr/25/kim-jong-un-china-sends-doctors-to-advise-on-health-report)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-04-25 01:17:47+00:00
+
+<p>Speculation continues about dictator’s condition after reports of heart surgery and absence from important events </p><p>China has sent a team to North Korea including medical experts to check on Kim Jong-un, according to three people familiar with the situation.</p><p>The trip by the Chinese doctors and officials comes amid conflicting reports about the health of the North Korean ruler. It was not immediately clear what the trip by the Chinese team signalled in terms of Kim’s health.</p> <a href="https://www.theguardian.com/world/2020/apr/25/kim-jong-un-china-sends-doctors-to-advise-on-health-report">Continue reading...</a>
+

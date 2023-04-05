@@ -1,0 +1,625 @@
+# Source:The Guardian, URL:https://www.theguardian.com/rss, language:en-UK
+
+## Only fraction of £600m pot to fix Grenfell-style cladding spent so far
+ - [https://www.theguardian.com/uk-news/2020/jun/19/only-fraction-of-pound-600m-pot-to-fix-grenfell-style-cladding-spent-so-far](https://www.theguardian.com/uk-news/2020/jun/19/only-fraction-of-pound-600m-pot-to-fix-grenfell-style-cladding-spent-so-far)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 23:01:02+00:00
+
+<p>MPs to launch investigation into delay, which has left 300 highrises yet to be remediated</p><p>The government has spent less than a quarter of what it promised to replace dangerous Grenfell-style cladding, leaving 300 highrise buildings still not fixed three years after the disaster.</p><p>Ministers pledged £400m in May 2018 to strip social housing towers of aluminium composite material (ACM) panels similar to those which spread the fire at Grenfell Tower in west London, killing 72 people in June 2017. But only £133m has been spent, a National Audit Office report found, leaving more than <a href="https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/891421/Building_Safety_Data_Release_May_2020.pdf">half</a> of the 154 affected blocks still needing work.</p> <a href="https://www.theguardian.com/uk-news/2020/jun/19/only-fraction-of-pound-600m-pot-to-fix-grenfell-style-cladding-spent-so-far">Continue reading...</a>
+
+## Talking Horses: Varian can boost vintage Royal Ascot with Pierre Lapin
+ - [https://www.theguardian.com/sport/blog/2020/jun/19/talking-horses-varian-can-boost-vintage-royal-ascot-with-pierre-lapin-horse-racing-tips](https://www.theguardian.com/sport/blog/2020/jun/19/talking-horses-varian-can-boost-vintage-royal-ascot-with-pierre-lapin-horse-racing-tips)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 23:01:02+00:00
+
+<p>Roger Varian’s incredible meeting looks set to continue in the Commonwealth Cup in which he fields Pierre Lapin </p><p>Roger Varian’s incredible Royal Ascot looks set to continue in Friday’s big race, the Commonwealth Cup, in which he fields <strong>Pierre Lapin (3.35)</strong>. While he is the least experienced in the field after just two runs, he could also be called the most promising on the strength of his Mill Reef success at Newbury in the autumn.<br /><br />Both starts have come on a sound surface but he is a half-brother to Harry Angel, who won a Haydock Sprint Cup on heavy ground and was also beaten less than a length in this race three years ago. Pierre Lapin looks the right favourite but Southern Hills could be a source of each-way value, having won the Windsor Castle here last year.</p><p> <span>Related: </span><a href="https://www.theguardian.com/sport/2020/jun/18/stradivarius-romps-home-to-win-third-gold-cup-in-row-at-royal-ascot-horse-racing">Stradivarius romps home to win third Gold Cup in row at Royal Ascot</a> </p> <a href="https://www.theguardian.com/sport/blog/2020/jun/19/talking-horses-varian-can-boost-vintage-royal-ascot-with-pierre-lapin-horse-racing-tips">Continue reading...</a>
+
+## Two in five UK adults feel lonelier under lockdown, finds survey
+ - [https://www.theguardian.com/society/2020/jun/19/two-in-five-uk-adults-feel-lonelier-under-lockdown-finds-survey](https://www.theguardian.com/society/2020/jun/19/two-in-five-uk-adults-feel-lonelier-under-lockdown-finds-survey)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 23:01:02+00:00
+
+<p>28% of respondents said they worried no one would notice if something happened to them</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>Two in five adults in the UK feel lonelier under the lockdown amid the tight limits it has placed on social contact, new research has revealed.</p><p>Survey results by the British Red Cross paint a stark picture of Britain as a society where a substantial minority lack regular face-to-face interaction and feel alone and uncared for.</p> <a href="https://www.theguardian.com/society/2020/jun/19/two-in-five-uk-adults-feel-lonelier-under-lockdown-finds-survey">Continue reading...</a>
+
+## Non-essential shops in Wales can reopen from Monday
+ - [https://www.theguardian.com/uk-news/2020/jun/19/non-essential-shops-in-wales-can-reopen-from-monday](https://www.theguardian.com/uk-news/2020/jun/19/non-essential-shops-in-wales-can-reopen-from-monday)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 23:01:01+00:00
+
+<p>Devolved government says stores will be able to trade with physical distancing in place</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>All non-essential shops in Wales will be able to reopen from Monday so long as physical distancing can take place, as part of the devolved government’s cautious easing of lockdown restrictions.</p><p>But the Labour-led administration is not expected to change its guidance that people should not travel more than five miles. The government will review the requirement to stay local by 6 July.</p> <a href="https://www.theguardian.com/uk-news/2020/jun/19/non-essential-shops-in-wales-can-reopen-from-monday">Continue reading...</a>
+
+## Facebook removes Trump re-election ads that feature a Nazi symbol
+ - [https://www.theguardian.com/technology/2020/jun/18/facebook-removes-trump-re-election-ads-that-feature-a-nazi-symbol](https://www.theguardian.com/technology/2020/jun/18/facebook-removes-trump-re-election-ads-that-feature-a-nazi-symbol)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 22:29:43+00:00
+
+<p>The social media giant had been facing increased pressure to take a stronger stance against the president’s hateful rhetoric <br /></p><p>Facebook has removed a number of posts and ads run by Donald Trump’s re-election campaign that featured a symbol used by the Nazis for violating its “policy against organized hate”.</p><p>The takedown on Thursday came amid increasing <a href="https://www.theguardian.com/technology/2020/jun/02/mark-zuckerberg-facebook-trump-protests-violence">pressure on Facebook</a> from civil rights leaders, Democratic politicians, and the company’s own employees to take a stronger stance against the president’s ugly and at times violent and hateful rhetoric on the platform, though it is not the first time that Facebook has removed Trump campaign ads for violating policies.</p> <a href="https://www.theguardian.com/technology/2020/jun/18/facebook-removes-trump-re-election-ads-that-feature-a-nazi-symbol">Continue reading...</a>
+
+## José Mourinho accuses FA of double standards over Dele Alli ban
+ - [https://www.theguardian.com/football/2020/jun/18/jose-mourinho-accuses-fa-of-double-standards-over-dele-alli-ban](https://www.theguardian.com/football/2020/jun/18/jose-mourinho-accuses-fa-of-double-standards-over-dele-alli-ban)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 21:33:52+00:00
+
+<ul><li>Mourinho says others behaved worse during pandemic<br /></li><li>‘It’s for everybody or it’s for nobody and it’s quite unfair’</li></ul><p>José Mourinho has accused the football authorities of double standards over the decision to <a href="https://www.theguardian.com/football/2020/jun/11/tottenham-dele-alli-banned-for-one-game-over-coronavirus-video-fa-manchester-united" title="">ban Dele Alli</a> for an ill-judged social media post about coronavirus but ignore much worse behaviour from others in the game during the pandemic.</p><p>Alli will miss Tottenham’s opening fixture of the Premier League restart at home to Manchester United on Friday night after a Football Association disciplinary hearing found him guilty of an “aggravated breach” of one of its rules that includes reference to race, colour or ethnicity.</p> <a href="https://www.theguardian.com/football/2020/jun/18/jose-mourinho-accuses-fa-of-double-standards-over-dele-alli-ban">Continue reading...</a>
+
+## Dysfunctional 'toxic culture' led to Labour defeat, major report finds
+ - [https://www.theguardian.com/politics/2020/jun/18/dysfunctional-toxic-culture-led-to-labour-defeat-major-report-finds](https://www.theguardian.com/politics/2020/jun/18/dysfunctional-toxic-culture-led-to-labour-defeat-major-report-finds)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 19:54:02+00:00
+
+<p>Exclusive: party has mountain to climb to return to power, says Labour Together review</p><ul><li><a href="https://www.theguardian.com/politics/2020/jun/18/key-points-from-review-of-2019-labour-election-defeat">Key points from review of Labour defeat </a></li><li><a href="https://www.theguardian.com/commentisfree/2020/jun/18/labour-report-ed-miliband">Ed Miliband: Let’s learn the right lessons</a></li></ul><p>Labour has a “mountain to climb” if it is to get back into power, according to a major review of the 2019 general election defeat, which paints a picture of dysfunctionality, toxicity and drift inside the party’s election-fighting machine.</p><p>Negative perceptions of Jeremy Corbyn’s leadership, doubts about the manifesto and the party’s ambivalent Brexit stance reinforced each other in a “snowballing” effect to deliver December’s catastrophic result, the 150-page report by the party group Labour Together argues. </p> <a href="https://www.theguardian.com/politics/2020/jun/18/dysfunctional-toxic-culture-led-to-labour-defeat-major-report-finds">Continue reading...</a>
+
+## Ministers show how world beating they are all over again | John Crace
+ - [https://www.theguardian.com/politics/2020/jun/18/our-ministers-show-how-world-beating-they-are-all-over-again](https://www.theguardian.com/politics/2020/jun/18/our-ministers-show-how-world-beating-they-are-all-over-again)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 19:23:47+00:00
+
+<p>From Hancock being forced to bin the test and trace app to Raab’s BLM gaffe, who can rival the cabinet for incompetence?</p><p>For months now the government has been prefacing all its coronavirus briefings as world-beating when the only thing in which we appeared to be global leaders was our mortality rates. But now I’m beginning to think Boris Johnson and his cabinet may have been on to something after all. Because it’s beginning to look more and more as if we are genuine world beaters: if only in total incompetence.</p><p>Check out the evidence. In Johnson we have a prime minister who lumbers from one screw-up to the next, blinded to his own failures by a narcissism that borders on the sociopathic. On Thursday, he was <a href="https://www.theguardian.com/world/2020/jun/18/emmanuel-macron-marks-de-gaulle-speech-anniversary-in-london-boris-johnson">meeting President Macron</a> to celebrate the 80th anniversary of De Gaulle’s speech to the French resistance: let’s hope he didn’t give Macron a copy of his book on why Churchill was exactly like Boris, in which he basically wrote off De Gaulle as completely useless.</p> <a href="https://www.theguardian.com/politics/2020/jun/18/our-ministers-show-how-world-beating-they-are-all-over-again">Continue reading...</a>
+
+## Nigel Walker: 'British sport has turned a blind eye to racism. Things have to change'
+ - [https://www.theguardian.com/sport/2020/jun/18/nigel-walker-british-sport-is-not-institutionally-racist-but-we-have-turned-a-blind-eye](https://www.theguardian.com/sport/2020/jun/18/nigel-walker-british-sport-is-not-institutionally-racist-but-we-have-turned-a-blind-eye)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 19:00:57+00:00
+
+<p>The former Welsh rugby international examines the distinct lack of BAME representation in boardrooms and how governing bodies can change for good<br /></p><p>The only black leader of a major British sporting body has urged the government and sport to learn the lessons from the Windrush scandal when it comes to the “long-standing and deep-rooted inequalities” for people from black, Asian and minority ethnic backgrounds in sport.</p><p>Nigel Walker, the former Olympian and Welsh rugby union star who now leads the English Institute of Sport, said that while he did not believe British sport was institutionally racist it had “turned a blind eye” to problems within the system – and governing bodies now had to back up their recent promises of change with real action.</p> <a href="https://www.theguardian.com/sport/2020/jun/18/nigel-walker-british-sport-is-not-institutionally-racist-but-we-have-turned-a-blind-eye">Continue reading...</a>
+
+## Bank of England apologises for role of former directors in slave trade
+ - [https://www.theguardian.com/business/2020/jun/18/bank-of-england-apologises-for-role-of-former-directors-in-slave-trade](https://www.theguardian.com/business/2020/jun/18/bank-of-england-apologises-for-role-of-former-directors-in-slave-trade)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 18:36:42+00:00
+
+<p>Bank pledges to remove statues and paintings from public display</p><p>The Bank of England has apologised for the involvement of some of its past governors and directors in the slave trade, and pledged to remove all statues and paintings of them from public display in its Threadneedle Street headquarters.</p><p>Companies and institutions around the world have been prompted to re-examine their historical ties to slavery and imperialism by recent Black Lives Matter protests, with particular scrutiny in the UK of the <a href="https://www.theguardian.com/commentisfree/2020/jun/08/edward-colston-statue-history-slave-trader-bristol-protest">statues of slave owners</a>.</p> <a href="https://www.theguardian.com/business/2020/jun/18/bank-of-england-apologises-for-role-of-former-directors-in-slave-trade">Continue reading...</a>
+
+## Gender pay gap begins for students straight after university – report
+ - [https://www.theguardian.com/society/2020/jun/18/gender-pay-gap-begins-students-straight-after-university-graduate-data-report-uk](https://www.theguardian.com/society/2020/jun/18/gender-pay-gap-begins-students-straight-after-university-graduate-data-report-uk)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 18:29:42+00:00
+
+<p>UK data also shows black graduates are more likely to struggle in the labour market</p><p>The gender pay gap in favour of men begins the moment students graduate from university, according to employment data that also reveals black graduates are more likely to struggle in the labour market.</p><p>Figures collected by universities from <a href="https://www.hesa.ac.uk/news/18-06-2020/sb257-higher-education-graduate-outcomes-statistics/salary">graduates entering the workforce</a> found that men had already begun earning on average 10% more than women 15 months after they left university, and that even among graduates with similar qualifications there remained a wide gap in pay.</p> <a href="https://www.theguardian.com/society/2020/jun/18/gender-pay-gap-begins-students-straight-after-university-graduate-data-report-uk">Continue reading...</a>
+
+## Germany warned of reaction after Russia blamed for Berlin murder
+ - [https://www.theguardian.com/world/2020/jun/18/germany-warned-of-reaction-after-russia-blamed-for-berlin](https://www.theguardian.com/world/2020/jun/18/germany-warned-of-reaction-after-russia-blamed-for-berlin)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 18:24:35+00:00
+
+<p>Ambassador calls accusations of Russian involvement in killing of Chechen rebel ‘groundless’</p><p>Moscow will react if Germany takes action against Russia over the killing of a Georgian national in Berlin last year, the country’s ambassador to Germany said on Thursday, according to a Russian news agency.</p><p>The report followed an announcement earlier in the day that German prosecutors would file murder charges against a Russian accused of the killing.</p> <a href="https://www.theguardian.com/world/2020/jun/18/germany-warned-of-reaction-after-russia-blamed-for-berlin">Continue reading...</a>
+
+## Plans to turn House of Fraser in Westfield into co-working space
+ - [https://www.theguardian.com/business/2020/jun/18/plans-to-turn-house-of-fraser-westfield-into-co-working-space-west-london](https://www.theguardian.com/business/2020/jun/18/plans-to-turn-house-of-fraser-westfield-into-co-working-space-west-london)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 18:21:46+00:00
+
+<p>Planning application for west London site reflects tough times for retailers and landlords</p><p>A branch of House of Fraser in one of London’s top shopping centres could be turned into a WeWork-style office space, in the latest indication of the tough environment for retailers and their landlords.</p><p>An application to Hammersmith and Fulham council by the owner of Westfield London includes a plan to convert about two-thirds of the 104,000 sq ft (9662 sq metre) store into a co-working space.</p> <a href="https://www.theguardian.com/business/2020/jun/18/plans-to-turn-house-of-fraser-westfield-into-co-working-space-west-london">Continue reading...</a>
+
+## Russian priest who called coronavirus a 'pseudo-pandemic' seizes convent
+ - [https://www.theguardian.com/world/2020/jun/18/russian-priest-who-called-coronavirus-a-pseudo-pandemic-seizes-convent](https://www.theguardian.com/world/2020/jun/18/russian-priest-who-called-coronavirus-a-pseudo-pandemic-seizes-convent)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 18:19:50+00:00
+
+<p>Father Sergei Romanov who was banished by church leaders in April says he will only be removed by force</p><p>A rogue Russian priest who denies the existence of Covid-19 has seized a convent in the Urals region and announced he will only be removed by force.</p><p>Father Sergei Romanov stormed the Sredneuralsk convent this week, after being banished by church leaders in April for protesting the closure of churches due to the coronavirus epidemic, which he called a “pseudo-pandemic”.</p> <a href="https://www.theguardian.com/world/2020/jun/18/russian-priest-who-called-coronavirus-a-pseudo-pandemic-seizes-convent">Continue reading...</a>
+
+## UK police chiefs criticised for lack of action as race panel launched
+ - [https://www.theguardian.com/uk-news/2020/jun/18/uk-police-chiefs-criticised-for-lack-of-action-as-race-panel-launched](https://www.theguardian.com/uk-news/2020/jun/18/uk-police-chiefs-criticised-for-lack-of-action-as-race-panel-launched)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 18:04:59+00:00
+
+<p>Lawyer for Doreen Lawrence dismisses move as ‘cynical effort to pretend there is change’</p><p>An attempt by police chiefs to grapple with racism claims by launching a panel to recommend action has been criticised by victims’ representatives and met with scepticism from within their own ranks.</p><p>The National Police Chiefs’ Council declared that policing was not racist but had to do more to tackle or challenge “bias, disproportionality, discrimination or racism”.</p> <a href="https://www.theguardian.com/uk-news/2020/jun/18/uk-police-chiefs-criticised-for-lack-of-action-as-race-panel-launched">Continue reading...</a>
+
+## All cricketers fail but great ones decide it was not their fault | Vic Marks
+ - [https://www.theguardian.com/sport/blog/2020/jun/18/all-cricketers-fail-great-ones-decide-it-was-not-their-fault-england](https://www.theguardian.com/sport/blog/2020/jun/18/all-cricketers-fail-great-ones-decide-it-was-not-their-fault-england)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 18:00:55+00:00
+
+<p>Though England’s players will be rusty after a long lay-off the best have enough self-belief to resist any suggestion of frailty</p><p>RC Robertson-Glasgow, <a href="https://www.theguardian.com/observer/sport/story/0,6903,442632,00.html">cricket writer nonpareil</a>, once famously asked: “Who ever hoped like a cricketer?” As England’s chosen 30 prepare to pack their bags for the monastic retreat that is now the Hilton hotel at the Ageas Bowl, they will be full of hope after a prolonged absence from the game.</p><p>Both Jimmy Anderson with his 151 caps and the <a href="https://www.theguardian.com/sport/2020/jun/17/moeen-ali-england-training-squad-west-indies-test-series-cricket">eight players yet to make their debut</a> will be bubbling with enthusiasm as they start to hone their skills again. But they will also wonder whether the magic is still there after their lay-off. In their quieter moments they will be all too aware that the runs and wickets do not come automatically. In their nightmares they might not come at all.</p> <a href="https://www.theguardian.com/sport/blog/2020/jun/18/all-cricketers-fail-great-ones-decide-it-was-not-their-fault-england">Continue reading...</a>
+
+## Northern Irish firms to be reimbursed for tariffs if Brexit talks fail, Gove says
+ - [https://www.theguardian.com/uk-news/2020/jun/18/northern-ireland-firms-will-be-reimbursed-for-tariffs-if-brexit-talks-fail-gove-promises](https://www.theguardian.com/uk-news/2020/jun/18/northern-ireland-firms-will-be-reimbursed-for-tariffs-if-brexit-talks-fail-gove-promises)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 17:53:39+00:00
+
+<p>Minister offers financial help if no free trade deal with the EU is in place next year</p><p>The government is to reimburse Northern Irish businesses if they are hit by tariffs due to a collapse in Brexit talks, Michael Gove has said.</p><p>He revealed the plans after being criticised by MPs over Brexit arrangements for the region.</p> <a href="https://www.theguardian.com/uk-news/2020/jun/18/northern-ireland-firms-will-be-reimbursed-for-tariffs-if-brexit-talks-fail-gove-promises">Continue reading...</a>
+
+## Brooks Koepka rails at TV crew as Ian Poulter makes fast start
+ - [https://www.theguardian.com/sport/2020/jun/18/brooks-koepka-lets-fly-wearing-mic-telling-tv-crew-to-shut-up-and-listen](https://www.theguardian.com/sport/2020/jun/18/brooks-koepka-lets-fly-wearing-mic-telling-tv-crew-to-shut-up-and-listen)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 17:50:40+00:00
+
+<ul><li>Koepka trails by three after day one at Hilton Head<br /></li><li>On announcers: ‘If they shut up they could hear everything’<br /></li></ul><p>There was a time when attaching a microphone to Brooks Koepka during a round of golf did not seem remotely appealing. As the 30-year-old has risen to the level of multi-major champion, he has simultaneously discovered his voice. The entertainment level is generally high.</p><p>Koepka was shooting from the hip again after signing for a four-under-par 67 to open the RBC Heritage in South Carolina. Coverage of the PGA Tour’s spectator-free return has been boosted by some players wearing microphones. Not so Koepka, who replied “I do” when asked if he had thoughts on the concept. He duly let fly.</p> <a href="https://www.theguardian.com/sport/2020/jun/18/brooks-koepka-lets-fly-wearing-mic-telling-tv-crew-to-shut-up-and-listen">Continue reading...</a>
+
+## RSPCA to make nearly a fifth of staff redundant amid pandemic
+ - [https://www.theguardian.com/society/2020/jun/18/rspca-to-make-nearly-a-fifth-of-staff-redundant-amid-pandemic](https://www.theguardian.com/society/2020/jun/18/rspca-to-make-nearly-a-fifth-of-staff-redundant-amid-pandemic)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 17:49:56+00:00
+
+<p>Animal welfare charity is latest victim of financial storm battering voluntary sector </p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>The RSPCA, the UK’s biggest animal welfare charity, has become the latest victim of the coronavirus-related financial storm battering the voluntary sector, announcing it is to make nearly a fifth of its 1,600 staff redundant.</p><p>The charity, which each year rescues thousands of neglected and abused animals and prosecutes their owners, faces a shortfall of £20m-£25m this year, caused in part by the <a href="https://www.theguardian.com/society/2020/mar/16/charities-face-cash-crisis-as-virus-fears-hit-fundraising">collapse in charity fundraising</a> since lockdown.</p> <a href="https://www.theguardian.com/society/2020/jun/18/rspca-to-make-nearly-a-fifth-of-staff-redundant-amid-pandemic">Continue reading...</a>
+
+## Disclosure: behind Laverne Cox's Netflix documentary on trans representation
+ - [https://www.theguardian.com/film/2020/jun/18/disclosure-laverne-cox-netflix-documentary-trans-representation](https://www.theguardian.com/film/2020/jun/18/disclosure-laverne-cox-netflix-documentary-trans-representation)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 17:38:34+00:00
+
+<p>A history of Hollywood’s problematic transgender stereotypes and tropes is explored in an eye-opening new film</p><p>In June 2014, Time magazine featured Laverne Cox, star of Netflix’s Orange is the New Black, on a <a href="https://time.com/magazine/us/135460/june-9th-2014-vol-183-no-22-u-s/">cover</a> that proclaimed America’s “Transgender Tipping Point”. Cox, a black transgender actor, was at the forefront of a wave of mainstream media depictions of transgender people, from the critically acclaimed Amazon series Transparent, to the bestselling memoir by Janet Mock, to fashion campaigns by the likes of Barneys featuring transgender models. In the six years since Cox’s Time cover, mainstream depictions of trans or non-conforming gender have proliferated – there’s Hunter Schafer in the HBO coming-of-age drama Euphoria, the non-binary character Taylor Mason on Showtime’s Billions and the Netflix show Pose, set in the ballroom scene of 1980s New York.</p><p> <span>Related: </span><a href="https://www.theguardian.com/film/2020/may/26/on-the-record-russell-simmons-hbo-max">'People continue to turn a blind eye': behind a shocking film about music industry abuse</a> </p> <a href="https://www.theguardian.com/film/2020/jun/18/disclosure-laverne-cox-netflix-documentary-trans-representation">Continue reading...</a>
+
+## Rhodes statue: tech boss pledges to cover funds pulled by 'racist donors'
+ - [https://www.theguardian.com/world/2020/jun/18/rhodes-statue-tech-boss-pledges-to-cover-funds-pulled-by-racist-donors](https://www.theguardian.com/world/2020/jun/18/rhodes-statue-tech-boss-pledges-to-cover-funds-pulled-by-racist-donors)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 17:35:43+00:00
+
+<p>Ex-Oxford student says he will offset any money lost by college decision to remove statue<br /></p><p>A tech entrepreneur has pledged to “make up for every penny any racist donors pull” after those angry at an Oxford college’s decision to remove a Cecil Rhodes statue said they would stop giving money to the institution and called for it to return donations.</p><p>Husayn Kassai, who founded the verification company Onfido with three others as a student at Oxford, pledged to step into any breach left by the withdrawal of donors after Oriel college <a href="https://www.theguardian.com/education/2020/jun/17/end-of-the-rhodes-cecil-oxford-college-ditches-controversial-statue">voted </a><a href="https://www.theguardian.com/education/2020/jun/17/end-of-the-rhodes-cecil-oxford-college-ditches-controversial-statue">to take down the statue</a> of the imperialist politician.</p> <a href="https://www.theguardian.com/world/2020/jun/18/rhodes-statue-tech-boss-pledges-to-cover-funds-pulled-by-racist-donors">Continue reading...</a>
+
+## KPMG to review TfL's finances after £1.6bn government bailout
+ - [https://www.theguardian.com/uk-news/2020/jun/18/kpmg-review-tfl-finances-government-bailout-transport-for-london-coronavirus](https://www.theguardian.com/uk-news/2020/jun/18/kpmg-review-tfl-finances-government-bailout-transport-for-london-coronavirus)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 17:31:59+00:00
+
+<p>Move forms part of Transport for London’s controversial coronavirus funding deal </p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>The government is sending in City accountants to scrutinise Transport for London’s finances and business plan, as part of its <a href="https://www.theguardian.com/commentisfree/2020/may/19/bailout-london-transport-network-tories-tfl-coronavirus-pandemic">controversial £1.6bn emergency funding agreement</a> for the capital.</p><p>The Department for Transport (DfT) hired KPMG, one of the big four accountancy firms, this week.</p> <a href="https://www.theguardian.com/uk-news/2020/jun/18/kpmg-review-tfl-finances-government-bailout-transport-for-london-coronavirus">Continue reading...</a>
+
+## Welsh chicken factory closes for two weeks over Covid-19 in staff
+ - [https://www.theguardian.com/business/2020/jun/18/welsh-chicken-factory-closed-for-two-weeks-over-covid-19-in-staff](https://www.theguardian.com/business/2020/jun/18/welsh-chicken-factory-closed-for-two-weeks-over-covid-19-in-staff)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 17:29:59+00:00
+
+<p>Fifty-eight coronavirus cases confirmed among workers at 2 Sisters facility on Anglesey</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>The UK’s main supplier of supermarket chicken has shut one of its factories for two weeks after an outbreak of coronavirus among the plant’s staff.</p><p>Public Health Wales said 58 Covid-19 cases had been confirmed at 2 Sisters Food Group’s facility in Llangefni, Anglesey, which employs about 560 people.</p> <a href="https://www.theguardian.com/business/2020/jun/18/welsh-chicken-factory-closed-for-two-weeks-over-covid-19-in-staff">Continue reading...</a>
+
+## Coronavirus: 13-day-old baby becomes one of UK's youngest victims
+ - [https://www.theguardian.com/society/2020/jun/18/covid-19-13-day-old-baby-becomes-one-of-englands-youngest-victims](https://www.theguardian.com/society/2020/jun/18/covid-19-13-day-old-baby-becomes-one-of-englands-youngest-victims)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 17:05:53+00:00
+
+<p>Newborn with no underlying health conditions among 135 newly reported deaths</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>A 13-day old baby, understood to have no underlying health conditions, has died from Covid-19, NHS England has reported.</p><p>The newborn is thought to be one of youngest victims of the disease in the UK.</p> <a href="https://www.theguardian.com/society/2020/jun/18/covid-19-13-day-old-baby-becomes-one-of-englands-youngest-victims">Continue reading...</a>
+
+## Magnus Carlsen aiming for another tournament win in Chessable Masters
+ - [https://www.theguardian.com/sport/2020/jun/18/magnus-carlsen-aiming-for-another-tournament-win-in-chessable-masters](https://www.theguardian.com/sport/2020/jun/18/magnus-carlsen-aiming-for-another-tournament-win-in-chessable-masters)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 17:00:54+00:00
+
+<p>Three online tournament victories in as many months have put Norway’s world No 1 among the top 10 esports earners for 2020</p><p>Magnus Carlsen aims for his fourth online tournament victory in three months on Saturday and Monday when the world champion plays his opening group match in the $150,000 Chessable Masters. The Norwegian’s only setback in this period came when he was beaten in a pulsating semi-final by the US champion, Hikaru Nakamura, in the Lindores Abbey event.</p><p>Carlsen’s latest success was last week’s $265,000 Clutch Knockout organised by St Louis and financed by the Maecenas of US chess, Rex Sinquefield. In the final Carlsen met his old rival, America’s world No 2, Fabiano Caruana, who he narrowly defeated in their over the board world championship series in London 2018.</p> <a href="https://www.theguardian.com/sport/2020/jun/18/magnus-carlsen-aiming-for-another-tournament-win-in-chessable-masters">Continue reading...</a>
+
+## Canada’s failed UN security council bid exposes Trudeau’s 'dilettante' foreign policy
+ - [https://www.theguardian.com/world/2020/jun/18/canada-loses-bid-un-security-council-seat-justin-trudeau](https://www.theguardian.com/world/2020/jun/18/canada-loses-bid-un-security-council-seat-justin-trudeau)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 16:45:01+00:00
+
+<p>Second failed attempt to win seat raises questions about messaging and clarity in Canada’s foreign policy, experts say</p><p>When Justin Trudeau was first elected in 2015, he promised that his victory would help Canada vault back on to the world stage, and reclaim a global influence that had eroded in previous years.</p><p>“To this country’s friends all around the world, many of you have worried that Canada has lost its compassionate and constructive voice in the world,” Trudeau told a raucous crowd on election night. “Well, I have a simple message for you. On behalf of 35 million Canadians: we’re back.”</p> <a href="https://www.theguardian.com/world/2020/jun/18/canada-loses-bid-un-security-council-seat-justin-trudeau">Continue reading...</a>
+
+## ‘We still offer a great service, just in a different way’: how a much-loved Bristol gift shop plans to change after lockdown
+ - [https://www.theguardian.com/shop-local-support-local/2020/jun/18/we-still-offer-a-great-service-just-in-a-different-way-how-a-much-loved-bristol-gift-shop-will-change-after-lockdown](https://www.theguardian.com/shop-local-support-local/2020/jun/18/we-still-offer-a-great-service-just-in-a-different-way-how-a-much-loved-bristol-gift-shop-will-change-after-lockdown)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 16:10:21+00:00
+
+<p>Thanks to its revamped website, Bristol’s CoLab has managed to survive the coronavirus crisis – but that doesn’t mean owner Andrea Mahoney expects things to go back to the way they were <br /></p><p>A lot can change in the life of an independent retailer in six months. For CoLab, a gift shop at the heart of the community in Bristol’s buzzing Gloucester Road, Christmas 2019 saw record sales.</p><p>A treasure trove of clothing, jewellery, art, crafts and gifts sourced from more than 60 independent designers, the shop was on the up.&nbsp;</p> <a href="https://www.theguardian.com/shop-local-support-local/2020/jun/18/we-still-offer-a-great-service-just-in-a-different-way-how-a-much-loved-bristol-gift-shop-will-change-after-lockdown">Continue reading...</a>
+
+## ‘Will people queue to get in? I hope so’: how one Scandi-inspired boutique is getting ready to reopen its doors
+ - [https://www.theguardian.com/shop-local-support-local/2020/jun/18/will-people-queue-to-get-in-i-hope-so-how-one-scandi-inspired-boutique-is-getting-ready-to-reopen-its-doors](https://www.theguardian.com/shop-local-support-local/2020/jun/18/will-people-queue-to-get-in-i-hope-so-how-one-scandi-inspired-boutique-is-getting-ready-to-reopen-its-doors)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 16:09:58+00:00
+
+<p>Hoos, an independent homeware store in Glasgow found a lockdown lifesaver in online trading, but owner Karen Harvey is now ready to embrace a new era of face-to-face shopping</p><p>Since opening in July 2016, a small Scandi-Scottish design boutique on Glasgow’s Great Western Road has become a source of joy and inspiration for passersby, thanks to its stylish window displays of cool furnishings, homeware and fashion items, not to mention twinkling lights by night and lush green plants that spill on to the pavement by day. So to see Hoos closed and boarded up as lockdown began was tremendously dispiriting, not just for its owner Karen Harvey and her team, but for others too.&nbsp;</p><p>“I know my customers have found it depressing,” says Harvey. “People who live in the West End who have been walking past on their daily walks find it sad because they enjoyed my window. We always had loads of lovely feedback.”&nbsp;</p> <a href="https://www.theguardian.com/shop-local-support-local/2020/jun/18/will-people-queue-to-get-in-i-hope-so-how-one-scandi-inspired-boutique-is-getting-ready-to-reopen-its-doors">Continue reading...</a>
+
+## Living la vida local: how independent stores have made a comeback during coronavirus
+ - [https://www.theguardian.com/shop-local-support-local/2020/jun/18/living-la-vida-local-how-independent-stores-have-made-a-comeback-during-coronavirus](https://www.theguardian.com/shop-local-support-local/2020/jun/18/living-la-vida-local-how-independent-stores-have-made-a-comeback-during-coronavirus)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 16:09:38+00:00
+
+<p>Consumer buying habits have changed since lockdown began in March. Many have opted to support local retailers, but can that trend last?</p><p>Like other shops throughout the UK, the Edward Street Bakery in the West Yorkshire village of Saltaire has been closed throughout lockdown. But as it told its followers on social media “bakers gotta bake (and cook)”, so it has been running bake-a-longs via its <a href="https://www.instagram.com/edwardstbakery/" rel="nofollow">Instagram account</a>. From brownies to a peanut butter cornflake tart, fans have been able to join bakery staff in creating their own goodies at home. And as well as keeping customers happy it’s also inadvertently supporting other local businesses as the ingredients for the bake-a-longs can be bought from Mr Whetstone – a local refill shop.</p><p>Although this might stand out for sounding particularly delicious, it’s far from an isolated instance of an independent retailer finding innovative ways to connect with customers while its doors are closed. Across the country, store owners have shown ingenuity – and the public has been falling back in love with their local high streets as a result.</p> <a href="https://www.theguardian.com/shop-local-support-local/2020/jun/18/living-la-vida-local-how-independent-stores-have-made-a-comeback-during-coronavirus">Continue reading...</a>
+
+## From bricks to clicks: how local high street shops have turned digital during coronavirus
+ - [https://www.theguardian.com/shop-local-support-local/2020/jun/18/from-bricks-to-clicks-how-local-high-street-shops-have-turned-digital-during-coronavirus](https://www.theguardian.com/shop-local-support-local/2020/jun/18/from-bricks-to-clicks-how-local-high-street-shops-have-turned-digital-during-coronavirus)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 16:09:01+00:00
+
+<p>Across the country, many independent retailers have had to switch to digital almost overnight in order to continue trading through the coronavirus lockdown. But as stores begin to reopen, will consumers now be as likely to shop online as in person?<br /></p><p>The coronavirus lockdown turned the lives of many high street merchants upside down overnight. For those who had little experience of online trading, or had business models that relied entirely on face-to-face sales, the challenge was sudden and daunting. But it was a challenge they knew they had to face.</p><p>Research conducted by Visa last year showed that although an online presence is viewed as paramount to the success of 87% of small high street businesses surveyed, almost 30% did not have a website. With online trade reaching record highs during the lockdown, those without an effective web presence were suddenly in a perilous position.</p> <a href="https://www.theguardian.com/shop-local-support-local/2020/jun/18/from-bricks-to-clicks-how-local-high-street-shops-have-turned-digital-during-coronavirus">Continue reading...</a>
+
+## Imran Farooq: several convicted over murder of Pakistani exile in London
+ - [https://www.theguardian.com/world/2020/jun/18/imran-farooq-three-men-sentenced-for-of-pakistan-exile-in-london](https://www.theguardian.com/world/2020/jun/18/imran-farooq-three-men-sentenced-for-of-pakistan-exile-in-london)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 16:08:59+00:00
+
+<p>Pakistani court gives MQM party members life sentences for stabbing political rival in 2010</p><p>A Pakistani court has convicted several men over the murder of a prominent exiled politician in north London 10 years ago.</p><p>Dr Imran Farooq, 50, was repeatedly stabbed and bludgeoned with a house brick in Edgware as he returned home from work on 16 September 2010. The killing of Farooq, a founding member of the Muttahida Qaumi Movement (MQM), sparked rioting in his native city of Karachi.</p> <a href="https://www.theguardian.com/world/2020/jun/18/imran-farooq-three-men-sentenced-for-of-pakistan-exile-in-london">Continue reading...</a>
+
+## Carnival to sell six cruise ships as bookings dry up
+ - [https://www.theguardian.com/business/2020/jun/18/carnival-sell-cruise-ships-bookings-coronavirus-pandemic-holiday](https://www.theguardian.com/business/2020/jun/18/carnival-sell-cruise-ships-bookings-coronavirus-pandemic-holiday)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 16:07:09+00:00
+
+<p>Holiday company loses $4.4bn in three months during coronavirus crisis</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>Carnival suffered losses of $4.4bn (£3.6bn) in three months, as the cruise company’s business was all but sunk by the Covid-19 pandemic.</p><p>Revenues dropped to $700m from $4.8bn for the same March-May period in 2019, as bookings dried up and the corporation’s cruise lines suspended sailings after severe outbreaks onboard its ships.</p> <a href="https://www.theguardian.com/business/2020/jun/18/carnival-sell-cruise-ships-bookings-coronavirus-pandemic-holiday">Continue reading...</a>
+
+## I don't want to go to university next year – what can I do instead?
+ - [https://www.theguardian.com/education/2020/jun/18/i-dont-want-to-go-to-university-next-year-what-can-i-do-instead](https://www.theguardian.com/education/2020/jun/18/i-dont-want-to-go-to-university-next-year-what-can-i-do-instead)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 16:00:53+00:00
+
+<p>If you’re planning to defer your university place until next year, you have gap year options in the meantime</p><p>One in five students said&nbsp;they were <a href="https://www.theguardian.com/education/2020/may/20/uk-universities-facing-760m-hit-one-in-five-students-plan-defer">willing to defer going to university</a> in the event that, come September, uni isn’t back to normal, according to a recent poll by the University and College Union. That leaves a whole lot of school-leavers –&nbsp;120,000 to be precise – potentially twiddling their thumbs.&nbsp;</p><p>Historically there has been a direct correlation between times of economic strife and hikes in student enrolment, so industry observers are sceptical that there will be mass deferrals. Then again, the sheer ubiquity of the catchphrase “these unprecedented times” suggests that nothing is certain. </p> <a href="https://www.theguardian.com/education/2020/jun/18/i-dont-want-to-go-to-university-next-year-what-can-i-do-instead">Continue reading...</a>
+
+## Rail subsidies costing UK taxpayer £100 per journey in lockdown
+ - [https://www.theguardian.com/business/2020/jun/18/rail-subsidies-costing-uk-taxpayer-100-per-journey-in-lockdown](https://www.theguardian.com/business/2020/jun/18/rail-subsidies-costing-uk-taxpayer-100-per-journey-in-lockdown)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 15:44:31+00:00
+
+<p>Experts question how long government will continue to fund running of empty trains</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>Each rail passenger journey taken in the UK since lockdown has cost the taxpayer about £100 in subsidies, with billions of pounds of government money spent on running near-empty services.</p><p>Transport experts said that unless the government reviewed physical distancing rules and encouraged people back on to trains, it would face a “bleak choice” between continuing to pay high subsidies for empty trains or mothballing rail services.</p> <a href="https://www.theguardian.com/business/2020/jun/18/rail-subsidies-costing-uk-taxpayer-100-per-journey-in-lockdown">Continue reading...</a>
+
+## ‘Creepy crawlies help me escape from the real world’: before lockdown I never gardened, now I’m growing strawberries with my kids
+ - [https://www.theguardian.com/hit-refresh/2020/jun/18/creepy-crawlies-help-me-escape-from-the-real-world-before-lockdown-i-never-gardened-now-im-growing-strawberries-with-my-kids](https://www.theguardian.com/hit-refresh/2020/jun/18/creepy-crawlies-help-me-escape-from-the-real-world-before-lockdown-i-never-gardened-now-im-growing-strawberries-with-my-kids)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 15:32:20+00:00
+
+<p>In need of a distraction for her energetic toddler and 10-year-old daughter, one mother braved her weed-choked garden – and a whole new world opened up</p><p>I’m not an outdoorsy person. I’ve always loved the idea of having a garden, but if someone else could put in the legwork then, well, that suited me just fine.</p><p>But since lockdown I’ve started gardening and it’s brought about a surprising change in me – one that’s certainly tickled my friends and family, who have rarely seen me roll up my sleeves to dig up a weed, let alone pick greenflies off tomato plants.</p> <a href="https://www.theguardian.com/hit-refresh/2020/jun/18/creepy-crawlies-help-me-escape-from-the-real-world-before-lockdown-i-never-gardened-now-im-growing-strawberries-with-my-kids">Continue reading...</a>
+
+## ‘I pedalled down the Mall and through Trafalgar Square’: how I became a cyclist during lockdown
+ - [https://www.theguardian.com/hit-refresh/2020/jun/18/i-pedalled-down-the-mall-and-through-trafalgar-square-how-i-went-from-anxious-cyclist-to-king-of-the-road-in-lockdown](https://www.theguardian.com/hit-refresh/2020/jun/18/i-pedalled-down-the-mall-and-through-trafalgar-square-how-i-went-from-anxious-cyclist-to-king-of-the-road-in-lockdown)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 15:32:12+00:00
+
+<p>As the traffic seeps back, this newly confident rider is determined not to return to his old ways – exploring the capital on two wheels has made him feel fit, happy and free<br /></p><p>In Marianne Faithfull’s song The Ballad of Lucy Jordan, the titular heroine laments, at the age of 37, from the stifling comfort of her suburban bedroom, that “she’d never ride through Paris in a sports car with the warm wind in her hair”.</p><p>A relatable precis of the type of middle-age regret that I’ve always been determined would never happen to me. No sign of a showy open-top yet, sadly, but at the grand old age of 44, I discovered I could achieve a similar high simply by jumping on a bike and spending an hour zooming around a locked down London. And with no hairdressers open for weeks, I had plenty of hair for the warm wind to ruffle.</p> <a href="https://www.theguardian.com/hit-refresh/2020/jun/18/i-pedalled-down-the-mall-and-through-trafalgar-square-how-i-went-from-anxious-cyclist-to-king-of-the-road-in-lockdown">Continue reading...</a>
+
+## ‘I fell in love with crafting during lockdown’: how a homework project unleashed one parent's creative juices
+ - [https://www.theguardian.com/hit-refresh/2020/jun/18/i-fell-in-love-with-crafting-during-lockdown-how-a-homework-project-unleashed-one-mums-creative-juices](https://www.theguardian.com/hit-refresh/2020/jun/18/i-fell-in-love-with-crafting-during-lockdown-how-a-homework-project-unleashed-one-mums-creative-juices)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 15:32:03+00:00
+
+<p>Always finishing off what the kids have started? Maybe your inner creative is crying out to tie-dye, knit and sew – here’s what you need to know</p><p>The last thing I needed in lockdown was yet another email from my son’s school. For his history homework he had to make an ancient Greek vase using papier-mache wrapped around a balloon. I was stressing about a work deadline, taking care of my two children and worrying about my mum who lives in a dementia care home. I cursed balloons, papier-mache and the ancient Greeks.</p><p>I’ve never been a crafter. Why spend hours of your time fretting over making something when you can easily buy a perfect, mass produced version? I have a friend who knits her own gloves, another who paints seascapes and yet another who makes elderflower cordial for fun. They love what they do, but to me, “homemade” brings up childhood memories of itchy ill-fitting jumpers and ugly tea cosies at Christmas bazaars. Still, my nine-year-old son was thrilled – and I couldn’t let myself fall at the first home-schooling hurdle.</p> <a href="https://www.theguardian.com/hit-refresh/2020/jun/18/i-fell-in-love-with-crafting-during-lockdown-how-a-homework-project-unleashed-one-mums-creative-juices">Continue reading...</a>
+
+## ‘I turned our home into a playground during lockdown’: one parent's guide to keeping kids happy indoors
+ - [https://www.theguardian.com/hit-refresh/2020/jun/18/i-turned-our-home-into-a-playground-during-lockdown-a-mothers-guide-to-keeping-housebound-kids-happy](https://www.theguardian.com/hit-refresh/2020/jun/18/i-turned-our-home-into-a-playground-during-lockdown-a-mothers-guide-to-keeping-housebound-kids-happy)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 15:31:23+00:00
+
+<p>Faced with two children, a small flat and no garden, Covid-19 meant one couple needed to think creatively </p><p>Before any of us had heard the phrase “lockdown”, my parenting style was very much of the “Let’s go …” variety. “Let’s go ... to the park/cinema/museum/anywhere that will get us out of this small flat and make us feel like we’re not stifling your childhoods with our inability to afford a garden.”&nbsp;</p><p>As Spain and Italy locked down with draconian measures, we could feel the panic rising: how would my partner, Steven, and I keep seven-year-old Betty and 18-month-old Rosa occupied with no childcare, no family or friends, no private outside space and no throw-money-at-the-problem excursions while trying to hold down our own jobs?</p> <a href="https://www.theguardian.com/hit-refresh/2020/jun/18/i-turned-our-home-into-a-playground-during-lockdown-a-mothers-guide-to-keeping-housebound-kids-happy">Continue reading...</a>
+
+## We'll Meet Again: how toxic nostalgia twisted Vera Lynn's pop masterpiece
+ - [https://www.theguardian.com/music/2020/jun/18/well-meet-again-vera-lynn-pop-masterpiece-second-world-war](https://www.theguardian.com/music/2020/jun/18/well-meet-again-vera-lynn-pop-masterpiece-second-world-war)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 15:24:39+00:00
+
+<p>The song’s magic lay in its poignancy – the very quality that has led to Britain’s parochial obsession with the second world war</p><p>From Captain Tom Moore’s <a href="https://www.theguardian.com/music/2020/apr/24/captain-tom-moore-becomes-oldest-artist-to-claim-uk-no-1-single">chart-topping You’ll Never Walk Alone</a> to <a href="https://www.youtube.com/watch?v=SzeEtnXaruc">Katherine Jenkins’ charity take</a> on Vera Lynn’s We’ll Meet Again – a cover version as grey and sickly as 1940s rationed margarine – 2020 has been a year in which we’ve been reminded, more than ever, that British culture is unable to escape the long shadow of the second world war.</p><p> <span>Related: </span><a href="https://www.theguardian.com/music/2020/jun/18/vera-lynn-best-wartime-spirit-not-continuation">Vera Lynn: the best of the wartime spirit, not its continuation by other means | Stephen Moss</a> </p> <a href="https://www.theguardian.com/music/2020/jun/18/well-meet-again-vera-lynn-pop-masterpiece-second-world-war">Continue reading...</a>
+
+## Football fans: what did you make of the Premier League's return?
+ - [https://www.theguardian.com/football/2020/jun/18/football-fans-premier-league-return](https://www.theguardian.com/football/2020/jun/18/football-fans-premier-league-return)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 14:23:44+00:00
+
+<p>It was not the best night for Hawk-Eye or David Luiz. How was it for you? Will you be tuning in for the 90 remaining games?</p><p>All eyes – Hawk-Eye, aside – were on the Premier League on Wednesday night and it was as eventful as ever, with one red card, <a href="https://www.theguardian.com/football/2020/jun/17/imperious-kevin-de-bruyne-makes-david-luiz-pay-for-familiar-errors">two David Luiz howlers</a> and <a href="https://www.theguardian.com/football/2020/jun/17/imperious-kevin-de-bruyne-makes-david-luiz-pay-for-familiar-errors">three goals</a> (<a href="https://www.theguardian.com/football/2020/jun/17/hawk-eye-apologises-goalline-error-sheffield-united-aston-villa">OK, four</a>). It was not a great evening for Arsenal or goal-line technology, but how was it for you?</p><p>The players – and officials – taking a knee before the matches felt like an important moment for a league that has often tried to remain within its own bubble, but was the football that entertaining? Did the Zoom meeting on the big screens make up for the lack of fans? Was the artificial chanting a good idea? There are <a href="https://www.theguardian.com/football/2020/jun/17/premier-league-return-five-talking-points-from-the-big-kick-off">90 more games to play</a>. Will you keep watching?</p> <a href="https://www.theguardian.com/football/2020/jun/18/football-fans-premier-league-return">Continue reading...</a>
+
+## UK society regressing back to 1950s for many women, warn experts
+ - [https://www.theguardian.com/inequality/2020/jun/18/uk-society-regressing-back-to-1950s-for-many-women-warn-experts-worsening-inequality-lockdown-childcare](https://www.theguardian.com/inequality/2020/jun/18/uk-society-regressing-back-to-1950s-for-many-women-warn-experts-worsening-inequality-lockdown-childcare)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 14:04:44+00:00
+
+<p>Inequality has worsened during lockdown, says study, with women saddled with more not less childcare</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>The coronavirus pandemic is threatening to derail women’s careers and take UK society back to a 1950s style of living, experts have warned, as research showed the proportion of mothers responsible for 90 to 100% of childcare increased from 27% to 45% during lockdown.</p><p>Researchers at<a href="https://www.sussex.ac.uk/"> </a><a href="https://www.sussex.ac.uk/">the University of Sussex </a>found 72% of mothers described themselves as the “default” parent for all or most of the time during lockdown, while 67% of women with work commitments also described themselves as such. In addition, 70% of women reported being completely or mostly responsible for home schooling.</p> <a href="https://www.theguardian.com/inequality/2020/jun/18/uk-society-regressing-back-to-1950s-for-many-women-warn-experts-worsening-inequality-lockdown-childcare">Continue reading...</a>
+
+## Drive-in bingo for NHS staff and key workers – in pictures
+ - [https://www.theguardian.com/uk-news/gallery/2020/jun/18/drive-in-bingo-nhs-staff-key-workers-in-pictures](https://www.theguardian.com/uk-news/gallery/2020/jun/18/drive-in-bingo-nhs-staff-key-workers-in-pictures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 12:42:54+00:00
+
+<p>The photographer Christopher Thomond spends an evening with visitors to the first Bingo Bedlam, a physically distanced drive-in bingo and singalong music session for NHS employees and other key workers, held during a thunderstorm at EventCity in Manchester</p> <a href="https://www.theguardian.com/uk-news/gallery/2020/jun/18/drive-in-bingo-nhs-staff-key-workers-in-pictures">Continue reading...</a>
+
+## RFU may urge England fans not to sing Swing Low because of slavery link
+ - [https://www.theguardian.com/sport/2020/jun/18/rfu-may-urge-england-fans-against-singing-swing-low-slavery](https://www.theguardian.com/sport/2020/jun/18/rfu-may-urge-england-fans-against-singing-swing-low-slavery)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 12:20:46+00:00
+
+<ul><li>Many supporters are unaware that song is about slavery<br /></li><li>‘Historical context’ of song under review by governing body<br /></li></ul><p>The Rugby Football Union is conducting a review into the singing of Swing Low, Sweet Chariot by England supporters, admitting that many of them are unaware of its origins as a song about slavery.</p><p>England fans have previously been criticised for “cross-cultural appropriation of a US slave song” by academics, and the Black Lives Matter movement has brought renewed focus on its airing at Twickenham and matches abroad.</p> <a href="https://www.theguardian.com/sport/2020/jun/18/rfu-may-urge-england-fans-against-singing-swing-low-slavery">Continue reading...</a>
+
+## Napoli fans and a bathing bear: Thursday's best photos
+ - [https://www.theguardian.com/news/gallery/2020/jun/18/napoli-fans-and-a-bathing-bear-thursdays-best-photos](https://www.theguardian.com/news/gallery/2020/jun/18/napoli-fans-and-a-bathing-bear-thursdays-best-photos)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 11:54:07+00:00
+
+<p>The Guardian’s picture editors select photo highlights from around the world</p> <a href="https://www.theguardian.com/news/gallery/2020/jun/18/napoli-fans-and-a-bathing-bear-thursdays-best-photos">Continue reading...</a>
+
+## Eight pinks you'll love to drink: great rosés for under £8
+ - [https://www.theguardian.com/food/2020/jun/18/how-to-find-a-good-rose-wine-for-under-eight-pounds](https://www.theguardian.com/food/2020/jun/18/how-to-find-a-good-rose-wine-for-under-eight-pounds)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 10:30:47+00:00
+
+<p>From peachy Spaniards to lemony Italians, there’s a wine here to delight every palate. And no, we haven’t forgotten France</p><p>Given the recent blazing summer weather and the fact that we couldn’t go to the pub, it is hardly surprising that rosé sales have rocketed in the UK, but even the supermarkets are astonished by the figures. “It’s gone completely bonkers,” says Becky Hull, the rosé wine buyer at Waitrose, whose sales are up 54% so far this year, with figures for the recent bank holiday week even outstripping prosecco. “There’s an element of escapism about rosé that I think we all need at the moment.”</p><p>Perhaps the surprise is more that a lot of rosé – especially the fashionably pale Provençal style – isn’t cheap. The average spend at Waitrose is £8.16 a bottle, more than for other still wines. So what can you get for under that?</p> <a href="https://www.theguardian.com/food/2020/jun/18/how-to-find-a-good-rose-wine-for-under-eight-pounds">Continue reading...</a>
+
+## Dame Vera Lynn: a life in pictures
+ - [https://www.theguardian.com/music/gallery/2020/jun/18/dame-vera-lynn-a-life-in-pictures](https://www.theguardian.com/music/gallery/2020/jun/18/dame-vera-lynn-a-life-in-pictures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 10:05:57+00:00
+
+<p><a href="https://www.theguardian.com/music/2020/jun/18/dame-vera-lynn-dies-aged-103">Vera Lynn has died at the age of 103</a>. The singer became known as the ‘forces’ sweetheart’ because of her popularity during the second world war, and went on to become one of Britain’s best-loved entertainers</p> <a href="https://www.theguardian.com/music/gallery/2020/jun/18/dame-vera-lynn-a-life-in-pictures">Continue reading...</a>
+
+## Juneteenth: activists across US inherit a historic battle for racial justice
+ - [https://www.theguardian.com/us-news/2020/jun/18/juneteenth-celebration-events-protest-activism](https://www.theguardian.com/us-news/2020/jun/18/juneteenth-celebration-events-protest-activism)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 10:00:46+00:00
+
+<p>First celebrated in 1865, the holiday marking slavery’s end is both a painful reminder and a celebration of freedom fighters</p><p>This year, many Juneteenth events have been revamped as virtual or cancelled altogether as the coronavirus pandemic <a href="https://www.theguardian.com/world/2020/apr/08/its-a-racial-justice-issue-black-americans-are-dying-in-greater-numbers-from-covid-19">disproportionately threatens the African American community</a> the holiday represents, commemorating the end of slavery.</p><p>But with continuing protests against racism sparked by the <a href="https://www.theguardian.com/us-news/2020/jun/06/george-floyd-plight-reflected-burden-of-being-black-america">police killing of George Floyd</a>, calls for national police reforms during the celebration and federal recognition of the holiday are growing in urgency.</p> <a href="https://www.theguardian.com/us-news/2020/jun/18/juneteenth-celebration-events-protest-activism">Continue reading...</a>
+
+## My favourite memories of Spain: readers' travel tips
+ - [https://www.theguardian.com/travel/2020/jun/18/my-favourite-memories-of-spain-readers-travel-tips](https://www.theguardian.com/travel/2020/jun/18/my-favourite-memories-of-spain-readers-travel-tips)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 09:30:45+00:00
+
+<p>Fairytale fortresses, shrimp fritters and sherry, ancient landscapes and illicit romance … our readers rekindle the magic of Spain</p><p>It was a rainy morning in Santiago, <a href="https://www.theguardian.com/travel/2018/feb/04/galicia-seafood-fish-spain-foodie-markets">Galicia</a>, in late November 1975. I was in my third year at university, studying languages, and was spending the entire year in Spain, ostensibly to improve my language skills. As I walked towards town I became aware of a large number of people in the streets, many shouting. One man thrust a newspaper at me with a laugh of amazement: “<em>No sabes</em>?” (Don’t you know?). Franco was dead. After 36 years of dictatorship, the seemingly immortal Generalissimo was gone. The university closed. Riots began, the Guardia Civil practised baton charges outside my apartment. I just went travelling for nine months. I still have the newspaper.<br /><strong>Nick Coghlan</strong></p> <a href="https://www.theguardian.com/travel/2020/jun/18/my-favourite-memories-of-spain-readers-travel-tips">Continue reading...</a>
+
+## UK employees and employers: what will you do after furlough?
+ - [https://www.theguardian.com/money/2020/jun/18/uk-employees-and-employers-what-will-you-do-after-furlough](https://www.theguardian.com/money/2020/jun/18/uk-employees-and-employers-what-will-you-do-after-furlough)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 09:24:25+00:00
+
+<p>If you’re on furlough, we want to know how you’re feeling and what the future holds in store</p><p>The <a href="https://www.theguardian.com/politics/2020/may/23/uk-firms-to-be-asked-to-pay-part-of-furloughed-staffs-wages-from-august">government’s furlough scheme</a> has thrown businesses and workers a lifeline at a time of crisis. It’s expected to gradually start unwinding from August, as many businesses start to reopen, but the world of work that employers and employees are returning to will not be the same as the one they left in March.</p><p>We want to hear experiences of furlough from both sides and learn what the future holds in store.</p> <a href="https://www.theguardian.com/money/2020/jun/18/uk-employees-and-employers-what-will-you-do-after-furlough">Continue reading...</a>
+
+## What is Juneteenth – and should it be a federal holiday in the US? – video explainer
+ - [https://www.theguardian.com/world/video/2020/jun/18/what-is-juneteenth-and-should-it-be-a-federal-holiday-video-explainer](https://www.theguardian.com/world/video/2020/jun/18/what-is-juneteenth-and-should-it-be-a-federal-holiday-video-explainer)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 09:00:45+00:00
+
+<p>Every 19 June for more than 150 years African Americans across the US have celebrated freedom from slavery. Guardian US reporter&nbsp;<a href="https://www.theguardian.com/profile/kenya-evelyn">Kenya Evelyn</a>&nbsp;explores the significance of Juneteenth, how celebrations have evolved over the years and looks at whether it is time for the holiday to receive federal recognition</p><ul><li><a href="https://www.theguardian.com/us-news/2020/jun/16/juneteenth-independence-holiday-what-you-need-to-know">Juneteenth Independence holiday: here's what you need to know</a></li></ul> <a href="https://www.theguardian.com/world/video/2020/jun/18/what-is-juneteenth-and-should-it-be-a-federal-holiday-video-explainer">Continue reading...</a>
+
+## Indonesia creates 'artificial rain' to prevent repeat of devastating fires
+ - [https://www.theguardian.com/world/2020/jun/18/indonesia-creates-artificial-rain-to-prevent-repeat-of-devastating-fires](https://www.theguardian.com/world/2020/jun/18/indonesia-creates-artificial-rain-to-prevent-repeat-of-devastating-fires)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 06:40:45+00:00
+
+<p>Haze from last year’s fires forced airports and schools to close, and are thought to have cost the economy at least $5.2bn</p><p>The Indonesian government is deploying artificial rains ahead of the dry season’s peak as the country attempts to prevent a repeat of the devastating fires that ravaged millions of acres of forests and land last year.</p><p>Toxic haze was spewed across south-east Asia, forcing the closure of airports and hundreds of schools, and prompting a <a href="https://www.theguardian.com/world/2019/sep/12/indonesia-forest-fires-spark-blame-game-as-smoke-closes-hundreds-of-malaysia-schools">diplomatic spat with Malaysia</a> in September last year.</p> <a href="https://www.theguardian.com/world/2020/jun/18/indonesia-creates-artificial-rain-to-prevent-repeat-of-devastating-fires">Continue reading...</a>
+
+## Coronavirus live news: New Zealand reports another new case as Brazil nears 1m infections
+ - [https://www.theguardian.com/world/live/2020/jun/18/coronavirus-live-news-brazil-cases-near-1m-as-who-hails-steroid-treatment-hope](https://www.theguardian.com/world/live/2020/jun/18/coronavirus-live-news-brazil-cases-near-1m-as-who-hails-steroid-treatment-hope)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 06:39:16+00:00
+
+<p>Deaths worldwide near 500,000; US health expert says country is ‘still in first wave’; <a href="https://www.theguardian.com/world/2020/jun/17/argentina-president-enters-voluntary-isolation-amid-coronavirus-surge">Argentinian president enters voluntary isolation amid coronavirus surge</a>. Follow the latest updates</p><ul><li><a href="https://www.theguardian.com/world/2020/jun/17/beijing-coronavirus-outbreak-city-raises-emergency-level-and-grounds-hundreds-of-flights">Beijing coronavirus outbreak: city raises emergency level and grounds hundreds of flights</a></li><li><a href="https://www.theguardian.com/world/live/2020/jun/18/coronavirus-live-news-brazil-cases-near-1m-as-who-hails-steroid-treatment-hope?page=with:block-5eeaa74c8f08b8bbd22a471a#block-5eeaa74c8f08b8bbd22a471a">Brazil cases near 1m</a></li><li><a href="https://www.theguardian.com/world/live/2020/jun/18/coronavirus-live-news-brazil-cases-near-1m-as-who-hails-steroid-treatment-hope?page=with:block-5eeac5438f08b8bbd22a47ef#block-5eeac5438f08b8bbd22a47ef">New Zealand confirms one new case</a></li><li><a href="https://www.theguardian.com/music/2020/jun/17/spanish-opera-house-reopens-with-concert-for-plants-barcelona">Spanish opera house reopens with concert for plants</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p class="block-time published-time"> <time datetime="2020-06-18T06:37:44.654Z">7.37am <span class="timezone">BST</span></time> </p><p>Extensive <strong>surveillance</strong> measures introduced around the world during the coronavirus outbreak have widened and become entrenched, digital rights experts have said, three months after the World Health Organization <a href="https://www.theguardian.com/world/2020/mar/11/who-declares-coronavirus-pandemic">declared</a> a pandemic.</p><p> <span>Related: </span><a href="https://www.theguardian.com/world/2020/jun/18/coronavirus-mass-surveillance-could-be-here-to-stay-tracking">Coronavirus mass surveillance could be here to stay, experts say</a> </p><p class="block-time published-time"> <time datetime="2020-06-18T06:30:36.785Z">7.30am <span class="timezone">BST</span></time> </p><p>Three more coronavirus deaths have been announced in <strong>El Salvador</strong>.</p><p dir="ltr" lang="es">Informamos tres decesos por <a href="https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw">#COVID19</a>:<br /><br />-Paciente femenina, en el rango de 40 a 60 años<br />-Paciente femenina, mayor de 70 años<br />-Paciente masculino, grupo etario de 60 a 70 años y personal de primera línea<br /><br />En nuestras manos está evitar más víctimas.<br /><br />Nuestro sentido pésame.</p> <a href="https://www.theguardian.com/world/live/2020/jun/18/coronavirus-live-news-brazil-cases-near-1m-as-who-hails-steroid-treatment-hope">Continue reading...</a>
+
+## The Double X Economy by Linda Scott review – the need to empower women
+ - [https://www.theguardian.com/books/2020/jun/18/the-double-x-economy-by-linda-scott-review-the-need-to-empower-women](https://www.theguardian.com/books/2020/jun/18/the-double-x-economy-by-linda-scott-review-the-need-to-empower-women)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 06:30:42+00:00
+
+<p>Calling out hostile men ... a rallying cry for global female equality and a strong counter to ‘lean in’ feminism</p><p>Why do girls in parts of rural Africa so often drop out of school in their teens? When Linda Scott started asking this question in Ghana more than a decade ago, the received wisdom she got was that girls are just too materialistic; they want clothes and phones, so they start trading sex for them, and then end up falling out of education because they are pregnant. The problem, she was told, lay with girls themselves.</p><p>It won’t surprise many people to learn that this turned out to be the wrong answer. Scott, an Oxford scholar and expert in women’s economic empowerment, was in Ghana testing the theory that girls drop out of school when their periods start due to a lack of sanitary pads. But she quickly discovered that it wasn’t just the embarrassment of being seen to bleed through their clothes that deterred them from staying in class. A girl reaching the age of menstruation is deemed old enough to be sexually available; once men find out, she can expect to be followed home from school, sexually harassed, perhaps even raped. Giving girls sanitary pads which allowed them to keep their periods secret would not protect them for ever from predatory males, she concluded, but it could buy them a little more time in education. Sure enough, the girls who enrolled in a pilot project handing out free pads and information on puberty did spend more days in school. But that solution wouldn’t have been possible without turning the question on its head, asking not what’s wrong with girls, but what might be wrong with the conditions under which they are forced to live.</p> <a href="https://www.theguardian.com/books/2020/jun/18/the-double-x-economy-by-linda-scott-review-the-need-to-empower-women">Continue reading...</a>
+
+## 'Worst outbreak ever': Nearly a million pigs culled in Nigeria due to swine fever
+ - [https://www.theguardian.com/environment/2020/jun/18/worst-outbreak-ever-nearly-a-million-pigs-culled-in-nigeria-due-to-swine-fever](https://www.theguardian.com/environment/2020/jun/18/worst-outbreak-ever-nearly-a-million-pigs-culled-in-nigeria-due-to-swine-fever)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 06:30:41+00:00
+
+<p>Farmers report devastating losses as poor control measures are blamed for spread of infection across the country</p><p>Hundreds of thousands of pigs have been culled by Nigerian farmers in response to an explosion of African swine fever (ASF). The outbreak<strong> </strong>began around Lagos and parts of neighbouring Ogun state earlier this year, pig farmers say, but has now spread to many other parts of the country.</p><p>In the absence of official data, farmers who spoke to the Guardian estimated that nearly a million pigs had been put down so far. Mrs Bello, a farmer at Lagos-based Oke-Aro, the largest pig co-operative in west Africa, who preferred not to give her first name, said the co-operative alone had culled around 500,000 pigs. So far the virus has spread to more than a quarter of Nigeria’s 36 states.</p> <a href="https://www.theguardian.com/environment/2020/jun/18/worst-outbreak-ever-nearly-a-million-pigs-culled-in-nigeria-due-to-swine-fever">Continue reading...</a>
+
+## 'Unprecedented' Australian bushfires directly affected one in eight Indigenous people
+ - [https://www.theguardian.com/australia-news/2020/jun/18/unprecedented-australian-bushfires-directly-affected-one-in-eight-indigenous-people](https://www.theguardian.com/australia-news/2020/jun/18/unprecedented-australian-bushfires-directly-affected-one-in-eight-indigenous-people)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 06:16:15+00:00
+
+<p>Royal commission hears from 15 witnesses on cultural burning at the end of three days of hearings on hazard reduction</p><p>One in eight Aboriginal and Torres Strait Islander people in Australia were directly impacted by the 2019-20 bushfires, the bushfire royal commission has heard.</p><p>And according to a study of the geological records of large fires in Australia’s history, the summer bushfires were “unprecedented”.</p> <a href="https://www.theguardian.com/australia-news/2020/jun/18/unprecedented-australian-bushfires-directly-affected-one-in-eight-indigenous-people">Continue reading...</a>
+
+## 'A shame for the world': Uganda's fragile forest ecosystem destroyed for sugar
+ - [https://www.theguardian.com/global-development/2020/jun/18/a-shame-for-the-world-ugandas-fragile-forest-ecosystem-destroyed-for-sugar](https://www.theguardian.com/global-development/2020/jun/18/a-shame-for-the-world-ugandas-fragile-forest-ecosystem-destroyed-for-sugar)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 06:15:41+00:00
+
+<p>Conservationists say clearance of Bugamo reserve for plantation is blow to biodiversity and country’s reputation on wildlife</p><p>Conservationists have branded a decision by the Ugandan high court to allow swathes of forest to be cleared for a sugarcane plantation “an unforgivable shame for all people”.</p><p>Work to clear 900 hectares (2,223 acres) of <a href="https://www.ugandaparks.com/forests/bugoma-forest-reserve/">Bugoma </a><a href="https://www.ugandaparks.com/forests/bugoma-forest-reserve/">Forest Reserve</a>, in Hoima, began last month after the court ruled that the land, leased by Hoima Sugar Company Ltd, lay outside the protected area of the forest. The court ordered the National Forestry Authority (NFA), which manages it, to vacate the land and remove the military officers who had been guarding it. The NFA has appealed the decision.</p> <a href="https://www.theguardian.com/global-development/2020/jun/18/a-shame-for-the-world-ugandas-fragile-forest-ecosystem-destroyed-for-sugar">Continue reading...</a>
+
+## Coronavirus mass surveillance could be here to stay, experts say
+ - [https://www.theguardian.com/world/2020/jun/18/coronavirus-mass-surveillance-could-be-here-to-stay-tracking](https://www.theguardian.com/world/2020/jun/18/coronavirus-mass-surveillance-could-be-here-to-stay-tracking)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 06:15:41+00:00
+
+<p>Use of invasive digital and physical tracking measures soars as the pandemic spreads </p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul> <p>Extensive surveillance measures introduced around the world during the coronavirus outbreak have widened and become entrenched, digital rights experts have said, three months after the World Health Organization <a href="https://www.theguardian.com/world/2020/mar/11/who-declares-coronavirus-pandemic">declared</a> a pandemic.</p><p>The measures have often been billed as temporary necessities rushed into place to help track infections, but governments have been accused of denting civil rights with the widespread use of techniques such as phone monitoring, contact tracing apps, and physical surveillance such as CCTV with facial recognition.</p> <a href="https://www.theguardian.com/world/2020/jun/18/coronavirus-mass-surveillance-could-be-here-to-stay-tracking">Continue reading...</a>
+
+## India cautions China against 'exaggerated and untenable claims' in border standoff
+ - [https://www.theguardian.com/world/2020/jun/18/india-cautions-china-against-exaggerated-and-untenable-claims-in-border-standoff](https://www.theguardian.com/world/2020/jun/18/india-cautions-china-against-exaggerated-and-untenable-claims-in-border-standoff)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 06:02:24+00:00
+
+<p>Both sides have accused each other of instigating the clash on Himalayan frontier in which at least 20 troops died</p><p>India on Thursday cautioned China against making “exaggerated and untenable claims” to the Galvan valley area even as both nations tried to end a standoff in the high Himalayan region after their armies engaged in a deadly clash.</p><p>Twenty Indian troops were killed in the clash on Monday night that was the deadliest conflict between the sides in 45 years. China has not disclosed whether its forces suffered any casualties.</p> <a href="https://www.theguardian.com/world/2020/jun/18/india-cautions-china-against-exaggerated-and-untenable-claims-in-border-standoff">Continue reading...</a>
+
+## The Ground Beneath My Feet review – creepy phone calls dial up the fear | Peter Bradshaw's film of the week
+ - [https://www.theguardian.com/film/2020/jun/18/the-ground-beneath-my-feet-review-marie-kreutzer-valerie-pachner](https://www.theguardian.com/film/2020/jun/18/the-ground-beneath-my-feet-review-marie-kreutzer-valerie-pachner)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 06:00:42+00:00
+
+<p>An executive’s important business trip is threatened by unnerving family news in an eerie, elegant psychological drama</p><p>The creepy phone call that’s coming from inside the house – a well understood scary-movie trope. The threat is more disturbingly intimate than you thought, or more disturbingly metaphorical. It’s an idea touched on in this elegant and mysterious psychological drama from Austrian film-maker Marie Kreutzer. Her trajectory of fear is not angled as you might think, towards a supernatural revelation or a down-to-earth explanatory twist or even an enigmatically balanced ambiguity between the two. For much of the time, The Ground Beneath My Feet has the uncanny-realist feel of something like Olivier Assayas’s <a href="https://www.theguardian.com/film/2017/mar/16/personal-shopper-review-kristen-stewart-olivier-assayas">Personal Shopper</a> or Michael Haneke’s <a href="https://www.theguardian.com/culture/2006/jan/27/2">Hidden</a> with its moment-by-moment portrait of emotional breakdown in the face of an unexplained phenomenon, and there’s something of Maren Ade’s <a href="https://www.theguardian.com/film/2017/feb/02/toni-erdmann-review-maren-ade-peter-simonischek-sandra-huller">Toni Erdmann</a> in its study of family dysfunction. But it seems to me different from all these: the transgressive threat approaches and recedes like thunder, leaving us with a study in loneliness.</p><p>The person beneath whose feet the ground is shifting and disappearing is Lola (Valerie Pachner), a young corporate executive whose habit is to answer her mobile curtly with her surname (“Wegenstein”) as if always expecting a business call, nothing personal. Lola lives on her own in Vienna, through whose avenues she goes running every morning. She is driven, focused, goal-oriented and excited by an imminent business trip to Rostock in Germany, where her consultancy firm is about to land a big commission. Lola is also looking forward to hotel-room assignations with her boss, Elise (Mavie Hörbiger), with whom she is having a passionate affair, made more dangerous by the fact that Elise is in a position to advance her career, or – perhaps – to impede it by capriciously advancing others on her team.</p> <a href="https://www.theguardian.com/film/2020/jun/18/the-ground-beneath-my-feet-review-marie-kreutzer-valerie-pachner">Continue reading...</a>
+
+## After I told Cummings about life as a single mother, we got support bubbles | Ella Davis
+ - [https://www.theguardian.com/commentisfree/2020/jun/18/dominic-cummings-single-mother-support-bubbles](https://www.theguardian.com/commentisfree/2020/jun/18/dominic-cummings-single-mother-support-bubbles)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 06:00:41+00:00
+
+<p>Enraged by the Durham saga, I wrote to Boris Johnson’s adviser. I never expected a response</p><p>My phone was buzzing off the hook. Congratulations were in order. As a single mum in lockdown with her two young boys, I had supposedly helped influence the government policy on <a href="https://www.theguardian.com/world/2020/jun/10/support-bubble-plan-lets-single-parents-in-england-combine-households">support bubbles</a>. How could that be, when I hadn’t even found the time to clean my bathroom?</p><p>Two weeks earlier, enraged by the <a href="https://www.theguardian.com/commentisfree/2020/jun/14/dominic-cummings-no-10-vote-leave-brexit-referendum">Cummings saga</a> that was dividing the nation, I took matters into my own hands. Bundling my youngest into his bike seat and placing my six-year-old on his bike, we cycled to the home of Britain’s most wanted man.</p> <a href="https://www.theguardian.com/commentisfree/2020/jun/18/dominic-cummings-single-mother-support-bubbles">Continue reading...</a>
+
+## Senior CPS lawyer investigated for posting Britain First petition
+ - [https://www.theguardian.com/law/2020/jun/18/senior-cps-lawyer-investigated-for-posting-britain-first-petition](https://www.theguardian.com/law/2020/jun/18/senior-cps-lawyer-investigated-for-posting-britain-first-petition)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 06:00:41+00:00
+
+<p>Kim Kendall shared petition on Facebook calling for statue of ‘terrorist’ Nelson Mandela to be ‘torn down’ </p><p>A senior lawyer at the Crown Prosecution Service (CPS) is under investigation after a petition from far-right group Britain First calling for the statue of Nelson Mandela to be “torn down” was posted on her Facebook page.</p><p>The petition was shared on the Facebook page of Kim Kendall, a senior lawyer at the Yorkshire and Humberside CPS. It accuses Mandela of being “a communist and terrorist mass murderer” who should be “consigned to the dustbin of history”.</p> <a href="https://www.theguardian.com/law/2020/jun/18/senior-cps-lawyer-investigated-for-posting-britain-first-petition">Continue reading...</a>
+
+## Support bubbles to shagbubbles: 'bubble' is the go-to word of 2020
+ - [https://www.theguardian.com/books/2020/jun/18/support-bubbles-to-shagbubbles-bubble-is-the-go-to-word-of-2020](https://www.theguardian.com/books/2020/jun/18/support-bubbles-to-shagbubbles-bubble-is-the-go-to-word-of-2020)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 06:00:41+00:00
+
+<p>In the past, being insulated from reality has been viewed as a bad thing. Now we all want nothing more</p><p>When is living in a bubble a good thing? Why, when it’s a “<a href="https://www.theguardian.com/politics/2020/jun/11/support-bubbles-what-is-new-policy-in-england-and-how-does-it-work">support bubble</a>”, or – since it lifted the prior ban on people from different households having sex – a shagbubble. There has also been talk of “social bubbles”, but what is behind all the froth?</p><p>The word “bubble” is onomatopoeic, imitating the sound of bubbling liquid. (William Caxton, in his translation of a medieval French encyclopedia, describes the existence of wells that “spryng up with grete bobles” if you play a harp over them.)&nbsp;</p> <a href="https://www.theguardian.com/books/2020/jun/18/support-bubbles-to-shagbubbles-bubble-is-the-go-to-word-of-2020">Continue reading...</a>
+
+## What's that coming over the hill? Photo Basel 2020's monster virtual art show – in pictures
+ - [https://www.theguardian.com/artanddesign/gallery/2020/jun/18/photo-basel-2020-monster-virtual-art-show-in-pictures](https://www.theguardian.com/artanddesign/gallery/2020/jun/18/photo-basel-2020-monster-virtual-art-show-in-pictures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 06:00:41+00:00
+
+<p>From melted cars and stampeding dinosaurs to a time-travelling bungalow, here are the highlights from the first ever virtual exhibition of <a href="http://www.photo-basel.com/">Photo Basel 2020</a> </p> <a href="https://www.theguardian.com/artanddesign/gallery/2020/jun/18/photo-basel-2020-monster-virtual-art-show-in-pictures">Continue reading...</a>
+
+## You’re never too old to climb a tree – and I should know
+ - [https://www.theguardian.com/commentisfree/2020/jun/18/youre-never-too-old-to-climb-a-tree-and-i-should-know](https://www.theguardian.com/commentisfree/2020/jun/18/youre-never-too-old-to-climb-a-tree-and-i-should-know)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 06:00:41+00:00
+
+<p>As a boy, I was too terrified to tackle the beautiful horse chestnut near my home. But I’ve changed a lot in four decades<br /></p><p>One day, when I was around 10 years old, I was to be found clinging to a branch of a conker tree. Being scared of heights, I was terrified. I was about six feet off the ground. Dan, an older kid who I idolised somewhat, was looking at me. “You’re going to struggle when you’re older,” he said, “’cos you might grow that tall.” A fair point. Above us, a distant figure flitted about in the highest reaches of the tree. This was my fearless younger brother, showing me how it was done. Humiliating, really.</p><p>That horse chestnut tree still stands behind my parents’ house. The other day this memory came back to me as I took in its beauty. I climbed over their garden fence, and through 10 metres of thick nettles and stuff, to stand in the damp, clear space beneath the tree’s canopy. The branch I had clung to didn’t seem to have changed in the 40 years since. I rested my head against it to confirm I had indeed grown as tall as Dan had predicted.</p> <a href="https://www.theguardian.com/commentisfree/2020/jun/18/youre-never-too-old-to-climb-a-tree-and-i-should-know">Continue reading...</a>
+
+## Voice of America: independence fears after Trump ally purges senior officials
+ - [https://www.theguardian.com/media/2020/jun/18/voice-of-america-independence-fears-after-trump-ally-purges-senior-officials](https://www.theguardian.com/media/2020/jun/18/voice-of-america-independence-fears-after-trump-ally-purges-senior-officials)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 05:37:17+00:00
+
+<p>‘Wednesday night massacre’ ignites concerns Michael Pack will turn state-funded broadcaster into ‘mouthpiece for the president’</p><p>The man appointed by Donald Trump to head the US global media agency that oversees Voice of America (VOA) and other state-funded broadcasters has carried out a purge of career officials at the top levels of the organisation and installed Trump loyalists.</p><p>The action by Michael Pack <a href="https://www.theguardian.com/us-news/2020/jun/17/voice-of-america-agency-purge-trump-ally-michael-pack">appeared to confirm fears</a> that Trump wanted to turn the US Agency for Global Media (USAGM) into a loyal state broadcaster of the kind normally found in authoritarian societies.</p> <a href="https://www.theguardian.com/media/2020/jun/18/voice-of-america-independence-fears-after-trump-ally-purges-senior-officials">Continue reading...</a>
+
+## Thursday briefing: John Bolton book tears into Trump
+ - [https://www.theguardian.com/world/2020/jun/18/thursday-briefing-john-bolton-book-tears-into-trump](https://www.theguardian.com/world/2020/jun/18/thursday-briefing-john-bolton-book-tears-into-trump)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 05:35:45+00:00
+
+<p>President ignorant that UK had nuclear weapons … Oriel College votes in favour of Rhodes falling … work starts on Manchester liquid air battery</p><p>Hello again. I’m Warren Murray and there is plenty here to chew on.</p> <a href="https://www.theguardian.com/world/2020/jun/18/thursday-briefing-john-bolton-book-tears-into-trump">Continue reading...</a>
+
+## Footprints reveal giant carnivorous dinosaurs the length of a bus wandered Australia
+ - [https://www.theguardian.com/australia-news/2020/jun/18/footprints-reveal-giant-carnivorous-dinosaurs-the-length-of-a-bus-wandered-australia](https://www.theguardian.com/australia-news/2020/jun/18/footprints-reveal-giant-carnivorous-dinosaurs-the-length-of-a-bus-wandered-australia)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 05:32:23+00:00
+
+<p>Researchers say the Queensland dinosaur predates its more famous ‘cousin’ the T rex by about 90 million years</p><p>Giant carnivorous dinosaurs the length of a bus wandered south-east Queensland about 160 million years ago, new research shows.</p><p>Analysis of fossilised footprints by a University of Queensland research team has shone new light on the diversity of dinosaur life during the mid-to-late Jurassic period.</p> <a href="https://www.theguardian.com/australia-news/2020/jun/18/footprints-reveal-giant-carnivorous-dinosaurs-the-length-of-a-bus-wandered-australia">Continue reading...</a>
+
+## What it's really like to be black in the fashion industry?
+ - [https://www.theguardian.com/fashion/2020/jun/18/what-its-really-like-to-be-black-in-the-fashion-industry](https://www.theguardian.com/fashion/2020/jun/18/what-its-really-like-to-be-black-in-the-fashion-industry)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 05:00:42+00:00
+
+<p>Models, casting agents and stylists tell us their experiences in the fashion and beauty worlds</p><p>I grew up in Nottingham which is a hugely diverse city. Everything I am comes back to home – I was blessed to go to a school with a majority BAME attendance and I was blessed to have friends who came from a range of diverse backgrounds. We’d casually speak about our lives, teach one another our customs, talk about how our mums disciplined us, laugh at the differences – and it’s these exchanges and an interest in other people that inform my life and work today.</p> <a href="https://www.theguardian.com/fashion/2020/jun/18/what-its-really-like-to-be-black-in-the-fashion-industry">Continue reading...</a>
+
+## 'Everybody's doing a Covid clearout': a charity shop bustles with hope after lockdown
+ - [https://www.theguardian.com/lifeandstyle/2020/jun/18/covid-clearout-charity-shop-lockdown-coronavirus-scope-communities](https://www.theguardian.com/lifeandstyle/2020/jun/18/covid-clearout-charity-shop-lockdown-coronavirus-scope-communities)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 05:00:41+00:00
+
+<p>Many of us have missed the likes of Scope just as much as Primark or John Lewis. We spend a day with happily returning customers, donors and staff</p><p>There’s a new purple wheelie bin on Walthamstow High Street in north-east London, outside No 210, and it’s filling up fast. Michael Armstrong and Louise Craven have just put a bag of books in. “We’ve got several bags from lockdown tidying and we’re going to bring it in one bag at a time,” says Michael. He doesn’t sound like he’s from north-east London. Because he isn’t – he’s originally from California. He came here 40 years ago, “for the weather”, says Craven, his partner, drolly.</p><p>Her irony maybe backfires a little today. It’s a glorious day in Walthamstow – the high street is pretty much Sunset Boulevard minus the palms.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/jun/18/covid-clearout-charity-shop-lockdown-coronavirus-scope-communities">Continue reading...</a>
+
+## Boris Johnson's U-turn shows the assault on liberal values is faltering | Martin Kettle
+ - [https://www.theguardian.com/commentisfree/2020/jun/18/boris-johnsons-u-turn-liberal-values-free-school-meals-dominic-cummings](https://www.theguardian.com/commentisfree/2020/jun/18/boris-johnsons-u-turn-liberal-values-free-school-meals-dominic-cummings)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 05:00:41+00:00
+
+<p>The free school meals debacle is a sign the party is turning against Dominic Cummings’ influence</p><p>Harold Wilson – who lost his only election as Labour leader half a century ago today – once said a week is a long time in politics. If that was right, then how long is an entire year?</p><p>Eleven months ago, the Conservative party looked into the abyss and decided <a href="https://www.theguardian.com/politics/2019/jul/23/boris-johnson-elected-new-tory-leader-prime-minister">Boris Johnson</a> was the right answer to its (and Britain’s) problems. It did this because most Tory members, though not most Tory MPs, thought he would deliver the hard Brexit they favoured, and be electorally popular.</p> <a href="https://www.theguardian.com/commentisfree/2020/jun/18/boris-johnsons-u-turn-liberal-values-free-school-meals-dominic-cummings">Continue reading...</a>
+
+## Katie Waggett's best photograph: Sunday worship with Joy
+ - [https://www.theguardian.com/artanddesign/2020/jun/18/katie-waggett-best-photograph-joy-sunday-best](https://www.theguardian.com/artanddesign/2020/jun/18/katie-waggett-best-photograph-joy-sunday-best)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 05:00:41+00:00
+
+<p>‘Joy was dancing in church with her children in London. She was in her element – her dress speaks to her sense of cultural pride’</p><p>Her name is Joy and I photographed her outside one of the many African churches in south-east London. I had just finished photographing a mosque on the same bland industrial estate when I found the blue wall, then spotted Joy dancing in the church with her children. I thought: “That’s a portrait I’ve got to get,” and asked if she’d come outside and have her photograph taken.</p><p>Her dress speaks to her sense of cultural pride. She’s in her element, in church, in a place where she can showcase her Nigerian clothes. When you put that across in the divisive time in which we’re living, it paints a positive story about her identity as a Londoner, especially when you consider the wider context. Six countries in Europe have banned the burqa (16 worldwide) and <a href="https://en.wikipedia.org/wiki/Quebec_ban_on_religious_symbols">Quebec has banned all religious symbols</a>, but London has created spaces for people to celebrate their cultural heritage, and that’s special.</p> <a href="https://www.theguardian.com/artanddesign/2020/jun/18/katie-waggett-best-photograph-joy-sunday-best">Continue reading...</a>
+
+## Noor Inayat Khan: how British spy's love for blue betrayed her
+ - [https://www.theguardian.com/world/2020/jun/18/executed](https://www.theguardian.com/world/2020/jun/18/executed)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 05:00:41+00:00
+
+<p>A new book reveals 29-year-old was captured by the Gestapo in 1943 after her clothing gave her away</p><p>She was the daughter of an Indian Sufi mystic, who gave her life as a British agent fighting with the French resistance and for the cause of freedom. Now, 76 years after 29-year-old Noor Inayat Khan was captured by the Gestapo and executed in the Dachau concentration camp, a previously-unpublished account reveals that it was her love of the colour blue that betrayed her to the enemy.</p><p>The author of a forthcoming book has had access to a memoir that sheds new light on a heroine who, in sending vital messages back to London as a wireless operator behind enemy lines, significantly aided the success of the <a href="https://www.theguardian.com/world/2019/jun/06/veterans-and-leaders-remember-d-day-fallen-in-normandy-services">allied landing on D-</a><a href="https://www.theguardian.com/world/2019/jun/06/veterans-and-leaders-remember-d-day-fallen-in-normandy-services">day</a>. Codenamed Madeleine, she became a high-value target for the Gestapo.</p> <a href="https://www.theguardian.com/world/2020/jun/18/executed">Continue reading...</a>
+
+## The end of tourism?
+ - [https://www.theguardian.com/travel/2020/jun/18/end-of-tourism-coronavirus-pandemic-travel-industry](https://www.theguardian.com/travel/2020/jun/18/end-of-tourism-coronavirus-pandemic-travel-industry)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 05:00:41+00:00
+
+<p>The pandemic has devastated global tourism, and many will say ‘good riddance’ to overcrowded cities and rubbish-strewn natural wonders. Is there any way to reinvent an industry that does so much damage? By Christopher de Bellaigue</p><p>Of all the calamities that befell tourists as the coronavirus took hold, those involving cruise ships stood apart. Contagion at sea inspired a special horror, as pleasure palaces turned into prison hulks, and rumours of infection on board spread between fetid cabins via WhatsApp. Trapped in close proximity to their fellow passengers, holidaymakers experienced the distress of being both victims and agents of infection, as a succession of ports refused them entry.</p><p>When it began, the deadly situation at sea was seen as a freakish outgrowth of what many still thought of as a Chinese problem. The first ship to suffer a major outbreak was the <a href="https://www.theguardian.com/global-development/2020/mar/06/inside-the-cruise-ship-that-became-a-coronavirus-breeding-ground-diamond-princess" title="">Diamond Princess</a>. By mid-February, 355 cases had been confirmed aboard, and the ship was held being in quarantine in the port of Yokohama. At the time, the ship accounted for more than half of reported cases outside China. Fourteen passengers on the Diamond Princess would die of the virus.</p> <a href="https://www.theguardian.com/travel/2020/jun/18/end-of-tourism-coronavirus-pandemic-travel-industry">Continue reading...</a>
+
+## World spends to protect culture from economic ruin
+ - [https://www.theguardian.com/culture/2020/jun/18/world-spends-to-protect-culture-from-economic-ruin](https://www.theguardian.com/culture/2020/jun/18/world-spends-to-protect-culture-from-economic-ruin)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 05:00:41+00:00
+
+<p>From Italy to Madagascar, funding is in place to try to preserve the arts sector by supporting actors, musicians and other cultural workers</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>Cultural recovery programmes amounting to billions of dollars have been established across the globe to shore up theatres, festivals and other arts institutions against economic ruin. Although some advocates believe the arts industry can be rejuvenated by interventions in a post-pandemic world, others say they will not prevent a devastating mass exodus.</p> <a href="https://www.theguardian.com/culture/2020/jun/18/world-spends-to-protect-culture-from-economic-ruin">Continue reading...</a>
+
+## World’s biggest liquid air battery starts construction in UK
+ - [https://www.theguardian.com/environment/2020/jun/18/worlds-biggest-liquid-air-battery-starts-construction-in-uk](https://www.theguardian.com/environment/2020/jun/18/worlds-biggest-liquid-air-battery-starts-construction-in-uk)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 05:00:41+00:00
+
+<p>Exclusive: project will store renewable energy and reduce climate-heating emissions</p><p>Construction is beginning on the world’s largest liquid air battery, which will store renewable electricity and reduce carbon emissions from fossil-fuel power plants.</p><p>The project near Manchester, UK, will use spare green energy to compress air into a liquid and store it. When demand is higher, the liquid air is released back into a gas, powering a turbine that puts the green energy back into the grid.</p> <a href="https://www.theguardian.com/environment/2020/jun/18/worlds-biggest-liquid-air-battery-starts-construction-in-uk">Continue reading...</a>
+
+## Hotels used to house rough sleepers during pandemic return to business
+ - [https://www.theguardian.com/society/2020/jun/18/hotels-used-to-house-rough-sleepers-during-pandemic-return-to-business](https://www.theguardian.com/society/2020/jun/18/hotels-used-to-house-rough-sleepers-during-pandemic-return-to-business)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 05:00:40+00:00
+
+<p>100 organisations sign letter and warn ‘people will die’ if homeless forced to return to streets</p><p>Two of the hotels block-booked to house rough sleepers during the pandemic have ceased doing so in preparation for returning to regular business, sparking concern about the fate of thousands of homeless people who have been put up in hotels by the government for almost three months.</p><p>Charities have warned that there is still no clear plan from the government on how hotel residents will be rehoused. A senior member of staff at St Mungo’s, one of the charities leading the Everyone In initiative, said that if they return to the streets “people will die”.</p> <a href="https://www.theguardian.com/society/2020/jun/18/hotels-used-to-house-rough-sleepers-during-pandemic-return-to-business">Continue reading...</a>
+
+## Lib Dems unveil £150bn green coronavirus recovery plan
+ - [https://www.theguardian.com/environment/2020/jun/18/lib-dems-unveil-150bn-green-coronavirus-recovery-plan](https://www.theguardian.com/environment/2020/jun/18/lib-dems-unveil-150bn-green-coronavirus-recovery-plan)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 05:00:40+00:00
+
+<p>Ed Davey says there is a ‘once-in-a-lifetime opportunity’ to reshape economy</p><p>The Liberal Democrats have unveiled proposals to invest £150bn in green projects over three years as a way to transform the economy in the wake of the coronavirus pandemic, warning that the government must act soon on the issue.</p><p>Ed Davey, the party’s interim leader, said there was “a once-in-a-lifetime opportunity” to both tackle potential mass unemployment due to Covid-19, and reshape the economy on more environmental lines.</p> <a href="https://www.theguardian.com/environment/2020/jun/18/lib-dems-unveil-150bn-green-coronavirus-recovery-plan">Continue reading...</a>
+
+## Nurse claims Met police wrongfully arrested her because she is black
+ - [https://www.theguardian.com/world/2020/jun/18/nurse-claims-met-police-wrongfully-arrested-her-because-she-black-neomi-bennett](https://www.theguardian.com/world/2020/jun/18/nurse-claims-met-police-wrongfully-arrested-her-because-she-black-neomi-bennett)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 05:00:40+00:00
+
+<p>Neomi Bennett’s legal complaint adds to calls for force to examine racism in its ranks</p><p>When police officers stopped Neomi Bennett late at night, they did not know anything about her – including that she had been awarded a British Empire Medal for services to nursing, and invited to Downing Street in recognition of her work. In her opinion, they simply saw a black woman sitting in a car and asked her to get out to be searched.</p><p>She said she was frightened and refused repeatedly to comply, demanding a female officer before she would leave the vehicle, video footage shows. After heated exchanges, male officers pulled Bennett out, arrested her and kept her in a cell for 18 hours, despite finding nothing incriminating.</p> <a href="https://www.theguardian.com/world/2020/jun/18/nurse-claims-met-police-wrongfully-arrested-her-because-she-black-neomi-bennett">Continue reading...</a>
+
+## Police in England and Wales taking 'excessive personal data' from mobile phones
+ - [https://www.theguardian.com/uk-news/2020/jun/18/police-in-england-and-wales-taking-excessive-personal-data-from-mobile-phones](https://www.theguardian.com/uk-news/2020/jun/18/police-in-england-and-wales-taking-excessive-personal-data-from-mobile-phones)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 05:00:40+00:00
+
+<p>Information commissioner says victims and witnesses could be put off reporting crimes and calls for new code</p><p>Police are extracting “excessive amounts of personal data” from the mobile phones of victims and witnesses during investigations and are in danger of discouraging the public from reporting crime, the Information Commissioner’s Office (ICO) has warned.</p><p>In a critical study of data extraction policies, the ICO concludes that procedures are inconsistent across forces in England and Wales and calls for a new statutory code of practice to provide “greater clarity”.</p> <a href="https://www.theguardian.com/uk-news/2020/jun/18/police-in-england-and-wales-taking-excessive-personal-data-from-mobile-phones">Continue reading...</a>
+
+## Shaun Tan: 'We’re not being mean to animals – but there is evil in obliviousness'
+ - [https://www.theguardian.com/books/2020/jun/18/shaun-tan-tales-from-the-inner-city-author-illustrator](https://www.theguardian.com/books/2020/jun/18/shaun-tan-tales-from-the-inner-city-author-illustrator)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 05:00:39+00:00
+
+<p>What would happen if bears sued humanity and fish left the sea? The author-illustrator of Tales from the Inner City on animal rights, veganism and winning the Kate Greenaway medal</p><p>In the days, weeks and months after the world went into lockdown, we marvelled as animals began to venture out into the habitats we had deserted. Schools of fish were suddenly visible in Venice’s cruise-ship-free waters. Flamingos flocked to Mumbai. A herd of fallow deer peacefully grazed on a London housing estate. Sheep <a href="https://www.itv.com/news/wales/2020-04-21/flock-of-sheep-visit-empty-mcdonald-s-restaurant-during-lockdown/">visited a locked-down Welsh McDonald’s</a>. “WE are the virus,” quickly became the most overrused meme of the pandemic.</p><p>Shaun Tan has been watching as the owls and possums in Melbourne’s suburbs have become more brazen, and feels troubled by it. For the last few years, he has been picking apart humanity’s complicated relationship with animals while writing and painting his book Tales from the Inner City, a beautiful and bleak anthology of stories, poems and artworks that pose unsettling questions about how we treat nonhuman life. Such as, what would we do if bears sued us for our crimes against the environment? What would we do if giant snails started performing slimy mating rituals all over our cities? What if the seas became so polluted that all the fish had to move into the sky?</p> <a href="https://www.theguardian.com/books/2020/jun/18/shaun-tan-tales-from-the-inner-city-author-illustrator">Continue reading...</a>
+
+## China says it will 'resolutely hit back' at US over sanctions law on Uighur abuses
+ - [https://www.theguardian.com/world/2020/jun/18/china-us-uighur-sanctions-pacific-aircraft-carriers](https://www.theguardian.com/world/2020/jun/18/china-us-uighur-sanctions-pacific-aircraft-carriers)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 04:16:11+00:00
+
+<p>Washington legislation allows US to freeze assets of Chinese officials it deems responsible for arbitrary detentions in Xinjiang region</p><p>Beijing has criticised a new US law that would sanction Chinese officials over the mass incarceration of Uighurs and other Muslim minorities, saying it “maliciously attacks” China’s policy in the Xinjiang region.</p><p>China will “resolutely hit back and the US will bear the burden of all subsequent consequences”, the Chinese foreign ministry said in a statement after US President Donald Trump signed the Uighur Human Rights Act into law on Wednesday.</p> <a href="https://www.theguardian.com/world/2020/jun/18/china-us-uighur-sanctions-pacific-aircraft-carriers">Continue reading...</a>
+
+## How cephalopod cells could take us one step closer to invisibility - podcast
+ - [https://www.theguardian.com/science/audio/2020/jun/18/how-cephalopod-cells-could-take-us-one-step-closer-to-invisibility-podcast](https://www.theguardian.com/science/audio/2020/jun/18/how-cephalopod-cells-could-take-us-one-step-closer-to-invisibility-podcast)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 04:00:38+00:00
+
+<p>Watching the mesmerising patterns of squids, octopuses and cuttlefish has been the catalyst for much of Dr Alon Gorodetsky’s recent work, including his attempts to mimic their ability to become transparent. <a href="https://www.theguardian.com/profile/nicola-davis">Nicola Davis</a> talks to him about a recent paper where he engineered mammalian cells to share these optic properties - paving the way for exciting potential applications</p> <a href="https://www.theguardian.com/science/audio/2020/jun/18/how-cephalopod-cells-could-take-us-one-step-closer-to-invisibility-podcast">Continue reading...</a>
+
+## World has six months to avert climate crisis, says energy expert
+ - [https://www.theguardian.com/environment/2020/jun/18/world-has-six-months-to-avert-climate-crisis-says-energy-expert](https://www.theguardian.com/environment/2020/jun/18/world-has-six-months-to-avert-climate-crisis-says-energy-expert)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 04:00:38+00:00
+
+<p> International Energy Agency chief warns of need to prevent post-lockdown surge in emissions</p><p>The world has only six months in which to change the course of the climate crisis and prevent a post-lockdown rebound in greenhouse gas emissions that would overwhelm efforts to stave off climate catastrophe, one of the world’s foremost energy experts has warned.</p><p>“This year is the last time we have, if we are not to see a <a href="https://www.theguardian.com/world/2020/may/20/heed-lessons-of-2008-crisis-experts-warn-global-leaders">carbon rebound</a>,” said Fatih Birol, executive director of the International Energy Agency. </p> <a href="https://www.theguardian.com/environment/2020/jun/18/world-has-six-months-to-avert-climate-crisis-says-energy-expert">Continue reading...</a>
+
+## New Zealand reports fresh coronavirus case as more quarantine breaches emerge
+ - [https://www.theguardian.com/world/2020/jun/18/new-zealand-coronavirus-defences-under-scrutiny-as-more-breaches-emerge](https://www.theguardian.com/world/2020/jun/18/new-zealand-coronavirus-defences-under-scrutiny-as-more-breaches-emerge)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 02:35:11+00:00
+
+<p>Third case flew from Pakistan via Doha and Melbourne, says director general of health as further reports surface of ill-advised birthday parties and funeral gatherings</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>A fresh coronavirus case has been reported in New Zealand as officials scramble to contain the fallout from Tuesday’s embarrassing quarantine breach and reports emerge of people disappearing after leaving isolation early.</p><p>Thursday’s case – the third to emerge this week after a 24-day streak of no cases – was a man in his 60s who arrived in Auckland from Pakistan on 13 June on Flight NZ124, transiting through Doha and Melbourne.</p> <a href="https://www.theguardian.com/world/2020/jun/18/new-zealand-coronavirus-defences-under-scrutiny-as-more-breaches-emerge">Continue reading...</a>
+
+## Children interrupting Zoom meetings could be the reboot corporate culture needed | Catharine Lumby
+ - [https://www.theguardian.com/commentisfree/2020/jun/18/children-interrupting-zoom-meetings-could-be-the-reboot-corporate-culture-needed](https://www.theguardian.com/commentisfree/2020/jun/18/children-interrupting-zoom-meetings-could-be-the-reboot-corporate-culture-needed)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 02:08:45+00:00
+
+<p>Until coronavirus, the invisible labour we all do at home was absent from our workplaces</p><p>The other day I was in a Zoom meeting with colleagues I don’t know that well. The tone was serious and formal when suddenly everything changed. The door behind the man chairing the meeting burst open and his toddler ran in, jumped on his lap and smeared Vegemite all over his computer screen.</p><p>It reminded me of the video that went viral in 2017. <a href="https://www.theguardian.com/media/2017/mar/14/robert-kelly-children-interrupt-live-bbc-interview-south-korea">Prof Robert Kelly was being interviewed live by the BBC</a> when his small daughter strutted into the room behind him. His toddler spotted the open door and followed his sister in with great delight. The clip ends with a frantic mother removing the kids.</p> <a href="https://www.theguardian.com/commentisfree/2020/jun/18/children-interrupting-zoom-meetings-could-be-the-reboot-corporate-culture-needed">Continue reading...</a>
+
+## Stranded at sea: the crew members trapped on cruise ships - podcast
+ - [https://www.theguardian.com/news/audio/2020/jun/18/stranded-at-sea-crew-members-trapped-on-cruise-ships](https://www.theguardian.com/news/audio/2020/jun/18/stranded-at-sea-crew-members-trapped-on-cruise-ships)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 02:00:36+00:00
+
+<p>Guardian US reporter Erin McCormick describes why thousands of crew are still stranded on cruise ships after coronavirus bought the industry to a standstill in March. Will Lees describes how it took him 82 days to get back to Canada while Perry, who hasn’t had a salary since March, is still stuck and doesn’t know when he will get home to his family in Mauritius </p><p>Guardian US reporter <strong>Erin McCormick</strong> tells <strong>Rachel Humphreys</strong> why up to 80,000 crew are still stranded on cruise ships amid the coronavirus crisis. While most cruise ship passengers have now made it back to land, many crew workers are trapped, quarantined in tiny cabins, some without pay. Crew members have said the experience has taken its toll on their mental health. Cruise companies have blamed strict rules from health authorities for not letting crew disembark. </p><p>Rachel hears from <strong>Will Lees</strong>, a Canadian who last October took a job as an art director on board the Norwegian Star cruise ship. When coronavirus hit in March, he found himself unable to get off. Shuffled between ships to await repatriation, he was eventually taken to Italy, where he was finally able to fly home. <strong>Perry</strong>*, a Mauritian crew member, is still stuck on his boat. With two cases of coronavirus onboard, Perry and fellow crew have been confined to their cabins for months. He does not know when he will be allowed home and is worried about how his family, who depend on his salary to support themselves, are managing. He has not been paid a wage since March. </p> <a href="https://www.theguardian.com/news/audio/2020/jun/18/stranded-at-sea-crew-members-trapped-on-cruise-ships">Continue reading...</a>
+
+## Pacific data cable not safe from China if Hong Kong included, says US
+ - [https://www.theguardian.com/technology/2020/jun/18/pacific-data-cable-not-safe-from-china-if-hong-kong-included-says-us](https://www.theguardian.com/technology/2020/jun/18/pacific-data-cable-not-safe-from-china-if-hong-kong-included-says-us)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 01:30:01+00:00
+
+<p>Justice department says ‘recent actions’ by China towards its territory indicate landing station could expose US communications to spying</p><p>The US government wants a high-capacity undersea data cable system proposed by Google and Facebook to bypass Hong Kong, citing potential national security concerns following China’s moves to exert greater control in the territory.</p><p>The Pacific Light Cable Network, pending approval by the federal communications commission (FCC), should connect the US, Taiwan and the Philippines but not go through Hong Kong as planned, a US Justice Department committee has recommended.</p> <a href="https://www.theguardian.com/technology/2020/jun/18/pacific-data-cable-not-safe-from-china-if-hong-kong-included-says-us">Continue reading...</a>
+
+## Donald Trump did not know UK had nuclear weapons, Bolton says in new book
+ - [https://www.theguardian.com/us-news/2020/jun/18/donald-trump-did-not-know-uk-had-nuclear-weapons-bolton-says-in-new-book](https://www.theguardian.com/us-news/2020/jun/18/donald-trump-did-not-know-uk-had-nuclear-weapons-bolton-says-in-new-book)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 01:27:00+00:00
+
+<p>US president reportedly said: ‘Oh, are you a nuclear power?’ during meeting with Theresa May in a way that was not a joke, Bolton recalls</p><ul><li><a href="https://www.theguardian.com/us-news/2020/jun/17/john-bolton-book-trump-china-accusations-dictators">Trump was willing to halt criminal investigations as ‘favor’ to dictators, Bolton book says</a></li><li><a href="https://www.theguardian.com/us-news/2020/jun/17/john-bolton-book-trump-china-dictators-saudi-arabia">Bolton book: eight of its most stunning claims</a></li></ul><p>Donald Trump was unaware that the UK had its own nuclear weapons, according to the former US national security adviser John Bolton.</p><p>The president’s lack of knowledge of the nuclear capabilities of his country’s closest ally is one of many examples Bolton gives of the president’s ignorance of geopolitics in his memoir <a href="https://www.theguardian.com/us-news/2020/jun/17/john-bolton-book-trump-china-accusations-dictators">The Room Where it Happened</a>.</p> <a href="https://www.theguardian.com/us-news/2020/jun/18/donald-trump-did-not-know-uk-had-nuclear-weapons-bolton-says-in-new-book">Continue reading...</a>
+
+## Bolton's book shows it's still possible to be shocked by Trump's presidency
+ - [https://www.theguardian.com/us-news/2020/jun/18/boltons-bombshell-book-shows-its-still-possible-to-be-shocked-by-trumps-presidency](https://www.theguardian.com/us-news/2020/jun/18/boltons-bombshell-book-shows-its-still-possible-to-be-shocked-by-trumps-presidency)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-06-18 00:53:11+00:00
+
+<p>Damaging revelations may disrupt Trump’s anti-China re-election strategy, but will it change any votes?</p><p>The conventional Washington wisdom before Wednesday afternoon was that it was hard to imagine anything that would still have the capacity to shock us about Donald Trump and his presidency.</p><p>Then John Bolton’s memoir leaked, with recollections of his time as national security adviser that appeared to have gone beyond parody and just kept travelling.</p> <a href="https://www.theguardian.com/us-news/2020/jun/18/boltons-bombshell-book-shows-its-still-possible-to-be-shocked-by-trumps-presidency">Continue reading...</a>
+

@@ -1,0 +1,359 @@
+# Source:The Guardian, URL:https://www.theguardian.com/rss, language:en-UK
+
+## It’s the Sids 2020! The complete review of La Liga's 2019-20 season | Sid Lowe
+ - [https://www.theguardian.com/football/blog/2020/jul/29/its-the-sids-2020-the-complete-review-of-la-liga-2019-20-season-sid-lowe-real-madrid-barcelona](https://www.theguardian.com/football/blog/2020/jul/29/its-the-sids-2020-the-complete-review-of-la-liga-2019-20-season-sid-lowe-real-madrid-barcelona)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 23:01:16+00:00
+
+<p>Madrid’s title, Barça’s slump, Iago Aspas being Iago Aspas. Looking back, one feeling recurs most: that was <em>this</em> season?</p><p>In the 101st minute of the 35th week, still playing way after midnight and well into summer in Europe’s hottest city, the two best things that can happen in football happened at the same time: a forward who had gone in goal saved a shot from a goalkeeper who had gone up front, stopping the man he had beaten <a href="https://www.youtube.com/watch?v=ljC-FyqurVs&amp;feature=onebox">from beating him back</a>.</p><p>It was that kind of season.</p> <a href="https://www.theguardian.com/football/blog/2020/jul/29/its-the-sids-2020-the-complete-review-of-la-liga-2019-20-season-sid-lowe-real-madrid-barcelona">Continue reading...</a>
+
+## Ofgem takes action on 'unscrupulous' UK energy brokers
+ - [https://www.theguardian.com/business/2020/jul/29/ofgem-takes-action-on-unscrupulous-uk-energy-brokers](https://www.theguardian.com/business/2020/jul/29/ofgem-takes-action-on-unscrupulous-uk-energy-brokers)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 23:01:16+00:00
+
+<p>Regulators’ plans aim to stop energy brokers overcharging small businesses and local bodies including care homes</p><p>The energy regulator has vowed to crack down on “unscrupulous” brokers that have overcharged charities, community sports clubs, and care homes for their energy by hiding their inflated commission charges.</p><p>Ofgem set out the plans to help prevent more than a million microbusinesses from being ripped-off by unregulated energy brokers after finding that some were paying thousands of pounds more than they needed to.</p> <a href="https://www.theguardian.com/business/2020/jul/29/ofgem-takes-action-on-unscrupulous-uk-energy-brokers">Continue reading...</a>
+
+## Talking Horses: Derby flop Kameko the best bet in Sussex Stakes
+ - [https://www.theguardian.com/sport/blog/2020/jul/29/talking-horses-derby-flop-kameko-the-best-bet-in-sussex-stakes-glorious-goodwood-horse-racing-tips](https://www.theguardian.com/sport/blog/2020/jul/29/talking-horses-derby-flop-kameko-the-best-bet-in-sussex-stakes-glorious-goodwood-horse-racing-tips)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 23:01:16+00:00
+
+<p>Kameko<strong> </strong>can collect at Glorious Goodwood and return to an upward curve, after failing to stay in the Derby last time</p><p>The Sussex Stakes has more strength in depth than any Group One contest in Europe so far this summer, as the 2,000 Guineas winners from Ireland and England go up against the battle-hardened Circus Maximus and late bloomer Mohaather, bidding to give Marcus Tregoning his first highest-grade win since Sir Percy took the Derby in 2006.</p><p>Mohaather was five lengths adrift of Circus Maximus in the Queen Anne Stakes at Royal Ascot but is fancied to finish in front of him on Wednesday after showing significant improvement to win the Summer Mile last time out.</p> <a href="https://www.theguardian.com/sport/blog/2020/jul/29/talking-horses-derby-flop-kameko-the-best-bet-in-sussex-stakes-glorious-goodwood-horse-racing-tips">Continue reading...</a>
+
+## Huge growth in free school meals urged to tackle food poverty crisis
+ - [https://www.theguardian.com/society/2020/jul/29/huge-growth-in-free-school-meals-urged-to-tackle-food-poverty-crisis](https://www.theguardian.com/society/2020/jul/29/huge-growth-in-free-school-meals-urged-to-tackle-food-poverty-crisis)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 23:01:15+00:00
+
+<p>Report warns of the looming impact of the climate emergency and hits out at faux-healthy sweets</p><p>Up to 1.5 million more children in England should get free school meals to help tackle a growing crisis of food poverty and unhealthy eating, according to a blueprint billed as the first national food strategy since war rationing.</p><p>The government-commissioned report also warns that the climate crisis will be the source of the next food emergency, demands more than £2bn for farmers to improve the countryside, and condemns faux-healthy food labelling by big brands - including the idea of “healthy” Marks &amp; Spencer Percy Pig sweets.</p> <a href="https://www.theguardian.com/society/2020/jul/29/huge-growth-in-free-school-meals-urged-to-tackle-food-poverty-crisis">Continue reading...</a>
+
+## UK must ensure medicines replenished for Covid-19 second wave
+ - [https://www.theguardian.com/uk-news/2020/jul/29/uk-must-ensure-medicines-stockpile-replenished-for-covid-19-second-wave](https://www.theguardian.com/uk-news/2020/jul/29/uk-must-ensure-medicines-stockpile-replenished-for-covid-19-second-wave)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 23:01:15+00:00
+
+<p>The trade committee urged ministers to develop “parallel supply chains” as a solution</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>Britain needs to ensure its <a href="https://www.theguardian.com/commentisfree/2020/mar/19/will-coronavirus-lead-to-drug-shortages-for-the-nhs">stockpile of medicines is replenished</a> to deal with a <a href="https://www.theguardian.com/world/2020/jul/27/europe-braces-for-second-wave-of-coronavirus">second wave of coronavirus</a> and any shocks to a supply chain dominated by China and India, the trade committee warned in a report released today.</p><p>The cross party committee said the pandemic had revealed that 70% of the active ingredients used in pharmaceuticals in the UK are made in China – while <a href="https://www.theguardian.com/world/2020/mar/12/coronavirus-triggers-sharp-rise-in-price-of-pain-relief-medication">India manufactured “virtually all”</a> the paracetamol in British shops.</p> <a href="https://www.theguardian.com/uk-news/2020/jul/29/uk-must-ensure-medicines-stockpile-replenished-for-covid-19-second-wave">Continue reading...</a>
+
+## Scientists find out why leaves on the track causes travel chaos
+ - [https://www.theguardian.com/uk-news/2020/jul/29/scientists-find-out-why-leaves-on-the-track-causes-travel-chaos](https://www.theguardian.com/uk-news/2020/jul/29/scientists-find-out-why-leaves-on-the-track-causes-travel-chaos)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 23:01:14+00:00
+
+<p>Leaf tannins dissolve metal in train tracks, which reduces friction between steel surfaces</p><p>Leaves on the line are a notorious headache for commuters and train companies alike, <a href="https://www.sheffield.ac.uk/news/nr/leaves-on-the-line-railways-solutions-delays-dry-ice-how-to-remove-1.867967">causing costly delays</a>. Now scientists say they have unpicked why fallen foliage makes rails so slippery.</p><p>When leaves are crushed against the tracks, they form a black layer that drastically reduces friction between train wheels and the rails – a situation <a href="https://www.networkrail.co.uk/running-the-railway/looking-after-the-railway/delays-explained/leaves/">Network Rail has described</a> as “the black ice of the railway”. But the make up of this slippery layer has been something of a puzzle.</p> <a href="https://www.theguardian.com/uk-news/2020/jul/29/scientists-find-out-why-leaves-on-the-track-causes-travel-chaos">Continue reading...</a>
+
+## Four people charged with murder after body found in Cumbria
+ - [https://www.theguardian.com/uk-news/2020/jul/28/four-people-charged-with-after-body-was-found-in-cumbria](https://www.theguardian.com/uk-news/2020/jul/28/four-people-charged-with-after-body-was-found-in-cumbria)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 22:37:31+00:00
+
+<p>Body of Lee McKnight, 26, from Carlisle discovered in river Caldew on Friday</p><p>Four people have been charged with murder after the body of a man was found in a river.</p><p>Cumbria police were contacted at 5.24am on Friday to a report of a body found in the river Caldew, formally identified as Lee McKnight, 26, from Carlisle.</p> <a href="https://www.theguardian.com/uk-news/2020/jul/28/four-people-charged-with-after-body-was-found-in-cumbria">Continue reading...</a>
+
+## Hopes raised for early blood test to help fight Alzheimer’s disease
+ - [https://www.theguardian.com/society/2020/jul/28/progress-towards-early-test-for-alzheimers-say-scientists](https://www.theguardian.com/society/2020/jul/28/progress-towards-early-test-for-alzheimers-say-scientists)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 22:19:37+00:00
+
+<p>Studies measuring levels of the protein tau in blood offer hope of developing treatments</p><p>Scientists say they have made progress towards a test for Alzheimer’s that could help researchers in the hunt for treatments for the disease.</p><p>Several studies, presented at a conference in Chicago, showed it was possible to measure the levels of a <a href="https://www.theguardian.com/science/2020/jan/01/protein-tangles-in-alzheimers-patients-could-help-predict-brain-shrinkage">protein called tau in the blood</a>. Tau and another protein called amyloid have been targets for developing tests and treatments for Alzheimer’s for many years. They form clusters known as tangles and plaques in the brain that are well-known features of the disease.</p> <a href="https://www.theguardian.com/society/2020/jul/28/progress-towards-early-test-for-alzheimers-say-scientists">Continue reading...</a>
+
+## Verdict that kept Manchester City in Europe delivers some glancing blows
+ - [https://www.theguardian.com/football/2020/jul/28/verdict-that-kept-manchester-city-in-europe-delivers-some-glancing-blows-cas-judgment](https://www.theguardian.com/football/2020/jul/28/verdict-that-kept-manchester-city-in-europe-delivers-some-glancing-blows-cas-judgment)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 22:13:28+00:00
+
+<p>Cas judgment outlines reasons for finding in favour of City, but shows the club’s case wasn’t as ‘irrefutable’ as it made out</p><p>So Manchester City’s hierarchy won the war they waged furiously against European football’s governing body Uefa, but the reality of the victory does not quite match the claims they made during their long campaign.</p><p>The panel at the court of arbitration for sport decided 2-1 in City’s favour to overturn the comprehensive guilty finding and two-year Champions League ban imposed by Uefa’s Club Financial Control Body (CFCB) in February, but <a href="http://" title="">the published judgment</a> nevertheless exposes a core of contradictions in the club’s case. In May 2019, after the CFCB’s “investigatory chamber” (IC) <a href="https://www.theguardian.com/football/2019/may/16/manchester-city-hit-out-uefa-investigation-financial-fair-play-champions-league-ban" title="">referred charges to the “adjudicatory chamber”</a> (AC) that City – owned by Sheikh Mansour of the Abu Dhabi ruling family – overstated sponsorships by the state airline Etihad and telecoms giant Etisalat, the <a href="https://www.mancity.com/news/club-news/club-news/2019/may/man-city-club-statement-uefa-response" title="">club publicly accused</a> the IC’s chairman, Yves Leterme, of bad faith and “a basic lack of due process”.</p> <a href="https://www.theguardian.com/football/2020/jul/28/verdict-that-kept-manchester-city-in-europe-delivers-some-glancing-blows-cas-judgment">Continue reading...</a>
+
+## 'Be very careful, Kyle': Dan Evans unhappy after outclassing Edmund
+ - [https://www.theguardian.com/sport/2020/jul/28/johanna-konta-recovers-from-a-set-down-to-beat-katie-boulter](https://www.theguardian.com/sport/2020/jul/28/johanna-konta-recovers-from-a-set-down-to-beat-katie-boulter)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 22:07:39+00:00
+
+<ul><li>Evans upset with Edmund’s reaction to Battle of Brits defeat</li><li>Johanna Konta bounces back to beat Katie Boulter</li></ul><p>The Battle of the Brits came alive on Tuesday evening as Dan Evans outclassed Kyle Edmund 6-4, 6-4 to win a spicy duel at the National Tennis Centre in Roehampton. Earlier in the day, Johanna Konta took an important step forward by recovering to defeat Katie Boulter 2-6, 7-6 (5), 10-6.</p><p>A month after Evans ousted Edmund to little fanfare in the first Battle of the Brits, the second edition was a testament to the power of crowds. Surrounded only by their teammates, the pride of the top two male British players came to the fore. From the opening game, both punctuated their victorious points with loud cheers, seemingly determined to silence the other.</p> <a href="https://www.theguardian.com/sport/2020/jul/28/johanna-konta-recovers-from-a-set-down-to-beat-katie-boulter">Continue reading...</a>
+
+## 'He never yielded': mourners pay respects to John Lewis outside Capitol
+ - [https://www.theguardian.com/us-news/2020/jul/28/john-lewis-capitol-casket-outside-in-state](https://www.theguardian.com/us-news/2020/jul/28/john-lewis-capitol-casket-outside-in-state)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 21:51:25+00:00
+
+<p>Kept outdoors by coronavirus threat, hundreds view casket of congressman and civil rights icon</p><p>Born in Citronelle, Alabama, in the early 1950s, Frankie Blevins grew up with the cruelties imposed by the Jim Crow south: racially segregated drinking fountains, restrooms and restaurants.</p><p>On her family’s first road trip, her mother packed food to sustain them for the entire trip, knowing they would not be allowed to stop for provisions along the way.</p> <a href="https://www.theguardian.com/us-news/2020/jul/28/john-lewis-capitol-casket-outside-in-state">Continue reading...</a>
+
+## Anthony Hamilton fears for health after 'ridiculous' Crucible decision on fans
+ - [https://www.theguardian.com/sport/2020/jul/28/anthony-hamilton-fears-for-health-after-ridiculous-crucible-decision-on-fans](https://www.theguardian.com/sport/2020/jul/28/anthony-hamilton-fears-for-health-after-ridiculous-crucible-decision-on-fans)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 21:30:13+00:00
+
+<ul><li>World Snooker Championship will permit small audiences</li><li>‘Three hundred people for 17 days I think is an absolute risk’</li></ul><p>Anthony Hamilton will fear for his health when he steps out at the Crucible due to what he described as the “ridiculous” decision to allow a limited audience at the World Snooker Championship this year.</p><p>Hamilton, who has asthma, has blasted the move to make the championship, which starts on Friday, the only indoor event among three pilots designed to smooth the way for spectators to return after the coronavirus pandemic.</p> <a href="https://www.theguardian.com/sport/2020/jul/28/anthony-hamilton-fears-for-health-after-ridiculous-crucible-decision-on-fans">Continue reading...</a>
+
+## Tourist hotspots hit hardest in UK by Covid-19 unemployment
+ - [https://www.theguardian.com/business/2020/jul/28/tourist-hotspots-hit-hardest-in-uk-by-covid-19-unemployment](https://www.theguardian.com/business/2020/jul/28/tourist-hotspots-hit-hardest-in-uk-by-covid-19-unemployment)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 21:30:13+00:00
+
+<p>Analysis by Labour finds percentage rise of benefit claimants far outstrips other areas </p><p>Tourist hotspots across the UK are bearing the brunt of the ailing jobs market, an analysis of data on unemployment benefit claims since the Covid-19 lockdown has shown.</p><p>Figures from Labour show that in areas heavily reliant on tourism the rise in the number of people seeking unemployment benefits in recent months is an average of 65 percentage points higher than in other areas. The data has prompted Keir Starmer to warn that holiday towns are facing a jobs crisis.</p> <a href="https://www.theguardian.com/business/2020/jul/28/tourist-hotspots-hit-hardest-in-uk-by-covid-19-unemployment">Continue reading...</a>
+
+## Prodigal Son review – where's Hannibal Lecter when you need him?
+ - [https://www.theguardian.com/tv-and-radio/2020/jul/28/prodigal-son-review-michael-sheen-fbi-profiler](https://www.theguardian.com/tv-and-radio/2020/jul/28/prodigal-son-review-michael-sheen-fbi-profiler)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 21:00:12+00:00
+
+<p>Severed heads in jars! A copycat killer! A traumatised son-turned-FBI profiler! This preposterous drama has it all – if what you’re looking for is an off-brand Silence of the Lambs</p><p>When it comes to a show predicated on the notion that the child of a serial killer grows up to be an FBI investigator and is eventually forced back into contact with his father by the advent of a copycat killer, I know that the main thing on my mind should not be that the title of Prodigal Son (Sky One) is wrong. But it is, so let me just state for the record: prodigal means “wasteful, profligate, an abuser of grace who thinks nothing of spaffing his unearned riches up the wall and then returning home and learning nothing because his father greets him with open arms and kills a fatted calf to celebrate”. It does not simply mean “returning after a long time away”. And especially not after a long time working hard to distance oneself from one’s ghastly formative years as the offspring of Dr Martin Whitly, AKA “The Surgeon”, who savagely yet skilfully butchered at least 23 people. </p><p>Then again, perhaps it is all of a piece with a drama that at no point appears to know quite what it is doing. I wish it did, yet why should our showrunners break the mood of 2020 with unwarranted demonstrations of competence or signs of an active intelligence? To almost quote <a href="https://www.theguardian.com/film/2019/oct/14/hasta-la-vista-arnie-sarah-connor-is-the-terminators-true-cultural-icon">Sarah Connor</a> – in an insane world, perhaps Prodigal Son’s gallimaufry of gothic-lite grotesqueries is the sanest choice.</p> <a href="https://www.theguardian.com/tv-and-radio/2020/jul/28/prodigal-son-review-michael-sheen-fbi-profiler">Continue reading...</a>
+
+## 'Jimmy is my idol': Broad says he is improving with age like Anderson
+ - [https://www.theguardian.com/sport/2020/jul/28/stuart-broad-says-hes-improving-with-age-after-501st-test-wicket](https://www.theguardian.com/sport/2020/jul/28/stuart-broad-says-hes-improving-with-age-after-501st-test-wicket)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 18:50:28+00:00
+
+<ul><li>The 34-year-old joins 500 club in series win over West Indies </li><li>‘Compare my last 18 months to my career ... it’s way better’</li></ul><p>Stuart Broad plans to follow his “idol” Jimmy Anderson by ploughing on in Test cricket for some time yet, after he burst through the 500-wicket barrier as the driving force behind <a href="https://www.theguardian.com/sport/2020/jul/28/england-west-indies-third-test-day-five-match-report">England’s 2-1 series victory</a> against West Indies.</p><p>Broad had questioned where his career was going after the 34-year-old was left out of the first Test in Southampton. But by the end of a second convincing win for Joe Root’s side in Manchester – a 269-run victory sealed with his 10th victim of the match – such thoughts had dissipated and with good reason.</p> <a href="https://www.theguardian.com/sport/2020/jul/28/stuart-broad-says-hes-improving-with-age-after-501st-test-wicket">Continue reading...</a>
+
+## Post-Brexit checks for Northern Ireland 'may deter large GB firms'
+ - [https://www.theguardian.com/uk-news/2020/jul/28/post-brexit-checks-for-northern-ireland-may-deter-british-firms-warns-lord-kerr](https://www.theguardian.com/uk-news/2020/jul/28/post-brexit-checks-for-northern-ireland-may-deter-british-firms-warns-lord-kerr)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 18:44:51+00:00
+
+<p>Lord Kerr says extra food-related costs may cause firms like Tesco to abandon region</p><p>Concerns that big British businesses, such as Tesco, will be deterred from trading in Northern Ireland after Brexit have been raised in the House of Lords.</p><p>Lord Kerr, the architect of article 50 which enabled the UK to leave the EU, has said the special arrangements put in place to avoid a border on the island of Ireland may be a fatal trade barrier for some companies.</p> <a href="https://www.theguardian.com/uk-news/2020/jul/28/post-brexit-checks-for-northern-ireland-may-deter-british-firms-warns-lord-kerr">Continue reading...</a>
+
+## Wiley's Facebook and Instagram accounts deactivated after antisemitic remarks
+ - [https://www.theguardian.com/music/2020/jul/28/wileys-facebook-and-instagram-accounts-deactivated-after-antisemitic-remarks](https://www.theguardian.com/music/2020/jul/28/wileys-facebook-and-instagram-accounts-deactivated-after-antisemitic-remarks)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 18:01:30+00:00
+
+<p>Move comes following criticism from Priti Patel and UK’s chief rabbi over social media companies’ inaction </p><p>Facebook has announced that it has deactivated Wiley’s Facebook and Instagram accounts, after the grime MC posted a series of antisemitic comments on his social media accounts.</p><p>“There is no place for hate speech on Facebook and Instagram,” a company spokesperson said. “After initially placing Wiley’s accounts in a seven day block, we have now removed both his Facebook and Instagram accounts for repeated violations of our policies.”</p> <a href="https://www.theguardian.com/music/2020/jul/28/wileys-facebook-and-instagram-accounts-deactivated-after-antisemitic-remarks">Continue reading...</a>
+
+## MPs may have been misled over BAME voter ID claims
+ - [https://www.theguardian.com/politics/2020/jul/28/mps-may-have-been-misled-over-bame-voter-id-claims](https://www.theguardian.com/politics/2020/jul/28/mps-may-have-been-misled-over-bame-voter-id-claims)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 18:00:09+00:00
+
+<p>Electoral Commission says data that proves voter ID doesn’t discriminate against BAME people doesn’t exist</p><p>The government may have misled MPs over mandatory voter ID, after it was revealed the data cited by a minister to prove the system does not discriminate against BAME voters does not exist.</p><p>Labour has said the disconnect between the Cabinet Office’s statement and the Electoral Commission’s evidence will raise questions over whether the government has examined any evidence on the impact on ethnic minority voters of <a href="https://www.theguardian.com/politics/2020/apr/23/uk-voter-id-plan-disenfranchises-poor-court-of-appeal-told">requiring voters to bring ID in order to vote</a>.</p> <a href="https://www.theguardian.com/politics/2020/jul/28/mps-may-have-been-misled-over-bame-voter-id-claims">Continue reading...</a>
+
+## Leighton Baines, the ego-free Evertonian, retires on his own unselfish terms | Andy Hunter
+ - [https://www.theguardian.com/football/2020/jul/28/leighton-baines-everton-retires-unselfish-terms](https://www.theguardian.com/football/2020/jul/28/leighton-baines-everton-retires-unselfish-terms)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 18:00:08+00:00
+
+<p>Left-back played 420 games for his club and 30 for England before he departed in the same understated way he carried himself through 13 seasons at Goodison</p><p>A brief pause at the top of the tunnel steps, one quick glance back at a deserted Goodison Park, and then Leighton Baines was gone. Thirteen years and 420 games as an Everton player but no fans or fanfare to mark a retirement that caught many at his own club unaware. This was no way for a magnificent club man to bow out, yet it was strangely befitting of a defender who always delivered on his unassuming and stylish terms.</p><p>Baines’s farewell on Sunday was a 20-minute appearance as a substitute against Bournemouth that featured a goal-denying tackle on Callum Wilson and more intensity than most of the passengers in the <a href="https://www.theguardian.com/football/2020/jul/26/everton-bournemouth-premier-league-match-report">Everton team could muster in a 3-1 defeat</a>. It was a final reminder of why Carlo Ancelotti had asked the 35-year-old to stay on for one more season as back-up to Lucas Digne.</p> <a href="https://www.theguardian.com/football/2020/jul/28/leighton-baines-everton-retires-unselfish-terms">Continue reading...</a>
+
+## 'Shame on you': Democrats attack Barr for carrying out Trump's agenda
+ - [https://www.theguardian.com/us-news/2020/jul/28/william-barr-hearing-democrats-federal-agents-trump](https://www.theguardian.com/us-news/2020/jul/28/william-barr-hearing-democrats-federal-agents-trump)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 17:46:49+00:00
+
+<p>Democrats clashed with attorney general over deployment of federal agents to US cities ahead of presidential election</p><p>Democrats clashed angrily with Donald Trump’s attorney general on Tuesday, over the aggressive deployment of federal agents to US cities three months before a presidential election.</p><p>William Barr faced a difficult grilling during a hearing in Congress that proved combative, contentious, and indicative of Washington’s bitter divide.</p> <a href="https://www.theguardian.com/us-news/2020/jul/28/william-barr-hearing-democrats-federal-agents-trump">Continue reading...</a>
+
+## Depp libel trial reveals problems of proof in domestic violence cases
+ - [https://www.theguardian.com/film/2020/jul/28/johnny-depp-libel-trial-reveals-problems-of-proof-in-domestic-violence-cases](https://www.theguardian.com/film/2020/jul/28/johnny-depp-libel-trial-reveals-problems-of-proof-in-domestic-violence-cases)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 17:30:41+00:00
+
+<p>When two people give opposing accounts of private events, even top legal teams struggle to establish the truth<br /></p><p>Despite being a libel case, Depp v News Group Newspapers Ltd &amp; Another felt more like a criminal trial at the Old Bailey, or a domestic violence hearing in the family courts.</p><p>Both Sasha Wass QC, for NGN, and Eleanor Laws QC, for Depp, who carried out the respective cross-examinations of the actors and former spouses Johnny Depp and Amber Heard were, for example, drafted in because of their expertise in the criminal courts.</p> <a href="https://www.theguardian.com/film/2020/jul/28/johnny-depp-libel-trial-reveals-problems-of-proof-in-domestic-violence-cases">Continue reading...</a>
+
+## Unions call for face masks to be provided for free to all workers
+ - [https://www.theguardian.com/world/2020/jul/28/unions-call-for-face-masks-to-be-provided-for-free-to-all-workers](https://www.theguardian.com/world/2020/jul/28/unions-call-for-face-masks-to-be-provided-for-free-to-all-workers)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 17:05:09+00:00
+
+<p>Unite, GMB and Community say employers should pay if staff need to wear masks at work</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>Surgical-grade face masks must be provided for all workers who need to wear them including those on the daily commute, unions have said, as the government encourages people to go back to work in person from 1 August.</p><p>Unite, the GMB and Community have all said that where masks are believed to be helpful at work, they should be provided employers and workers should not have to foot the bill themselves.</p> <a href="https://www.theguardian.com/world/2020/jul/28/unions-call-for-face-masks-to-be-provided-for-free-to-all-workers">Continue reading...</a>
+
+## Kansai Yamamoto obituary
+ - [https://www.theguardian.com/fashion/2020/jul/28/kansai-yamamoto-obituary](https://www.theguardian.com/fashion/2020/jul/28/kansai-yamamoto-obituary)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 17:04:32+00:00
+
+Fashion designer who created memorable stage costumes for stars including David Bowie, Elton John and Lady Gaga<p>The Japan that Kansai Yamamoto showed the world in 1971 came as a shock: not subtle, tasteful, crafted of natural materials and worn by time. It was the Japan of souvenir shops outside popular shrines, stocked with tat in synthetic lamé; of firemen’s demon tattoos; and of woodblock prints of purple-clad ghosts. Yamamoto learned in time that these continued the five-century-old Japanese style of <em>basara</em> – meaning “way too much” and “wild rebel” – but when he was growing up in the 1950s they simply reflected a working-class taste, rougher than the country’s sober traditional aesthetics and westernised postwar aspirations.</p><p>The first major customer of Yamamoto, who has died aged 76, was luckily a westerner who got the appeal of basara and even knew quite a lot about Japanese kabuki theatre: <a href="https://www.theguardian.com/music/2016/jan/11/obituary-david-bowie" title="">David Bowie</a>. Yamamoto busted out of Japan in 1971 to show an extraordinary collection at London fashion week of theatrical garments, gaudy graphic makeup somewhere between kabuki and Amazonian tribal, and comic-book presentation. London enjoyed his pop-art oriental exotic style, and his women’s clothes were stocked in the boutique Boston 151 on the King’s Road, Chelsea.</p> <a href="https://www.theguardian.com/fashion/2020/jul/28/kansai-yamamoto-obituary">Continue reading...</a>
+
+## Scientists successfully revive 100m-year-old microbes from the sea
+ - [https://www.theguardian.com/environment/2020/jul/28/scientists-successfully-revived-mesozoic-era-microbes-from-the-sea](https://www.theguardian.com/environment/2020/jul/28/scientists-successfully-revived-mesozoic-era-microbes-from-the-sea)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 16:49:55+00:00
+
+<p>Microbes had lain dormant at the bottom of the sea since the age of the dinosaurs </p><p>Scientists have successfully revived microbes that had lain dormant at the bottom of the sea since the age of the dinosaurs, allowing the organisms to eat and even multiply after eons in the deep.</p><p>Their research sheds light on the remarkable survival power of some of Earth’s most primitive species, which can exist for tens of millions of years with barely any oxygen or food before springing back to life in the lab.</p> <a href="https://www.theguardian.com/environment/2020/jul/28/scientists-successfully-revived-mesozoic-era-microbes-from-the-sea">Continue reading...</a>
+
+## Bristol NHS worker speaks after racially aggravated hit and run
+ - [https://www.theguardian.com/uk-news/2020/jul/28/bristol-nhs-worker-speaks-after-racially-aggravated-hit-and-run-car-deliberately-driven](https://www.theguardian.com/uk-news/2020/jul/28/bristol-nhs-worker-speaks-after-racially-aggravated-hit-and-run-car-deliberately-driven)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 16:34:45+00:00
+
+<p>Appeal for witnesses as victim faces long recovery after car was deliberately driven at him</p><p>An NHS worker has been seriously injured in a racially aggravated hit and run close to the hospital in Bristol where he is based, police have said.</p><p>The 21-year-old man suffered a broken leg, nose and cheekbone, and will require reconstructive surgery. Police said the victim, who is facing six months of rehabilitation, could have been killed.</p> <a href="https://www.theguardian.com/uk-news/2020/jul/28/bristol-nhs-worker-speaks-after-racially-aggravated-hit-and-run-car-deliberately-driven">Continue reading...</a>
+
+## Target for Premier League with partial crowds is 1 October, says sports minister
+ - [https://www.theguardian.com/football/2020/jul/28/target-premier-league-crowds-1-october-sports-minister-nigel-huddleston](https://www.theguardian.com/football/2020/jul/28/target-premier-league-crowds-1-october-sports-minister-nigel-huddleston)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 16:17:33+00:00
+
+<ul><li>Nigel Huddleston: ‘I would be surprised if that date was moved’</li><li>Community Shield and WSL could be test events<br /></li></ul><p>The government has dashed hopes fans could be back inside stadiums for the start of the new Premier League season on 12 September with the sports minister, Nigel Huddleston, confirming officials are working towards 1 October.</p><p>A series of test events have started to be trialled in cricket grounds – with 1,000 fans being allowed to watch <a href="https://www.theguardian.com/sport/2020/jul/26/its-lovely-to-be-here-county-cricket-fans-return-to-the-oval">Surrey play Middlesex last Sunday</a>. The world snooker championship and the final day of Glorious Goodwood will follow this week.</p> <a href="https://www.theguardian.com/football/2020/jul/28/target-premier-league-crowds-1-october-sports-minister-nigel-huddleston">Continue reading...</a>
+
+## Send a tip on a UK river walk for the chance to win a £200 holiday voucher
+ - [https://www.theguardian.com/travel/2020/jul/28/send-a-tip-uk-river-walk-win-200-pound-holiday-voucher](https://www.theguardian.com/travel/2020/jul/28/send-a-tip-uk-river-walk-win-200-pound-holiday-voucher)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 16:04:03+00:00
+
+<p>Send us your very own tale of the riverbank and you could win a great prize from Canopy &amp; Stars</p><p>If you can never step into the same river twice, it follows that you won’t walk along the same bank twice. Which is probably why riverside strolls are so alluring: the waters changing with the weather, time of day and season – rushing or babbling, smooth or sparkling.</p><p>This week we’d love to hear about your favourite river walk in the UK, be it through a historic city, along a dramatic valley or just in idyllic countryside. Try to be as specific as you can, with starting point, length and type of terrain, plus a website if there is one, and<strong> keep your tip to about 100 words</strong>.</p> <a href="https://www.theguardian.com/travel/2020/jul/28/send-a-tip-uk-river-walk-win-200-pound-holiday-voucher">Continue reading...</a>
+
+## Almost 3 billion animals affected by Australian bushfires – video report
+ - [https://www.theguardian.com/australia-news/video/2020/jul/28/almost-3-billion-animals-affected-by-australian-bushfires-video-report](https://www.theguardian.com/australia-news/video/2020/jul/28/almost-3-billion-animals-affected-by-australian-bushfires-video-report)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 15:49:08+00:00
+
+<p><b>WARNING: GRAPHIC CONTENT OF DEAD ANIMALS</b></p><p>Nearly 3 billion animals have been killed or displaced by the devastating 2019-2020 bushfire season, according to scientists who have revealed for the first time the scale of the impact on the country’s native wildlife. An estimated 143 million mammals, 180 million birds, 51 million frogs and a staggering 2.5 billion reptiles were affected by the fires that burned millions of hectares across Australia</p><ul><li><a href="https://www.theguardian.com/environment/2020/jul/28/almost-3-billion-animals-affected-by-australian-megafires-report-shows-aoe">Almost 3 billion animals affected by Australian bushfires, report shows</a></li></ul> <a href="https://www.theguardian.com/australia-news/video/2020/jul/28/almost-3-billion-animals-affected-by-australian-bushfires-video-report">Continue reading...</a>
+
+## Restaurants: are you hoping for a 'Eat Out to Help Out' boost?
+ - [https://www.theguardian.com/food/2020/jul/28/restaurants-are-you-hoping-for-a-eat-out-to-help-out-boost](https://www.theguardian.com/food/2020/jul/28/restaurants-are-you-hoping-for-a-eat-out-to-help-out-boost)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 15:10:45+00:00
+
+<p>For three days each week during August, eateries which have signed up to the government initiative will offer half price food</p><p>For every Monday, Tuesday and Wednesday throughout August, a number of restaurants and eateries which have signed up to the “Eat Out to Help Out” government initiative will be offering their food at half price.</p><p>They will have the discount reimbursed by the Treasury, as minister seek to encourage people to return to high streets in an effort to reboot the economy.</p> <a href="https://www.theguardian.com/food/2020/jul/28/restaurants-are-you-hoping-for-a-eat-out-to-help-out-boost">Continue reading...</a>
+
+## Clapped out of ICU, passed away days later: the secondary impact of Covid-19
+ - [https://www.theguardian.com/uk-news/2020/jul/28/clapped-out-of-icu-dead-days-later-secondary-impact-of-covid-19-stroke-clots-coronavirus](https://www.theguardian.com/uk-news/2020/jul/28/clapped-out-of-icu-dead-days-later-secondary-impact-of-covid-19-stroke-clots-coronavirus)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 14:32:10+00:00
+
+<p>Dr Rudresh Pathak’s fatal stroke highlights brain complications and blood clots associated with severe cases</p><ul><li><a href="https://viewer.gutools.co.uk/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://viewer.gutools.co.uk/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>When Rudresh Pathak finally left intensive care after 81 days, staff at Pilgrim hospital in Boston, Lincolnshire – where he had worked as a consultant psychiatrist for nearly three decades – lined the corridors to applaud.</p><p>Though visibly weak, the 65-year-old, who is thought to be one of a few patients in the UK to have remained on a ventilator with Covid-19 for so long, clapped along.</p> <a href="https://www.theguardian.com/uk-news/2020/jul/28/clapped-out-of-icu-dead-days-later-secondary-impact-of-covid-19-stroke-clots-coronavirus">Continue reading...</a>
+
+## Madeleine McCann: German police search garden in Hanover
+ - [https://www.theguardian.com/world/2020/jul/28/madeleine-mccann-german-police-search-garden-in-hanover](https://www.theguardian.com/world/2020/jul/28/madeleine-mccann-german-police-search-garden-in-hanover)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 14:31:55+00:00
+
+<p>German officials had recently identified 43-year-old man as suspect in 2007 disappearance<br /></p><p>German police are searching an allotment plot on the outskirts of the northern city of Hanover in connection with their investigation of a suspect in the disappearance of Madeleine McCann.</p><p>A small excavator is being used to clear the plot and police officers are combing the ground with rakes and shovels, according to footage shown on German media.</p> <a href="https://www.theguardian.com/world/2020/jul/28/madeleine-mccann-german-police-search-garden-in-hanover">Continue reading...</a>
+
+## How to use up leftover treacle, molasses and syrup
+ - [https://www.theguardian.com/food/2020/jul/28/how-to-use-up-leftover-treacle-molasses-and-syrup](https://www.theguardian.com/food/2020/jul/28/how-to-use-up-leftover-treacle-molasses-and-syrup)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 13:00:01+00:00
+
+<p>Inspired ways to use up leftover treacle, molasses and syrup</p><ul><li>Do you have a culinary dilemma? Email <a href="mailto:feast@theguardian.com">feast@theguardian.com</a></li></ul><p><strong>I find myself buying molasses, syrup and treacle for specific things, only to be left with half-empty bottles of sticky things. What can I do with them?<br /></strong><em><strong>Lily, Greenford, Middlesex</strong></em></p><p><a href="https://www.theguardian.com/profile/itamar-srulovich">Itamar Srulovich</a>, one half of the couple behind <a href="https://www.theguardian.com/food/2019/nov/16/honey-and-co-middle-eastern-sweet-bakes-baklava-basbusa-ketmer">Honey &amp; Co</a>, is the master of squeaky-clean molasses receptacles. “We have a fatwa on half-used bottles,” he says. “Everything that can be done, we’ve done.” This shouldn’t be at all surprising, considering how versatile fruit molasses – date, grape, pomegranate – is.</p> <a href="https://www.theguardian.com/food/2020/jul/28/how-to-use-up-leftover-treacle-molasses-and-syrup">Continue reading...</a>
+
+## People returning to UK from Spain decry 'unfair' coronavirus quarantine
+ - [https://www.theguardian.com/world/2020/jul/28/uk-holidaymakers-returning-from-spain-decry-unfair-coronavirus-quarantine](https://www.theguardian.com/world/2020/jul/28/uk-holidaymakers-returning-from-spain-decry-unfair-coronavirus-quarantine)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 12:54:05+00:00
+
+<p>Many face shortfall because 14-day period during which they cannot work or receive sick pay</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>People returning to the UK from Spain have spoken out about how they are facing a shortfall in income after the government <a href="https://www.theguardian.com/world/2020/jul/26/spain-uk-quarantine-decision-shocks-britons">introduced a 14-day quarantine period</a>, as they cannot work and do not receive occupational sick pay.</p><p>“The government’s decision is ridiculously unfair,” said Alejandro Castrillo, 29, who works at a hotel in London and had been visiting family in Asturias, northern Spain.</p> <a href="https://www.theguardian.com/world/2020/jul/28/uk-holidaymakers-returning-from-spain-decry-unfair-coronavirus-quarantine">Continue reading...</a>
+
+## UK minister says family of boy arrested over toy gun 'inflamed tensions'
+ - [https://www.theguardian.com/uk-news/2020/jul/28/uk-minister-says-family-of-boy-arrested-over-toy-gun-inflamed-tensions](https://www.theguardian.com/uk-news/2020/jul/28/uk-minister-says-family-of-boy-arrested-over-toy-gun-inflamed-tensions)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 11:11:43+00:00
+
+<p>Kemi Badenoch made comments after Mina Agyepong said she feared police would shoot her children</p><p> Kemi Badenoch, the minister for women and equalities, has blamed the family of a 12-year-old boy arrested over a toy gun for “inflaming tensions” about police behaviour.</p><p>Mina Agyepong said she feared police would shoot her children when officers raided her home in north London and handcuffed her 12-year-old son Kai. Their search recovered a plastic pellet gun.</p> <a href="https://www.theguardian.com/uk-news/2020/jul/28/uk-minister-says-family-of-boy-arrested-over-toy-gun-inflamed-tensions">Continue reading...</a>
+
+## What's the bombshell in the Harry and Meghan book? That the royals are all as bad as each other
+ - [https://www.theguardian.com/uk-news/2020/jul/28/prince-harry-and-meghan-book-royals-flawed-finding-freedom-sussex](https://www.theguardian.com/uk-news/2020/jul/28/prince-harry-and-meghan-book-royals-flawed-finding-freedom-sussex)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 10:53:40+00:00
+
+<p>It’s hard to know who is being taken down in Finding Freedom – despite accusations of snobbery, racism and sexism</p><p><strong>So is this book about Harry and Meghan a big deal or what?<br /></strong><em>Philip, by email</em></p><p>The royals are the embodiment of the <a href="https://en.wikipedia.org/wiki/Tinkerbell_effect">Tinkerbell </a><a href="https://en.wikipedia.org/wiki/Tinkerbell_effect">effect</a>: they are only a big deal if we think they are a big deal. If people stopped looking at them and the papers stopped writing about them, they would ostensibly cease to exist, something Harry and Meghan may discover for themselves if they really think they can control all that’s written about them. We may be their subjects, but their actual role is to be our objects.</p> <a href="https://www.theguardian.com/uk-news/2020/jul/28/prince-harry-and-meghan-book-royals-flawed-finding-freedom-sussex">Continue reading...</a>
+
+## World’s largest nuclear fusion project begins assembly in France
+ - [https://www.theguardian.com/environment/2020/jul/28/worlds-largest-nuclear-fusion-project-under-assembly-in-france](https://www.theguardian.com/environment/2020/jul/28/worlds-largest-nuclear-fusion-project-under-assembly-in-france)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 09:00:19+00:00
+
+<p>Project aims to show clean fusion power can be generated at commercial scale</p><p>The world’s largest nuclear fusion project began its five-year assembly phase on Tuesday in southern France, with the first ultra-hot plasma expected to be generated in late 2025.</p><p>The €20bn (£18.2bn) <a href="https://www.iter.org/">Iter project</a> will replicate the reactions that power the sun and is intended to demonstrate fusion power can be generated on a commercial scale. Nuclear fusion promises clean, unlimited power but, despite 60 years of research, it has yet to overcome the technical challenges of harnessing such extreme amounts of energy.</p> <a href="https://www.theguardian.com/environment/2020/jul/28/worlds-largest-nuclear-fusion-project-under-assembly-in-france">Continue reading...</a>
+
+## Soap dodger: meet the doctor who says we have been showering wrong
+ - [https://www.theguardian.com/lifeandstyle/2020/jul/28/soap-dodger-meet-the-doctor-who-says-we-have-been-showering-wrong](https://www.theguardian.com/lifeandstyle/2020/jul/28/soap-dodger-meet-the-doctor-who-says-we-have-been-showering-wrong)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 09:00:18+00:00
+
+<p>Hand-washing aside, James Hamblin has not used soap for five years. He warns that our obsession with being clean is harming the microbiome that keeps us healthy</p><p>When James Hamblin tells people he has not used soap in the shower for five years, they tend not to hold back in expressing their disgust. “It’s one of the few remaining things for which we feel fine telling someone that they’re gross,” he says. “It’s amazing to me, honestly.”</p><p>Yet despite people’s “clearly moralising judgments”, Hamblin is no hygiene slouch. Even pre-pandemic, he made a point of washing his hands with soap. He is, after all, a doctor who lectures at the Yale School of Public Health and a medical writer and podcaster for <a href="https://www.theatlantic.com/author/james-hamblin/">the US magazine the Atlantic</a>. At 37, he looks so youthful that he still gets compared to the fictional child doctor Doogie Howser.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/jul/28/soap-dodger-meet-the-doctor-who-says-we-have-been-showering-wrong">Continue reading...</a>
+
+## UK employers: will employees be returning to the workplace on 1 August?
+ - [https://www.theguardian.com/business/2020/jul/28/coronavirus-uk-employers-will-employees-be-returning-to-the-workplace-on-1-august](https://www.theguardian.com/business/2020/jul/28/coronavirus-uk-employers-will-employees-be-returning-to-the-workplace-on-1-august)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 08:46:58+00:00
+
+<p>With coronavirus restrictions easing, we would like to hear whether places of work will be reopening <br /></p><p>Boris Johnson has said from 1 August <a href="https://www.theguardian.com/politics/2020/jul/17/boris-johnson-plan-for-return-to-normality-met-with-scepticism-coronavirus">employers can decide whether staff can safely return to the office</a>, and that people who are shielding will no longer be advised to stay at home.</p><p>Whether you are reopening your workplace to employees or not next month, we would like to hear from you.</p> <a href="https://www.theguardian.com/business/2020/jul/28/coronavirus-uk-employers-will-employees-be-returning-to-the-workplace-on-1-august">Continue reading...</a>
+
+## Caught in the act: camera traps snare rarest species - in pictures
+ - [https://www.theguardian.com/environment/gallery/2020/jul/28/caught-in-the-act-camera-traps-snare-rarest-species-in-pictures](https://www.theguardian.com/environment/gallery/2020/jul/28/caught-in-the-act-camera-traps-snare-rarest-species-in-pictures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 06:00:15+00:00
+
+<p>Snow leopards, tapirs, oriental storks and many others feature in WWF’s new collection. Its camera traps are wildlife friendly, as they cause little environmental disturbance, while producing permanent, verifiable records of some of the world’s rarest animals.</p><p>The technology can also give scientists vital insights into population numbers and trends at a time when poaching has reportedly increased</p> <a href="https://www.theguardian.com/environment/gallery/2020/jul/28/caught-in-the-act-camera-traps-snare-rarest-species-in-pictures">Continue reading...</a>
+
+## The Festival of Ethical Photography – single shot award entries
+ - [https://www.theguardian.com/artanddesign/gallery/2020/jul/28/festival-of-ethical-photography-single-shot-award-entries](https://www.theguardian.com/artanddesign/gallery/2020/jul/28/festival-of-ethical-photography-single-shot-award-entries)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 06:00:15+00:00
+
+<p>The <a href="https://www.festivaldellafotografiaetica.it/home-wra-eng/">Festival of Ethical Photography</a>, now in its 11th year, was created to celebrate and promote<em> </em>photography dealing with content judged to be ethically significant. This year’s festival, held in Lodi in northern Italy in October, will maintain physical distancing by using the city’s streets and parks as display locations</p> <a href="https://www.theguardian.com/artanddesign/gallery/2020/jul/28/festival-of-ethical-photography-single-shot-award-entries">Continue reading...</a>
+
+## 'Dad's a dictator, anything goes with Mum': how masks and distancing rules are dividing Britain
+ - [https://www.theguardian.com/world/2020/jul/28/dads-a-dictator-anything-goes-with-mum-how-masks-and-distancing-rules-are-dividing-britain](https://www.theguardian.com/world/2020/jul/28/dads-a-dictator-anything-goes-with-mum-how-masks-and-distancing-rules-are-dividing-britain)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 05:00:14+00:00
+
+<p>What do you do when your loved ones flout the law – or nag you about going out? As lockdown eases, attitudes to Covid-19 seem more polarised than ever</p><p>Michael, a 35-year-old university lecturer from Sheffield, barely speaks to his brother nowadays. For years, they had been drifting apart over political differences such as Brexit. “He hates my leftwing, liberal beliefs as much as I hate his way of looking at the world,” Michael says. “We used have a pint together occasionally, or go to a match.” But coronavirus was the final straw.</p><p>Even before masks became mandatory in English shops, Michael always wore a face covering when he went shopping and did his best to maintain social distancing. His brother did not. “He says he doesn’t care if he gets Covid-19 and has flouted all the rules,” says Michael. “He loves the conspiracy theories that it <a href="https://www.theguardian.com/world/2020/may/03/mike-pompeo-donald-trump-coronavirus-chinese-laboratory">came from a Wuhan lab</a>, or that it doesn’t really exist. I am incensed by his selfish and unthinking approach.”</p> <a href="https://www.theguardian.com/world/2020/jul/28/dads-a-dictator-anything-goes-with-mum-how-masks-and-distancing-rules-are-dividing-britain">Continue reading...</a>
+
+## Coronavirus live news: WHO says Covid-19 is 'easily the most severe' crisis it has faced
+ - [https://www.theguardian.com/world/live/2020/jul/28/coronavirus-live-news-who-says-covid-19-is-easily-the-most-severe-crisis-it-has-faced](https://www.theguardian.com/world/live/2020/jul/28/coronavirus-live-news-who-says-covid-19-is-easily-the-most-severe-crisis-it-has-faced)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 03:45:57+00:00
+
+<p><a href="https://www.theguardian.com/world/live/2020/jul/28/coronavirus-live-news-who-says-covid-19-is-easily-the-most-severe-crisis-it-has-faced?page=with:block-5f1f60ad8f08609a03a91539#block-5f1f60ad8f08609a03a91539">Global cases doubled in last six weeks</a>; <a href="https://www.theguardian.com/world/live/2020/jul/28/coronavirus-live-news-who-says-covid-19-is-easily-the-most-severe-crisis-it-has-faced?page=with:block-5f1f53668f0823e23bc8c479#block-5f1f53668f0823e23bc8c479">deaths pass 650,000</a>; <a href="https://www.theguardian.com/technology/2020/jul/27/california-investigations-amazon-workers-coronavirus">Amazon’s treatment of workers investigated</a>. Follow the latest updates </p><ul><li><a href="https://www.theguardian.com/world/live/2020/jul/28/coronavirus-live-news-who-says-covid-19-is-easily-the-most-severe-crisis-it-has-faced?page=with:block-5f1f60ad8f08609a03a91539#block-5f1f60ad8f08609a03a91539">WHO says Covid-19 is ‘easily the most severe’ crisis it has faced</a></li><li><a href="https://www.theguardian.com/us-news/2020/jul/27/covid-19-relief-package-democrats-republicans-white-house">Democrats pan Republican plan to slash jobless benefits to $200 as ‘totally inadequate’</a></li><li><a href="https://www.theguardian.com/world/2020/jul/27/pet-cat-diagnosed-with-covid-19-uk-government-confirms">Pet cat diagnosed with Covid-19 in first UK case of animal infection</a><br /></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p class="block-time published-time"> <time datetime="2020-07-28T03:45:57.363Z">4.45am <span class="timezone">BST</span></time> </p><p>As recovery and cleanup efforts got underway Monday in South Texas in the wake of a downgraded Hanna, worried residents confronted the prospect of undertaking the effort amid a surge in coronavirus cases that has left many fearful about their health, AP reports. <br /><br />Now a tropical depression, Hanna was 65 miles (105 km) north of Fresnillo in the Mexican state of Zacatecas as its winds weakened to about 25 mph (40 kph), the National Hurricane Center said. <br /><br />Its remnants still threatened to bring rainfall and flash flooding to waterlogged parts of South Texas and Northern Mexico.</p><p class="block-time published-time"> <time datetime="2020-07-28T03:20:49.280Z">4.20am <span class="timezone">BST</span></time> </p><p>Hong Kong has reported 145 new coronavirus cases. On Monday, Hong Kong’s chief secretary, Matthew Cheung Kin-chung, announced new measures for the city as it battles a growing outbreak. </p><p dir="ltr" lang="en"><a href="https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw">#HongKong</a> reported 145 new confirmed <a href="https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw">#COVID19</a> cases on July 27, bringing the total number of infections in the city to 2,779: NHC <a href="https://t.co/pV1NN7DG0U">pic.twitter.com/pV1NN7DG0U</a></p> <a href="https://www.theguardian.com/world/live/2020/jul/28/coronavirus-live-news-who-says-covid-19-is-easily-the-most-severe-crisis-it-has-faced">Continue reading...</a>
+
+## Kylie Moore-Gilbert: British-Australian academic moved to notorious Iran desert prison
+ - [https://www.theguardian.com/uk-news/2020/jul/28/kylie-moore-gilbert-british-australian-academic-moved-to-notorious-iran-prison](https://www.theguardian.com/uk-news/2020/jul/28/kylie-moore-gilbert-british-australian-academic-moved-to-notorious-iran-prison)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 02:57:57+00:00
+
+<p>Middle East scholar, who was arrested in 2018, taken to Qarchak women’s jail, one of the most hostile institutions in the country and reportedly stricken with Covid-19</p><p>A British-Australian academic <a href="https://www.theguardian.com/world/2020/jan/22/kylie-moore-gilbert-case-advocates-urge-tougher-line-on-iran-over-jailing-of-academic">serving a 10-year-prison sentence</a> in Iran for espionage has been moved to a remote desert prison, notorious for violence and reportedly stricken with coronavirus.</p><p>Cambridge-educated Kylie Moore-Gilbert, a Middle East scholar, had been held in Tehran’s Evin Prison for nearly two years, before her sudden move three days ago to Qarchak women’s prison, south-east of Tehran.</p> <a href="https://www.theguardian.com/uk-news/2020/jul/28/kylie-moore-gilbert-british-australian-academic-moved-to-notorious-iran-prison">Continue reading...</a>
+
+## 'Smelly and create great stains': emus banned from pub in outback Australia town
+ - [https://www.theguardian.com/australia-news/2020/jul/28/emus-banned-pub-outback-australia-town-emu-ban-yaraka-hotel-queensland](https://www.theguardian.com/australia-news/2020/jul/28/emus-banned-pub-outback-australia-town-emu-ban-yaraka-hotel-queensland)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 02:38:32+00:00
+
+<p>Kevin and Carol, friendly emus who wander the town of Yaraka in Queensland, have been barred from the only pub after leaving droppings on the floor and stealing toast</p><p>It can’t be easy being an emu in outback Australia at the best of times what with the heat and the perennial droughts.</p><p>But to be banned from your local pub for bad behaviour must now be added to the list of grievances inflicted upon the big birds.</p> <a href="https://www.theguardian.com/australia-news/2020/jul/28/emus-banned-pub-outback-australia-town-emu-ban-yaraka-hotel-queensland">Continue reading...</a>
+
+## Trump's national security adviser tests positive for coronavirus
+ - [https://www.theguardian.com/world/2020/jul/27/congress-aid-package-expiration-date-nears-unemployment-benefits-coronavirus-unemployment](https://www.theguardian.com/world/2020/jul/27/congress-aid-package-expiration-date-nears-unemployment-benefits-coronavirus-unemployment)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 02:10:50+00:00
+
+<ul><li>White House insists ‘no risk’ of Trump being exposed </li><li>Photos of Robert O’Brien’s Europe trip show lack of mask usage</li><li><a href="https://www.theguardian.com/us-news/live/2020/jul/27/covid-19-coronanvirus-deaths-republicans-democrats-trump-latest-news-updates">US politics – live updates</a></li></ul><p>The national security adviser, Robert O’Brien, has tested positive for the coronavirus, but the White House insisted there was “no risk” of Donald Trump being exposed.</p><p> <span>Related: </span><a href="https://www.theguardian.com/world/2020/jul/26/covid-19-death-panels-starr-county-hospital-texas">Texas hospital forced to set up 'death panel' as Covid-19 cases surge</a> </p> <a href="https://www.theguardian.com/world/2020/jul/27/congress-aid-package-expiration-date-nears-unemployment-benefits-coronavirus-unemployment">Continue reading...</a>
+
+## Almost 3 billion animals affected by Australian megafires, report shows
+ - [https://www.theguardian.com/environment/2020/jul/28/almost-3-billion-animals-affected-by-australian-megafires-report-shows-aoe](https://www.theguardian.com/environment/2020/jul/28/almost-3-billion-animals-affected-by-australian-megafires-report-shows-aoe)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 02:00:09+00:00
+
+<p>Exclusive: Bushfires ‘one of the worst wildlife disasters in modern history’, say scientists </p><p>Nearly 3 billion animals were killed or displaced by Australia’s devastating bushfire season of 2019 and 2020, according to scientists who have revealed for the first time the scale of the impact on the country’s native wildlife.</p><p>The Guardian has learned that an estimated 143 million mammals, 180 million birds, 51 million frogs and a staggering 2.5 billion reptiles were affected by the fires that burned across the continent. Not all the animals would have been killed by the flames or heat, but scientists say the prospects of survival for those that had withstood the initial impact was “probably not that great” due to the starvation, dehydration and predation by feral animals – mostly cats – that followed.</p> <a href="https://www.theguardian.com/environment/2020/jul/28/almost-3-billion-animals-affected-by-australian-megafires-report-shows-aoe">Continue reading...</a>
+
+## Will we ever achieve immunity from Covid-19? – podcast
+ - [https://www.theguardian.com/news/audio/2020/jul/28/will-we-ever-achieve-immunity-from-covid-19-podcast](https://www.theguardian.com/news/audio/2020/jul/28/will-we-ever-achieve-immunity-from-covid-19-podcast)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 02:00:09+00:00
+
+<p>Recent studies suggest that even where immunity is developed to Covid-19, it may be fleeting. Science editor Ian Sample looks at what this means for vaccines, treatments and living long term with the coronavirus</p><p>It’s a familiar refrain of the past 6 months: “When will we get back to normal?” Its premise is that once a vaccine arrives or enough people have had Covid-19 we will be immune from its terrible effects. But new evidence on how our bodies combat the virus is casting doubt on the prospects for long-term immunity.</p><p>The Guardian’s science editor, <strong>Ian Sample</strong>,<strong> </strong>tells <strong>Anushka Asthana </strong>that one study at King’s College London showed that antibodies needed to combat the virus fade quickly in patients who have previously tested positive for Covid-19. It is results like this that could have huge implications for the development of a coronavirus vaccine as well as work being done on therapeutic treatments. </p> <a href="https://www.theguardian.com/news/audio/2020/jul/28/will-we-ever-achieve-immunity-from-covid-19-podcast">Continue reading...</a>
+
+## New Zealand suspends Hong Kong extradition treaty over China national security law
+ - [https://www.theguardian.com/world/2020/jul/28/new-zealand-suspends-hong-kong-extradition-treaty-over-china-national-security-law](https://www.theguardian.com/world/2020/jul/28/new-zealand-suspends-hong-kong-extradition-treaty-over-china-national-security-law)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 01:00:44+00:00
+
+<p>Country is last of the Five Eyes alliance to take action, saying it ‘can no longer trust that Hong Kong’s criminal justice system’</p><p>New Zealand has suspended its extradition treaty with Hong Kong following China’s imposition of a controversial national security law that gives it sweeping powers over the semi-autonomous region. </p><p>“New Zealand can no longer trust that Hong Kong’s criminal justice system is sufficiently independent from China,” Winston Peters, New Zealand’s foreign minister, said in a statement on Tuesday. “If China in future shows adherence to the ‘one country, two systems’ framework then we could reconsider this decision.”</p> <a href="https://www.theguardian.com/world/2020/jul/28/new-zealand-suspends-hong-kong-extradition-treaty-over-china-national-security-law">Continue reading...</a>
+
+## Democrats pan Republican plan to slash jobless benefits to $200 as 'totally inadequate'
+ - [https://www.theguardian.com/us-news/2020/jul/27/covid-19-relief-package-democrats-republicans-white-house](https://www.theguardian.com/us-news/2020/jul/27/covid-19-relief-package-democrats-republicans-white-house)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 00:34:21+00:00
+
+<p>White House officials and top Democrats negotiating a new aid package as economy continues to reel from coronavirus crisis</p><p>Unemployment assistance, eviction protections and other relief for millions of Americans struggling in an economy cratered by the coronavirus crisis were at stake as White House officials on Monday began fraught negotiations with top Democrats on a new aid package.</p><p>Aid <a href="https://www.theguardian.com/business/2020/jul/17/american-unemployment-600-weekly-boost">runs out</a> on Friday for a $600 weekly jobless benefit that Democrats call a lifeline for out-of-work Americans. Republican want to slash it to $200 a week, saying that the federal bump is too generous on top of state benefits and is discouraging employees from returning to work.</p> <a href="https://www.theguardian.com/us-news/2020/jul/27/covid-19-relief-package-democrats-republicans-white-house">Continue reading...</a>
+
+## 1MDB scandal: Najib Razak awaits verdict in first trial linked to vast fraud case
+ - [https://www.theguardian.com/world/2020/jul/28/1mdb-scandal-najib-razak-verdict-malaysia](https://www.theguardian.com/world/2020/jul/28/1mdb-scandal-najib-razak-verdict-malaysia)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 00:11:44+00:00
+
+<p>Former PM has denied criminal breach of trust, money laundering and abuse of power over money transfers </p><p>Malaysian former prime minister Najib Razak will learn his fate on Tuesday, when a verdict is issued in his first trial linked to the multibillion-dollar 1MDB scandal – a case that will have major political ramifications, and be seen as a test of the country’s fight against corruption.</p><p>Najib has denied any wrongdoing in relation to what is one of the world’s biggest financial frauds, in which billions of dollars were allegedly looted from a state fund set up to promote development. The scandal shook Malaysian politics, led to the ousting of Najib’s Umno party after 61 years in power, and prompted a series of investigations in countries around the world.</p> <a href="https://www.theguardian.com/world/2020/jul/28/1mdb-scandal-najib-razak-verdict-malaysia">Continue reading...</a>
+
+## Alarm over discovery of hundreds of Chinese fishing vessels near Galápagos Islands
+ - [https://www.theguardian.com/environment/2020/jul/27/chinese-fishing-vessels-galapagos-islands](https://www.theguardian.com/environment/2020/jul/27/chinese-fishing-vessels-galapagos-islands)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-07-28 00:01:29+00:00
+
+<p>The fleet, found just outside a protected zone, raises the prospect of damage to the marine ecosystem</p><p>Ecuador has sounded the alarm after its navy discovered a huge fishing fleet of mostly Chinese-flagged vessels some 200 miles from the <a href="https://www.theguardian.com/world/galapagos-islands">G</a><a href="https://www.theguardian.com/world/galapagos-islands">al</a><a href="https://www.theguardian.com/world/galapagos-islands">ápagos Islands</a>, the archipelago which inspired Charles Darwin’s theory of evolution.</p><p>About 260 ships are currently in international waters just outside a 188-mile wide exclusive economic zone around the island, but their presence has already raised the prospect of serious damage to the delicate marine ecosystem, said former environment minister Yolanda Kakabadse.</p> <a href="https://www.theguardian.com/environment/2020/jul/27/chinese-fishing-vessels-galapagos-islands">Continue reading...</a>
+

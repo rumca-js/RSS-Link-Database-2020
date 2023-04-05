@@ -1,0 +1,9 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## This Jeff Koons balloon dog is worth $58M
+ - [https://www.cnn.com/style/article/most-expensive-sculptures/index.html](https://www.cnn.com/style/article/most-expensive-sculptures/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-24 05:13:16+00:00
+
+Humankind has had artistic impulses dating back to at least the Paleolithic era, when the earliest known cave paintings and stone figurines were created. And for untold years, humans have collected these works of art. Christie's and Sotheby's, the auction house duopoly, have brought buyers and sellers together for centuries, with buyers competing in adrenaline-pumping bidding wars.
+

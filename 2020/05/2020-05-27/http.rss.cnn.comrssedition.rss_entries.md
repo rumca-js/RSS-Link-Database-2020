@@ -1,0 +1,317 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## Boeing is building the 737 Max again even though it's not yet approved to fly
+ - [https://www.cnn.com/2020/05/27/business/boeing-building-737-max/index.html](https://www.cnn.com/2020/05/27/business/boeing-building-737-max/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 23:17:10+00:00
+
+Boeing restarted production of the troubled 737 Max Wednesday, even though the Federal Aviation Administration has yet to give its approval for the jet to fly again, and as demand for new jets has ground to a near halt along with demand for air travel.
+
+## A terrifying, 13-foot laughing kookaburra is being driven around an Australian town
+ - [https://www.cnn.com/style/article/kookaburra-australia-replica-scli-intl/index.html](https://www.cnn.com/style/article/kookaburra-australia-replica-scli-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 22:59:13+00:00
+
+Many of us have been flexing our creative muscles in recent months, making the most of the coronavirus lockdown to get stuck into those DIY projects we've been been putting off.
+
+## Trump administration considering new weapons sale to Saudi Arabia, top Democrat says
+ - [https://www.cnn.com/2020/05/27/politics/trump-pompeo-saudi-arms-sale-menendez/index.html](https://www.cnn.com/2020/05/27/politics/trump-pompeo-saudi-arms-sale-menendez/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 22:47:00+00:00
+
+The Trump administration is considering yet another weapons sale to Saudi Arabia despite the fact that it is facing scrutiny from congressional Democrats who believe Secretary of State Mike Pompeo may have recommended the firing of an independent watchdog because he was investigating the top US diplomat's controversial decision to fast-track a previous arms deal to the Kingdom.
+
+## Boeing lays off nearly 7,000 workers
+ - [https://www.cnn.com/2020/05/27/business/boeing-layoffs/index.html](https://www.cnn.com/2020/05/27/business/boeing-layoffs/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 22:18:17+00:00
+
+Boeing let go 6,770 workers Wednesday, part of a reduction of 16,000 total jobs it plans to implement in response to reduced demand for air travel during the Covid-19 pandemic.
+
+## Trump mocks journalist for wearing a mask
+ - [https://www.cnn.com/videos/politics/2020/05/27/jeff-mason-mask-trump-acosta-pkg-tsr-vpx.cnn](https://www.cnn.com/videos/politics/2020/05/27/jeff-mason-mask-trump-acosta-pkg-tsr-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 21:56:43+00:00
+
+CNN's Jim Acosta reports that President Trump is stoking a "culture war" over not wearing masks, mocking Reuters White House correspondent Jeff Mason for wearing one at a press briefing.
+
+## Scenes from inside Brazil's worst-hit city
+ - [https://www.cnn.com/2020/05/27/americas/brazil-coronavirus-scenes-from-manaus/index.html](https://www.cnn.com/2020/05/27/americas/brazil-coronavirus-scenes-from-manaus/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 21:46:07+00:00
+
+The Amazon city of Manaus has been grappling for weeks with a horror that the rest of Brazil has partially ignored at the advice of their President, Jair Bolsonaro.
+
+## Christian singer reveals he no longer believes in God
+ - [https://www.cnn.com/2020/05/27/entertainment/jonathan-steingard-atheist/index.html](https://www.cnn.com/2020/05/27/entertainment/jonathan-steingard-atheist/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 21:31:46+00:00
+
+Jonathan Steingard, frontman for the Christian rock band Hawk Nelson, has gone public with some personal news.
+
+## Trump is threatening to 'regulate' or 'close' social media platforms. His options are limited
+ - [https://www.cnn.com/collections/intl-trump-scarborough-0527/](https://www.cnn.com/collections/intl-trump-scarborough-0527/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 21:04:44+00:00
+
+
+
+## Three killed at business meeting in France
+ - [https://www.cnn.com/2020/05/27/world/france-shooting-saint-varen-intl/index.html](https://www.cnn.com/2020/05/27/world/france-shooting-saint-varen-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 20:53:48+00:00
+
+Three people were killed and one injured in western France on Wednesday after a man open fired during a business meeting, national police told CNN.
+
+## SpaceX and NASA's historic launch will have to wait a few more days
+ - [https://www.cnn.com/2020/05/27/business/nasa-spacex-scrubbed-launch/index.html](https://www.cnn.com/2020/05/27/business/nasa-spacex-scrubbed-launch/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 20:53:06+00:00
+
+• Opinion: Why we're rocketing people into space during a pandemic
+
+## WH press secretary reacts to information revealing her voting history
+ - [https://www.cnn.com/videos/politics/2020/05/27/kayleigh-mcenany-trump-mail-in-voting-acosta-nr-vpx.cnn](https://www.cnn.com/videos/politics/2020/05/27/kayleigh-mcenany-trump-mail-in-voting-acosta-nr-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 19:32:27+00:00
+
+White House press secretary Kayleigh McEnany is defending her record of mail-in voting as President Trump continues to criticize absentee ballots. CNN's Jim Acosta reports.
+
+## Christian Cooper is asking people to stop making death threats against the woman who called the cops on him
+ - [https://www.cnn.com/collections/intl-central-park-racism-0527/](https://www.cnn.com/collections/intl-central-park-racism-0527/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 19:15:37+00:00
+
+
+
+## What you can and can't do when Walt Disney World reopens
+ - [https://www.cnn.com/videos/business/2020/05/27/disney-world-reopening-coronavirus-precautions-chen-crn-vpx.cnn-business](https://www.cnn.com/videos/business/2020/05/27/disney-world-reopening-coronavirus-precautions-chen-crn-vpx.cnn-business)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 18:29:13+00:00
+
+The Disney theme park plans to begin a phased reopening on July 11 for its Magic Kingdom parks and July 15 for EPCOT and Hollywood Studios. CNN's Natasha Chen explains how the parks are taking precautions to guard against the coronavirus.
+
+## Anchors brawl in explosive exchange: '100,000 people died ... And all you did was try to help your friend the President!'
+ - [https://www.cnn.com/2020/05/27/media/cnbc-heated-on-air-exchange/index.html](https://www.cnn.com/2020/05/27/media/cnbc-heated-on-air-exchange/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 17:21:38+00:00
+
+CNBC "Squawk Box" anchors Andrew Ross Sorkin and Joe Kernen clashed on Wednesday, trading a series of ugly jabs in a fiery on-air exchange over each of their responses to the seriousness of the coronavirus pandemic.
+
+## Bones of about 60 mammoths found at airport construction site
+ - [https://www.cnn.com/travel/article/mexico-mammoth-find-scn-trnd/index.html](https://www.cnn.com/travel/article/mexico-mammoth-find-scn-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 16:07:32+00:00
+
+Archaeologists have found the skeletal remains of dozens of huge mammoths at a construction site outside Mexico City.
+
+## Disney World sets reopening date
+ - [https://www.cnn.com/2020/05/27/media/disney-world-open-coronavirus/index.html](https://www.cnn.com/2020/05/27/media/disney-world-open-coronavirus/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 16:04:58+00:00
+
+Disney World will reopen its gates, ending a multi-month closure of the park that left the Walt Disney Company reeling.
+
+## Perfectly preserved ancient Roman mosaic floor discovered
+ - [https://www.cnn.com/style/article/negrar-mosaic-floor-italy-discovery-scli-intl/index.html](https://www.cnn.com/style/article/negrar-mosaic-floor-italy-discovery-scli-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 15:49:59+00:00
+
+A beautiful and remarkably well preserved mosaic floor from ancient Rome has been discovered by archaeologists in northern Italy.
+
+## Scientists didn't detect a parallel universe in Antarctica. But they are learning more about mysterious, ghostly neutrinos
+ - [https://www.cnn.com/2020/05/27/world/neutrino-research-anita-scn-trnd/index.html](https://www.cnn.com/2020/05/27/world/neutrino-research-anita-scn-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 15:44:45+00:00
+
+Even though we can't see them, we live our lives surrounded by neutrinos.
+
+## How scientists found the universe's 'missing' matter
+ - [https://www.cnn.com/2020/05/27/world/missing-matter-fast-radio-bursts-scn/index.html](https://www.cnn.com/2020/05/27/world/missing-matter-fast-radio-bursts-scn/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 15:00:36+00:00
+
+Mysterious fast radio bursts have been used to unlock another strange aspect of the universe: the case of the "missing matter."
+
+## The 'Mozart of Chess' on being like Michael Jordan
+ - [https://www.cnn.com/2020/05/27/sport/magnus-carlsen-online-chess-spt-intl-cmd/index.html](https://www.cnn.com/2020/05/27/sport/magnus-carlsen-online-chess-spt-intl-cmd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 14:56:15+00:00
+
+Greatness cannot be achieved without sacrifice. While it is the fire that burns inside that fuels the brilliance, the pursuit for perfection can also torment, turning relationships to ashes and niggling at the soul. The gifted can be loved and disliked. They can achieve immortality but still be flawed. They are, after all, human. But, ultimately, their extraordinary talent overshadows everything.
+
+## Chrissy Teigen got Covid-19 test in prep for breast implant removal
+ - [https://www.cnn.com/2020/05/27/entertainment/chrissy-teigen-covid-implants/index.html](https://www.cnn.com/2020/05/27/entertainment/chrissy-teigen-covid-implants/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 12:43:18+00:00
+
+Chrissy Teigen didn't get tested for coronavirus for fun.
+
+## Australian wildlife park celebrates the birth of its first koala since New South Wales' devastating bushfires
+ - [https://www.cnn.com/travel/article/australian-park-baby-koala-scli-intl-scn/index.html](https://www.cnn.com/travel/article/australian-park-baby-koala-scli-intl-scn/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 12:16:11+00:00
+
+A wildlife park in Australia is celebrating the arrival of its first baby koala since bushfires devastated the area.
+
+## A turtle smashed through a woman's windshield while she was driving on the highway
+ - [https://www.cnn.com/2020/05/27/us/turtle-driver-windshield-savannah-trnd/index.html](https://www.cnn.com/2020/05/27/us/turtle-driver-windshield-savannah-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 12:11:51+00:00
+
+A woman in Georgia was left shell shocked when a turtle went flying across the highway and through her windshield, nearly striking her passenger in the face.
+
+## CNN reporter gets caught in scuffle during Hong Kong protests
+ - [https://www.cnn.com/videos/world/2020/05/27/hong-kong-protest-national-anthem-bill-coren-intl-hnk-vpx.cnn](https://www.cnn.com/videos/world/2020/05/27/hong-kong-protest-national-anthem-bill-coren-intl-hnk-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 11:09:37+00:00
+
+Protests have erupted in the heart of Hong Kong's financial center. Police have fired pepper spray to disperse crowds as the city's legislative council debates the controversial national anthem bill. CNN's Anna Coren reports.
+
+## Professional soccer player dies aged 23
+ - [https://www.cnn.com/2020/05/27/football/christian-mbulu-death-footballer-spt-intl/index.html](https://www.cnn.com/2020/05/27/football/christian-mbulu-death-footballer-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 10:58:42+00:00
+
+Professional footballer Christian Mbulu has died at the age of 23, according to a statement from his team, Morecambe FC.
+
+## Imagine giving up your child. This mother is considering it
+ - [https://www.cnn.com/videos/world/2020/05/27/lebanon-domestic-workers-coronavirus-jomana-karadsheh-intl-ldn-vpx.cnn](https://www.cnn.com/videos/world/2020/05/27/lebanon-domestic-workers-coronavirus-jomana-karadsheh-intl-ldn-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 10:44:51+00:00
+
+Thousands of migrant domestic workers are stranded in Lebanon now jobless, penniless and some homeless with no way out as coronavirus exacerbates the country's economic crisis. CNN's Jomana Karadsheh reports.
+
+## She called police on him in Central Park. Hear what he has to say
+ - [https://www.cnn.com/videos/us/2020/05/27/christian-cooper-central-park-video-lemon-ctn-sot-intv-vpx.cnn](https://www.cnn.com/videos/us/2020/05/27/christian-cooper-central-park-video-lemon-ctn-sot-intv-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 10:43:04+00:00
+
+Christian Cooper speaks with CNN's Don Lemon about the encounter he had with a white woman who called the police on him during an encounter involving her unleashed dog in Central Park.
+
+## With tourists gone, Amsterdam locals reclaim their city
+ - [https://www.cnn.com/travel/article/amsterdam-covid-19-tourists/index.html](https://www.cnn.com/travel/article/amsterdam-covid-19-tourists/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 10:16:51+00:00
+
+A couple of weeks after the first coronavirus case arrived in the Netherlands, we were told to stay inside. Bars and schools closed down and my hometown of Amsterdam came to a halt.
+
+## Cat disappears into priest's robes during online sermon
+ - [https://www.cnn.com/2020/05/27/uk/canterbury-cathedral-sermon-cat-scli-gbr-intl/index.html](https://www.cnn.com/2020/05/27/uk/canterbury-cathedral-sermon-cat-scli-gbr-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 09:19:50+00:00
+
+An online sermon being delivered by a senior British clergyman was derailed when an intrepid cat wandered between his legs and disappeared into his robes.
+
+## Jimmy Fallon apologizes for Chris Rock impersonation in blackface on 'SNL'
+ - [https://www.cnn.com/2020/05/26/entertainment/jimmy-fallon-apology/index.html](https://www.cnn.com/2020/05/26/entertainment/jimmy-fallon-apology/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 08:43:37+00:00
+
+Jimmy Fallon is addressing his impersonation of Chris Rock in a "Saturday Night Live" sketch from 20 years ago in which he appeared in blackface.
+
+## Why Thailand isn't reopening to international tourists yet
+ - [https://www.cnn.com/travel/article/thailand-international-tourists-covid/index.html](https://www.cnn.com/travel/article/thailand-international-tourists-covid/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 08:36:38+00:00
+
+With news that many countries in Europe are reopening to tourism in time for summer, travelers with their sights set on Asia are anxiously awaiting word on when they'll be given the green light to visit their favorite destination.
+
+## Hong Kong police surround legislature ahead of protests over national anthem bill
+ - [https://www.cnn.com/collections/intl-hong-kong-0525/](https://www.cnn.com/collections/intl-hong-kong-0525/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 06:10:57+00:00
+
+
+
+## China moves to consolidate a position of strength as pandemic fades
+ - [https://www.cnn.com/2020/05/27/asia/hong-kong-national-security-law-xi-jinping-intl-hnk/index.html](https://www.cnn.com/2020/05/27/asia/hong-kong-national-security-law-xi-jinping-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 04:58:00+00:00
+
+Sometimes, the best time to act isn't when you're at your strongest, but when your rivals are weakest.
+
+## Australia angered China by calling for a coronavirus investigation. Now Beijing is targeting it
+ - [https://www.cnn.com/2020/05/26/business/china-australia-coronavirus-trade-war-intl-hnk/index.html](https://www.cnn.com/2020/05/26/business/china-australia-coronavirus-trade-war-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 04:56:02+00:00
+
+It didn't take long after Australia's first calls for an international investigation into the origins of the coronavirus pandemic before rumblings of retaliation came from Beijing.
+
+## Family of black man who died in police custody demands justice
+ - [https://www.cnn.com/videos/us/2020/05/26/george-floyd-family-intv-ctn-vpx.cnn](https://www.cnn.com/videos/us/2020/05/26/george-floyd-family-intv-ctn-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 04:40:20+00:00
+
+The family of George Floyd, a black man who was held down with a knee as he protested that he couldn't breathe and later died in police custody, speaks with CNN's Don Lemon.
+
+## Video shows a woman pushing her 9-year-old son into a canal, police say
+ - [https://www.cnn.com/2020/05/26/us/alejandro-ripley-drowning-video-footage/index.html](https://www.cnn.com/2020/05/26/us/alejandro-ripley-drowning-video-footage/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 04:30:17+00:00
+
+Newly released video obtained by CNN network partner Univision shows the moment a Florida woman who's been arrested in the death of her 9-year-old son pushes him into a canal.
+
+## Why we're rocketing people into space -- even in the middle of a pandemic
+ - [https://www.cnn.com/2020/05/26/opinions/seymour-space-x-elon-musk-crew-dragon/index.html](https://www.cnn.com/2020/05/26/opinions/seymour-space-x-elon-musk-crew-dragon/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 03:40:25+00:00
+
+So we're back to scanning the skies along Florida's northeast coast for clouds -- to see whether it's clear out enough that we can shoot a rocket into space with two people in it.
+
+## Antibody tests for Covid-19 wrong half the time, CDC says
+ - [https://www.cnn.com/2020/05/26/health/antibody-tests-cdc-coronavirus-wrong/index.html](https://www.cnn.com/2020/05/26/health/antibody-tests-cdc-coronavirus-wrong/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 03:28:34+00:00
+
+Antibody tests used to determine if people have been infected in the past with Covid-19 might be wrong up to half the time, the US Centers for Disease Control and Prevention said in new guidance posted on its website.
+
+## There's one epidemic we may never find a vaccine for: fear of black men in public spaces
+ - [https://www.cnn.com/2020/05/26/us/fear-black-men-blake/index.html](https://www.cnn.com/2020/05/26/us/fear-black-men-blake/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 02:21:08+00:00
+
+Millions of Americans shrugged off their fear of the coronavirus this holiday weekend when they flocked to crowded beaches, lakes and restaurants.
+
+## 4 Minneapolis cops fired after video shows one kneeling on neck of black man who later died
+ - [https://www.cnn.com/2020/05/26/us/minneapolis-police-encounter-death-trnd/index.html](https://www.cnn.com/2020/05/26/us/minneapolis-police-encounter-death-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 02:07:24+00:00
+
+Minneapolis police officers involved in the death of a black man who they held down as he protested that he couldn't breathe have been placed on leave as the FBI looks into the incident, Police Chief Medaria Arradondo said Tuesday.
+
+## Choir practice turned into a Covid-19 'super spreader' event
+ - [https://www.cnn.com/videos/health/2020/05/27/coronavirus-spreader-events-pkg-kaye-ac360-vpx.cnn](https://www.cnn.com/videos/health/2020/05/27/coronavirus-spreader-events-pkg-kaye-ac360-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 01:46:28+00:00
+
+CNN's Randi Kaye reports on rising concerns over potential coronavirus 'super spreader' events and the implications these have on infection transmission.
+
+## 'What a little man,' Anderson Cooper reacts to Trump's falsehoods
+ - [https://www.cnn.com/videos/politics/2020/05/27/trump-coronavirus-little-man-leadership-kth-cooper-ac360-vpx.cnn](https://www.cnn.com/videos/politics/2020/05/27/trump-coronavirus-little-man-leadership-kth-cooper-ac360-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 00:55:10+00:00
+
+CNN's Anderson Cooper excoriates President Trump and calls him a "little man" for spreading falsehoods about a deceased woman.
+
+## Twitter labeled Trump tweets with a fact check for the first time
+ - [https://www.cnn.com/2020/05/26/tech/twitter-trump-fact-check/index.html](https://www.cnn.com/2020/05/26/tech/twitter-trump-fact-check/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 00:33:15+00:00
+
+For the first time, Twitter has labeled a tweet from President Donald Trump as misleading.
+
+## He asked Twitter to remove Trump's false tweets about his dead wife. Twitter refused
+ - [https://www.cnn.com/2020/05/26/media/trump-joe-scarborough-conspiracy-theory/index.html](https://www.cnn.com/2020/05/26/media/trump-joe-scarborough-conspiracy-theory/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 00:11:50+00:00
+
+Six times this month, in a vile attempt to punish a political rival, President Trump has tweeted about a decades-old conspiracy theory about MSNBC's Joe Scarborough.
+
+## Nail-biting video shows brown bear following child on family hike
+ - [https://www.cnn.com/2020/05/26/europe/brown-bear-hike-boy-italy-intl-scli/index.html](https://www.cnn.com/2020/05/26/europe/brown-bear-hike-boy-italy-intl-scli/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-05-27 00:07:56+00:00
+
+An Italian family's mountain hike took a hair-raising turn after a brown bear followed a child down a mountain path during a day out.
+

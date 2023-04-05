@@ -1,0 +1,317 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## This is America's 'rattiest city' for a sixth year in a row
+ - [https://www.cnn.com/2020/10/17/us/chicago-rat-city-2020-trnd/index.html](https://www.cnn.com/2020/10/17/us/chicago-rat-city-2020-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 23:47:40+00:00
+
+Chicago is the six-time holder of a title that no city wants.
+
+## Women's March focuses on getting voters to the polls
+ - [https://www.cnn.com/videos/politics/2020/10/17/womens-march-washington-malveaux-sot-vpx.cnn](https://www.cnn.com/videos/politics/2020/10/17/womens-march-washington-malveaux-sot-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 23:10:32+00:00
+
+Demonstrators gathered in Washington, DC, for the second Women's March of the year. Attendees came together to protest President Donald Trump's nomination of Amy Coney Barrett to the Supreme Court and urge women to vote in the upcoming election. CNN's Suzanne Malveaux reports.
+
+## Analyst reveals who poses biggest legal threat to Trump if he loses election
+ - [https://www.cnn.com/videos/politics/2020/10/17/trump-legal-battles-barrett-scotus-cross-exam-elie-honig-nr-vpx.cnn](https://www.cnn.com/videos/politics/2020/10/17/trump-legal-battles-barrett-scotus-cross-exam-elie-honig-nr-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 21:39:09+00:00
+
+CNN legal analyst Elie Honig looks at the various legal battles Trump could face if he loses the presidential election, and how his Supreme Court nominee, Judge Amy Coney Barrett, could impact the Affordable Care Act if she is confirmed by the Senate.
+
+## Halloween is going to look very different during the pandemic
+ - [https://www.cnn.com/2020/10/17/business/halloween-businesses-pandemic/index.html](https://www.cnn.com/2020/10/17/business/halloween-businesses-pandemic/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 21:21:26+00:00
+
+Halloween, a holiday that brings Americans together over a shared love for candy and costumes, will look very different during the pandemic.
+
+## Film star Rhonda Fleming has died
+ - [https://www.cnn.com/2020/10/17/entertainment/rhonda-fleming-obit-trnd/index.html](https://www.cnn.com/2020/10/17/entertainment/rhonda-fleming-obit-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 20:36:46+00:00
+
+Rhonda Fleming, a film star in the 1940s and 50s known as the "Queen of Technicolor," has died, according to her assistant. She was 97.
+
+## Trump insults Savannah Guthrie day after town hall
+ - [https://www.cnn.com/videos/media/2020/10/17/trump-savannah-guthrie-criticism-town-hall-ctn-sot-vpx.cnn](https://www.cnn.com/videos/media/2020/10/17/trump-savannah-guthrie-criticism-town-hall-ctn-sot-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 20:20:49+00:00
+
+President Trump used a campaign stop to insult NBC News' Savannah Guthrie the day after he faced tough questioning from her at a town hall.
+
+## 'Utter nonsense': Ex-Bush official reacts to Trump's training video
+ - [https://www.cnn.com/videos/politics/2020/10/17/trump-election-poll-watchers-chertoff-nr-sot-vpx.cnn](https://www.cnn.com/videos/politics/2020/10/17/trump-election-poll-watchers-chertoff-nr-sot-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 20:11:57+00:00
+
+Michael Chertoff, who served as secretary of homeland security under President George W. Bush, weighs in on a training video for Trump supporters who are interested in being poll watchers on Election Day.
+
+## 'Diddy' Combs: 'White men like Trump need to be banished'
+ - [https://www.cnn.com/videos/politics/2020/10/17/diddy-sean-combs-biden-trump-orig-kj.cnn](https://www.cnn.com/videos/politics/2020/10/17/diddy-sean-combs-biden-trump-orig-kj.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 19:18:09+00:00
+
+In an interview with Charlamagne tha God, rapper Sean "Diddy" Combs endorsed presidential candidate Joe Biden and said he was helping to launch a new political party, Our Black Party.
+
+## The US President may face more serious matters if he loses the election -- and the protections afforded him by the presidency
+ - [https://www.cnn.com/2020/10/17/politics/trump-election-legal-reckoning/index.html](https://www.cnn.com/2020/10/17/politics/trump-election-legal-reckoning/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 19:08:14+00:00
+
+If things don't go Donald Trump's way on Election Day, the President may face more serious matters than how to pack up the West Wing.
+
+## US government to execute first woman since 1953
+ - [https://www.cnn.com/2020/10/17/us/lisa-montgomery-brandon-bernard-executions-trnd/index.html](https://www.cnn.com/2020/10/17/us/lisa-montgomery-brandon-bernard-executions-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 19:01:56+00:00
+
+The federal government, continuing its string of executions this year, has set the dates for two more, including the first woman in more than six decades.
+
+## How this former QAnon believer escaped the virtual cult
+ - [https://www.cnn.com/videos/business/2020/10/16/qanon-reformed-believer-orig.cnn-business](https://www.cnn.com/videos/business/2020/10/16/qanon-reformed-believer-orig.cnn-business)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 18:40:52+00:00
+
+Jitarth Jadeja found QAnon in 2017. The 32-year-old spent two years entrenched in the virtual cult. His biggest regret? Sharing the conspiracy theory with his father.
+
+## Trump suggests he'd leave the country if he loses to Biden
+ - [https://www.cnn.com/videos/politics/2020/10/17/trump-leave-the-country-sot-macon-rally-nr-vpx.cnn](https://www.cnn.com/videos/politics/2020/10/17/trump-leave-the-country-sot-macon-rally-nr-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 18:10:23+00:00
+
+At a rally in Macon, Georgia, President Donald Trump suggested he may have to "leave the country" if he were to lose the 2020 presidential election to Joe Biden.
+
+## Teacher beheaded in Paris suburb is named
+ - [https://www.cnn.com/2020/10/17/europe/paris-suburb-man-decapitated-intl/index.html](https://www.cnn.com/2020/10/17/europe/paris-suburb-man-decapitated-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 18:05:16+00:00
+
+An 18-year-old man of Chechen origin has been identified as the suspect in Friday's beheading of a schoolteacher in a suburb of Paris, a French judicial source told CNN Saturday.
+
+## Some Republicans voice concerns over Trump
+ - [https://www.cnn.com/2020/10/17/politics/donald-trump-joe-biden-gop-defections/index.html](https://www.cnn.com/2020/10/17/politics/donald-trump-joe-biden-gop-defections/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 17:05:43+00:00
+
+As President Donald Trump began a packed day of events Friday, he delivered an unusually somber message to seniors -- a group he won in 2016 and desperately needs to win back -- speaking of the pain and grief inflicted by the coronavirus pandemic.
+
+## Kenya's Jepchirchir breaks own world record at World Half Marathon Championships
+ - [https://www.cnn.com/2020/10/17/sport/peres-jepchirchir-half-marathon-world-record-spt-intl/index.html](https://www.cnn.com/2020/10/17/sport/peres-jepchirchir-half-marathon-world-record-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 15:59:29+00:00
+
+Peres Jepchirchir broke her own world record in the women's half marathon, crossing the line in one hour, five minutes and 16 seconds to win gold at the World Athletics Half Marathon Championships in Gdynia, Poland.
+
+## Justin Bieber's 'Lonely' shows the dark side of childhood stardom
+ - [https://www.cnn.com/2020/10/17/entertainment/justin-bieber-lonely-music-video-trnd/index.html](https://www.cnn.com/2020/10/17/entertainment/justin-bieber-lonely-music-video-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 15:07:49+00:00
+
+What if you had it all but nobody to call?
+
+## The legal reckoning awaiting Trump if he loses the election
+ - [https://www.cnn.com/collections/intl-trump-1017/](https://www.cnn.com/collections/intl-trump-1017/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 15:06:04+00:00
+
+
+
+## Trump keeps chipping away at Obamacare with only weeks until the election -- and a Supreme Court hearing
+ - [https://www.cnn.com/2020/10/17/politics/affordable-care-act-georgia-medicaid/index.html](https://www.cnn.com/2020/10/17/politics/affordable-care-act-georgia-medicaid/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 15:00:13+00:00
+
+The Trump administration has taken a step to weaken the Affordable Care Act in a key battleground state, with only weeks to go until Election Day as well as Supreme Court arguments that could determine the landmark law's future.
+
+## Liverpool and Everton share spoils in entertaining Merseyside derby amid further VAR controversy
+ - [https://www.cnn.com/2020/10/17/football/liverpool-everton-merseyside-derby-spt-intl/index.html](https://www.cnn.com/2020/10/17/football/liverpool-everton-merseyside-derby-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 14:45:36+00:00
+
+Liverpool and Everton shared the spoils on Saturday in a tense but thrilling Merseyside derby, as Carlo Ancelotti's side twice came from behind to earn a 2-2 draw.
+
+## National elections loom after a brutal year for Bolivia
+ - [https://www.cnn.com/2020/10/17/americas/election-bolivia-intl/index.html](https://www.cnn.com/2020/10/17/americas/election-bolivia-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 14:42:02+00:00
+
+It started with allegations of fraud amid contested national elections.  Then came claims of a coup. An incumbent president was exiled, protests paralyzed the country, and an economy that had been a Latin American success story showed serious signs of decline.
+
+## How did quarantine affect teens?
+ - [https://www.cnn.com/videos/tv/2020/10/17/how-is-quarantine-affecting-teens.cnn](https://www.cnn.com/videos/tv/2020/10/17/how-is-quarantine-affecting-teens.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 14:35:48+00:00
+
+Being a teenager is even harder than usual in a pandemic: pulled from school, unable to see friends, cloistered with family. Yet a new study found surprising upsides.
+
+## Should there be age limits for elected leaders?
+ - [https://www.cnn.com/videos/tv/2020/10/17/should-there-be-age-limits-for-elected-leaders.cnn](https://www.cnn.com/videos/tv/2020/10/17/should-there-be-age-limits-for-elected-leaders.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 14:35:21+00:00
+
+No matter who wins, America is about to elect its oldest President ever. Many leaders in the House and Senate are in their 70's, even 80's. Is this a problem?
+
+## Trump 'continued to put us in danger' by referencing us, says Rachel Vindman, wife of key impeachment witness
+ - [https://www.cnn.com/2020/10/17/politics/rachel-vindman-wife-alexander-vindman-trump-danger/index.html](https://www.cnn.com/2020/10/17/politics/rachel-vindman-wife-alexander-vindman-trump-danger/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 14:30:52+00:00
+
+Rachel Vindman -- the wife of former Lt. Col. Alexander Vindman, a key witness in President Donald Trump's impeachment inquiry -- slammed the President on Friday for going after her husband and family.
+
+## It's not magic, it's math. Here's how CNN makes election projections
+ - [https://www.cnn.com/2020/10/17/politics/2020-election-projections-explained/index.html](https://www.cnn.com/2020/10/17/politics/2020-election-projections-explained/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 14:12:04+00:00
+
+If you've ever watched CNN on election night, you'll know that Wolf Blitzer announces that the network has projected this or that candidate will win a particular race.
+
+## Analysis: Why early vote trends can't tell you who will win
+ - [https://www.cnn.com/2020/10/17/politics/early-voting-analysis/index.html](https://www.cnn.com/2020/10/17/politics/early-voting-analysis/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 14:05:32+00:00
+
+You've seen the pictures of early voting lines out the door. You may have read the stats of the high number of voters requesting absentee ballots. All of this is certainly consistent with the long standing belief of record turnout in 2020.
+
+## Her mom went missing in Zion National Park. She needs experienced hikers to help bring her home
+ - [https://www.cnn.com/2020/10/17/us/missing-hiker-zion-national-park-trnd/index.html](https://www.cnn.com/2020/10/17/us/missing-hiker-zion-national-park-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 13:53:31+00:00
+
+Kailey Chambers and her mother Holly Courtier traversed "The Narrows," a spectacular sliver of a canyon in Zion National Park, a month ago.
+
+## New Zealand PM Jacinda Ardern wins second term in landslide election victory
+ - [https://www.cnn.com/2020/10/17/asia/new-zealand-election-2020-results-intl-hnk/index.html](https://www.cnn.com/2020/10/17/asia/new-zealand-election-2020-results-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 13:25:44+00:00
+
+Jacinda Ardern looks set to win a second term as New Zealand's Prime Minister with preliminary results indicating that her success at handling the country's coronavirus outbreak has secured a landslide victory.
+
+## Georgia's pandemic primary was a disaster. Experts fear the state is still vulnerable to a repeat.
+ - [https://www.cnn.com/2020/10/17/politics/georgia-voting-issues-presidential-election-november-3/index.html](https://www.cnn.com/2020/10/17/politics/georgia-voting-issues-presidential-election-november-3/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 13:07:21+00:00
+
+On the morning of June 9, Chantel Mullen arrived at Parkside Elementary School in Atlanta, ready to cast her vote in Georgia's primary election.
+
+## Your old iPhone is worth big bucks. Here's why
+ - [https://www.cnn.com/2020/10/17/tech/iphone-12-trade-in-programs/index.html](https://www.cnn.com/2020/10/17/tech/iphone-12-trade-in-programs/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 12:12:33+00:00
+
+Apple this week widened the price range for its flagship smartphones, announcing the iPhone 12 mini at $699 for users who balk at spending over $1,000 for more premium models.
+
+## Supreme Court is about to have 3 Bush v. Gore alumni sitting on the bench
+ - [https://www.cnn.com/2020/10/17/politics/bush-v-gore-barrett-kavanaugh-roberts-supreme-court/index.html](https://www.cnn.com/2020/10/17/politics/bush-v-gore-barrett-kavanaugh-roberts-supreme-court/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 12:07:59+00:00
+
+Judge Amy Coney Barrett, once confirmed, will be one of three current Supreme Court justices who assisted the legal team of then-Texas Gov. George W. Bush in the Florida ballot-recount battle that came down to a single vote at the Supreme Court.
+
+## Software CEO faces largest-ever US tax evasion charge: $2 billion
+ - [https://www.cnn.com/2020/10/17/business/robert-brockman-tax-evasion-charges/index.html](https://www.cnn.com/2020/10/17/business/robert-brockman-tax-evasion-charges/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 12:07:35+00:00
+
+Texas tech mogul Robert T. Brockman has been charged in a $2 billion tax evasion case, the largest ever tax charge in the United States, law enforcement officials said.
+
+## Ice Cube sets the record straight on his plans with Trump in interview with Chris Cuomo
+ - [https://www.cnn.com/2020/10/17/us/ice-cube-donald-trump-cuomo-interview-trnd/index.html](https://www.cnn.com/2020/10/17/us/ice-cube-donald-trump-cuomo-interview-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 11:22:21+00:00
+
+After taking heat for a few days, rapper Ice Cube spoke to CNN on Friday to set the record straight on why he was working with President Donald Trump.
+
+## Bloodletting and gas fumes: Quack treatments of the 1918 flu
+ - [https://www.cnn.com/2020/10/17/health/1918-flu-quack-cures-coronavirus-wellness/index.html](https://www.cnn.com/2020/10/17/health/1918-flu-quack-cures-coronavirus-wellness/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 10:54:26+00:00
+
+If the idea of drinking hand sanitizer, absorbing ultraviolet light and gargling salt water to prevent or treat Covid-19 sounds bizarre to you, know that this isn't the first time humans have put themselves in dangerous situations to quell their fears.
+
+## A teacher heard a student's grandma slur her words during a virtual lesson. What she did next saved a life
+ - [https://www.cnn.com/2020/10/17/us/teacher-saves-grandma-life-stroke-trnd/index.html](https://www.cnn.com/2020/10/17/us/teacher-saves-grandma-life-stroke-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 10:04:59+00:00
+
+A first-grade teacher at a Michigan elementary school is being hailed as a hero after alerting the school principal that her online student's grandmother was having a stroke.
+
+## WNBA superstar Sue Bird: 'We are not cute White girls like soccer players'
+ - [https://www.cnn.com/2020/10/17/sport/sue-bird-megan-rapinoe-wnba-spt-intl/index.html](https://www.cnn.com/2020/10/17/sport/sue-bird-megan-rapinoe-wnba-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 09:37:11+00:00
+
+They are sport's ultimate power couple -- equal partners as multiple winners at world and Olympic level for the United States -- and even in the autumn of their careers still cutting it at the highest level
+
+## Now staycations are starting to fall apart
+ - [https://www.cnn.com/travel/article/uk-staycations-fall-apart/index.html](https://www.cnn.com/travel/article/uk-staycations-fall-apart/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 08:22:41+00:00
+
+No airport testing regime to speak of. A "travel corridors" policy that now allows for unrestricted travel from England to just seven destinations around the world. And a second wave that's beginning to look more like a tsunami.
+
+## A British supermarket launched a chicken nugget into space
+ - [https://www.cnn.com/2020/10/17/world/chicken-nugget-space-british-supermarket-iceland-trnd/index.html](https://www.cnn.com/2020/10/17/world/chicken-nugget-space-british-supermarket-iceland-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 05:02:29+00:00
+
+Astronauts, chimpanzees and now a chicken nugget.
+
+## GOP senator deliberately mispronounces Harris' name at Trump rally
+ - [https://www.cnn.com/videos/politics/2020/10/17/david-perdue-kamala-harris-mispronounces-name-trump-rally-sot-vpx.cnn](https://www.cnn.com/videos/politics/2020/10/17/david-perdue-kamala-harris-mispronounces-name-trump-rally-sot-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 04:02:56+00:00
+
+Republican Sen. David Perdue of Georgia willfully mispronounced his Senate colleague Kamala Harris' name during remarks ahead of President Donald Trump's rally in Macon. In a statement, a spokeswoman for the Perdue campaign said "Senator Perdue simply mispronounced Senator Harris' name, and he didn't mean anything by it."
+
+## The UK's fragile relationship with America could ruin Brexit
+ - [https://www.cnn.com/2020/10/17/politics/special-relationship-election-analysis-gbr-intl/index.html](https://www.cnn.com/2020/10/17/politics/special-relationship-election-analysis-gbr-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 04:00:48+00:00
+
+Every four years, the world watches as Americans decide who will occupy the most powerful office on Earth. Nowhere is this truer than in the United Kingdom, a country that so often talks of its "special relationship" with the United States, a reference to the term coined by Winston Churchill in 1946.
+
+## Donald Trump just can't quit his dangerous friends
+ - [https://www.cnn.com/2020/10/16/opinions/donald-trump-qanon-dangerous-dantonio/index.html](https://www.cnn.com/2020/10/16/opinions/donald-trump-qanon-dangerous-dantonio/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 01:47:14+00:00
+
+For a guy who brags about having a great memory, President Donald Trump sure has trouble remembering the folks who really like him, which, given his well-documented desire to be loved by supporters, is also quite strange. Almost as strange as QAnon.
+
+## How vulnerable to Covid-19 are supporters at Trump's rallies?
+ - [https://www.cnn.com/videos/health/2020/10/17/super-spreader-rallies-trump-coronavirus-gupta-ac360-pkg-vpx.cnn](https://www.cnn.com/videos/health/2020/10/17/super-spreader-rallies-trump-coronavirus-gupta-ac360-pkg-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 01:21:48+00:00
+
+CNN's Dr. Sanjay Gupta lays out the possible Covid-19 health risks of attending a large gathering, like a Trump rally, without wearing a mask or social distancing.
+
+## Giuliani's daughter: I had no choice but to say something
+ - [https://www.cnn.com/videos/politics/2020/10/17/giuliani-daughter-caroline-biden-cooper-intv-vpx.cnn](https://www.cnn.com/videos/politics/2020/10/17/giuliani-daughter-caroline-biden-cooper-intv-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 01:20:05+00:00
+
+Caroline Giuliani, the daughter of President Trump's lawyer Rudy Giuliani, tells CNN's Anderson Cooper why she is voting for Joe Biden this November.
+
+## We asked Trump supporters about QAnon. Hear what they said
+ - [https://www.cnn.com/videos/politics/2020/10/17/trump-supporters-qanon-macon-georgia-rally-tuchman-ac360-sot-vpx.cnn](https://www.cnn.com/videos/politics/2020/10/17/trump-supporters-qanon-macon-georgia-rally-tuchman-ac360-sot-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 00:45:12+00:00
+
+A day after President Donald Trump refused to denounce a QAnon conspiracy theory, CNN's Gary Tuchman asked Trump supporters at a Macon, Georgia, rally about the viral cult.
+
+## Inside the billion-dollar battle for India's online shoppers
+ - [https://www.cnn.com/2020/10/16/tech/india-flipkart-amazon-festive-sales-intl-hnk/index.html](https://www.cnn.com/2020/10/16/tech/india-flipkart-amazon-festive-sales-intl-hnk/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 00:34:40+00:00
+
+India's festival shopping season is underway, pitting the country's biggest online retailers against each other in a battle to grab a larger chunk of the growing, lucrative e-commerce market.
+
+## Tony Hawk shares his skateboarding secret
+ - [https://www.cnn.com/videos/us/2020/10/16/tony-hawk-skateboarding-secret-acfc-sot-vpx.cnn](https://www.cnn.com/videos/us/2020/10/16/tony-hawk-skateboarding-secret-acfc-sot-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-10-17 00:03:45+00:00
+
+Anderson Cooper speaks to skateboarding legend Tony Hawk about how he is able to continue skateboarding at the age of 52. Watch "Full Circle" every Monday, Tuesday and Friday at 6pm E.T.
+

@@ -1,0 +1,506 @@
+# Source:The Guardian, URL:https://www.theguardian.com/rss, language:en-UK
+
+## Anthony Joshua shows his mettle with dramatic knockout of Kubrat Pulev
+ - [https://www.theguardian.com/sport/2020/dec/12/world-heavyweight-champion-anthony-joshua-knocks-out-kubrat-pulev-boxing](https://www.theguardian.com/sport/2020/dec/12/world-heavyweight-champion-anthony-joshua-knocks-out-kubrat-pulev-boxing)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 23:49:21+00:00
+
+<ul><li>World heavyweight champion wins in ninth round</li><li>Potential Tyson Fury unification fight one step closer</li></ul><p>Anthony Joshua retained his world heavyweight titles after he knocked out Kubrat Pulev in the ninth round on Saturday night. Heavyweight boxing can be one of the most unpredictable and unforgiving arenas in sport, as Joshua learned when he suffered a shock stoppage loss against Andy Ruiz Jr 18 months ago, but he matched expectations at Wembley Arena as he battered the 39-year-old Bulgarian into submission.</p><p> <span>Related: </span><a href="https://www.theguardian.com/sport/live/2020/dec/12/anthony-joshua-v-kubrat-pulev-world-heavyweight-boxing-live">Anthony Joshua knocks out Kubrat Pulev: world heavyweight boxing – live!</a> </p> <a href="https://www.theguardian.com/sport/2020/dec/12/world-heavyweight-champion-anthony-joshua-knocks-out-kubrat-pulev-boxing">Continue reading...</a>
+
+## Fashionably festive: 20 women's fashion gifts for £50 and under - in pictures
+ - [https://www.theguardian.com/fashion/gallery/2020/dec/12/fashionably-festive-20-womens-fashion-gifts-for-50-and-under-in-pictures](https://www.theguardian.com/fashion/gallery/2020/dec/12/fashionably-festive-20-womens-fashion-gifts-for-50-and-under-in-pictures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 23:45:51+00:00
+
+<p>Whether it’s a floral jumpsuit or velvet slippers, these stylish gifts are all £50 or under </p> <a href="https://www.theguardian.com/fashion/gallery/2020/dec/12/fashionably-festive-20-womens-fashion-gifts-for-50-and-under-in-pictures">Continue reading...</a>
+
+## Real Madrid ease to derby win over Atlético after Casemiro opener
+ - [https://www.theguardian.com/football/2020/dec/12/real-madrid-atletico-madrid-la-liga-match-report](https://www.theguardian.com/football/2020/dec/12/real-madrid-atletico-madrid-la-liga-match-report)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 22:57:43+00:00
+
+<p>Real Madrid’s grand week came to a perfect end on Saturday. If these three games in seven days are to define their season as the narrative had declared, far from coming to a premature end it looks set to turn out nice again. Zinedine Zidane was on edge and on an ultimatum, his team threatened with elimination from the Champions League group stage for the first time ever and with being left so far adrift domestically as to be virtually done. But they did what they always seem to do in situations like these and rose again, beating Sevilla, beating Borussia Mönchengladbach and doing what no one had done since February by beating Atlético Madrid too.</p><p>On Friday afternoon Zidane had declared Atlético favourites to win the league; on Saturday night his team defeated their city rivals 2-0 with a first-half goal from Casemiro and then an own goal by Jan Oblak. Diego Simeone’s team had not lost for 26 matches – going back to the last time they faced Real Madrid – and although they remain top, the title race was opened up at Valdebebas. It is one that includes Real now, too. Not just because of the score, but also because of the script this game followed. As for Zidane, here was more evidence that the only reason to doubt him is that it is precisely that doubt, that danger, which brings the best from his players.</p> <a href="https://www.theguardian.com/football/2020/dec/12/real-madrid-atletico-madrid-la-liga-match-report">Continue reading...</a>
+
+## Gylfi Sigurdsson penalty lifts Everton and ends Chelsea's unbeaten run
+ - [https://www.theguardian.com/football/2020/dec/12/everton-chelsea-premier-league-match-report](https://www.theguardian.com/football/2020/dec/12/everton-chelsea-premier-league-match-report)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 22:05:55+00:00
+
+<p>The former Chelsea manager Carlo Ancelotti embraced his assistants to celebrate a first home win for more than two months while the current custodian surveyed a crestfallen scene at Goodison Park.</p><p> <span>Related: </span><a href="https://www.theguardian.com/football/live/2020/dec/12/everton-v-chelsea-premier-league-live">Everton 1-0 Chelsea: Premier League – live reaction!</a> </p> <a href="https://www.theguardian.com/football/2020/dec/12/everton-chelsea-premier-league-match-report">Continue reading...</a>
+
+## In US Covid-19 hot zones, firefighters now ‘pump more oxygen than water’
+ - [https://www.theguardian.com/us-news/2020/dec/12/covid-19-hot-zones-firefighters-frontline-pandemic](https://www.theguardian.com/us-news/2020/dec/12/covid-19-hot-zones-firefighters-frontline-pandemic)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 21:35:08+00:00
+
+<p>Firefighters are often thrust into frontline health emergencies. During the pandemic, they’ve paid an especially high price</p><p>As a boy, Robert Weber chased the blazing lights and roaring sirens of fire engines down the streets of Brooklyn, New York.</p> <a href="https://www.theguardian.com/us-news/2020/dec/12/covid-19-hot-zones-firefighters-frontline-pandemic">Continue reading...</a>
+
+## Lukewarm anti-derby lacks spectacle but will satisfy Ole Gunnar Solskjær | Barney Ronay
+ - [https://www.theguardian.com/football/blog/2020/dec/12/lukewarm-anti-derby-lacks-spectacle-but-will-satisfy-ole-gunnar-solskjaer-manchester-united-city](https://www.theguardian.com/football/blog/2020/dec/12/lukewarm-anti-derby-lacks-spectacle-but-will-satisfy-ole-gunnar-solskjaer-manchester-united-city)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 21:31:09+00:00
+
+<p>Manchester United’s eerily featureless 0-0 draw with City will at least have eased the pressure on their manager</p><p>“Football without fans is nothing,” read the banner draped across the Old Trafford seats on a lukewarm night in Manchester.</p><p>Not quite nothing, perhaps. But in these Covid-19 ghost games there is a tendency, now and then, for the occasion to collapse like a deflated meringue if the start is too slow, the mood too muted. Football without fans isn’t nothing. But on nights such as these it can look like 22 men running around while people in padded jackets shout at them.</p> <a href="https://www.theguardian.com/football/blog/2020/dec/12/lukewarm-anti-derby-lacks-spectacle-but-will-satisfy-ole-gunnar-solskjaer-manchester-united-city">Continue reading...</a>
+
+## Israel establishes 'formal diplomatic relations' with Bhutan
+ - [https://www.theguardian.com/world/2020/dec/12/israel-establishes-formal-diplomatic-relations-with-bhutan](https://www.theguardian.com/world/2020/dec/12/israel-establishes-formal-diplomatic-relations-with-bhutan)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 21:06:03+00:00
+
+<p>Himalayan kingdom is latest country to recognise the Jewish state in a normalisation deal</p><p>Israel established diplomatic relations with the Himalayan kingdom of Bhutan on Saturday, the Israeli foreign ministry said, in the latest of a string of normalisation deals agreed by the Jewish state.</p><p>“The circle of recognition of Israel is widening,” the Israeli foreign minister, Gabi Ashkenazi, said in a statement. “The establishment of relations with the Kingdom of Bhutan will constitute a new stage in the deepening of Israel’s relations in Asia.”</p> <a href="https://www.theguardian.com/world/2020/dec/12/israel-establishes-formal-diplomatic-relations-with-bhutan">Continue reading...</a>
+
+## He's the MP with the Downton Abbey lifestyle. But the shadow of slavery hangs over the gilded life of Richard Drax
+ - [https://www.theguardian.com/world/2020/dec/12/hes-the-mp-with-the-downton-abbey-lifestyle-but-the-shadow-of-slavery-hangs-over-the-gilded-life-of-richard-drax](https://www.theguardian.com/world/2020/dec/12/hes-the-mp-with-the-downton-abbey-lifestyle-but-the-shadow-of-slavery-hangs-over-the-gilded-life-of-richard-drax)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 21:00:18+00:00
+
+<p>The hardline Tory Brexiter’s family made a fortune from their Caribbean plantations where thousands died. Now he faces urgent calls for reparations </p><p>Drive into Dorset on the A31 and you roll past a high brick wall butted up tight to the road that seems to go on for ever. Every so often it doglegs at a monolithic gateway crowned by either a lion or a stag. This is the “great wall of Dorset” that runs for three miles, contains some 2m bricks and shields Charborough Park from the outside world. The wall creates an air of foreboding about what might lie inside. This is home to Richard Grosvenor Plunkett-Ernle-Erle-Drax, the Conservative MP for South Dorset, who lives in the palatial Grade I-listed Charborough House, hidden from public view within the 283-hectare (700-acre) private grounds.</p><p>The park, with its outstanding garden and ancient deer park, is just a part of the 5,600 hectares of Charborough estate that makes Drax and his family the largest individual landowners in Dorset. The mainly 17th-century mansion, with its 36-metre (120ft) folly tower, is the model for Welland House in the Thomas Hardy novel Two on a Tower.</p> <a href="https://www.theguardian.com/world/2020/dec/12/hes-the-mp-with-the-downton-abbey-lifestyle-but-the-shadow-of-slavery-hangs-over-the-gilded-life-of-richard-drax">Continue reading...</a>
+
+## Wealthy MP urged to pay up for his family’s slave trade past
+ - [https://www.theguardian.com/world/2020/dec/12/wealthy-mp-urged-to-pay-up-for-his-familys-slave-trade-past](https://www.theguardian.com/world/2020/dec/12/wealthy-mp-urged-to-pay-up-for-his-familys-slave-trade-past)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 21:00:15+00:00
+
+<p>Richard Drax, the Conservative MP for South Dorset, has inherited the Drax Hall plantation in Barbados after his father’s death in 2017</p><p>A wealthy Tory MP is facing demands to pay reparations for his family’s part in the Caribbean slave trade after the Observer revealed that he now controls the plantation where his ancestors created the first slave-worked sugar plantation in the British empire almost 400 years ago.</p><p>The MP for South Dorset, Richard Drax, has inherited the 250-hectare Drax Hall plantation in Barbados from his father, inquiries by the Observer have established. His father died in 2017. Drax has not yet declared the land or its properties in the parliamentary register of members’ interests.</p> <a href="https://www.theguardian.com/world/2020/dec/12/wealthy-mp-urged-to-pay-up-for-his-familys-slave-trade-past">Continue reading...</a>
+
+## From Aubameyang to Kane, forwards today pose strikingly different threats | Jonathan Wilson
+ - [https://www.theguardian.com/football/blog/2020/dec/12/aubameyang-kane-vardy-firmino-forwards](https://www.theguardian.com/football/blog/2020/dec/12/aubameyang-kane-vardy-firmino-forwards)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 20:00:46+00:00
+
+<p> Top finishers are a varied bunch, from classic or false 9s to target men and wide-rangers who cut in to score – and adapting teams to match their gifts is what makes the best sides tick<br /></p><p>As Arsenal’s rebuild under Mikel Arteta has stalled over the past few weeks, one of the most common quick-fixes suggested has been to move Pierre-Emerick Aubameyang from the left into the middle. He’s a goalscorer, runs the argument, so you need to put him in the middle, nearer the goal. Which, frankly, is the equivalent of those Victorian doctors who believed malaria was caused by the bad air around swamps – the theory isn’t entirely unrelated to the reality, but a series of vital stages have been missed out.</p><p> <span>Related: </span><a href="https://www.theguardian.com/football/2020/dec/09/mikel-arteta-stands-by-aubameyang-amid-arsenal-captains-barren-run">Mikel Arteta stands by Aubameyang amid Arsenal captain's barren run</a> </p> <a href="https://www.theguardian.com/football/blog/2020/dec/12/aubameyang-kane-vardy-firmino-forwards">Continue reading...</a>
+
+## Reporting on rugby's dementia crisis struck all too close to home | Michael Aylwin
+ - [https://www.theguardian.com/sport/blog/2020/dec/12/reporting-rugby-dementia-crisis-alzheimers](https://www.theguardian.com/sport/blog/2020/dec/12/reporting-rugby-dementia-crisis-alzheimers)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 20:00:46+00:00
+
+<p>All the time that I have been investigating former players in middle age facing up to life-changing diagnoses, I have been watching the effects of early-onset Alzheimer’s on my wife</p><p>It has been a horrible week for rugby, a fitting end to a year more harrowing and transformational for the sport than quite possibly any – 1995 and 1895 can make way now for 2020. From the salary-cap debacle at the start, through the ravages of a global virus, the more familiar ravages of an audience endlessly critical of the product, to this, <a href="https://www.theguardian.com/sport/series/rugby-union-and-dementia---a-special-report">an association with dementia in former players barely at middle age</a> – what chance our grand old game surviving?</p><p>From a personal point of view, it has been an unsettling few months, this story first appearing in my inbox in July, while sitting on a beach in Devon. The implications were obviously dire for the sport, the cultural milieu, within which I’ve lived most of my life.</p> <a href="https://www.theguardian.com/sport/blog/2020/dec/12/reporting-rugby-dementia-crisis-alzheimers">Continue reading...</a>
+
+## Woman charged after allegedly driving car into crowd of New York protesters
+ - [https://www.theguardian.com/us-news/2020/dec/12/arrest-new-york-black-lives-matter-protesters-injured](https://www.theguardian.com/us-news/2020/dec/12/arrest-new-york-black-lives-matter-protesters-injured)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 19:55:49+00:00
+
+<p>Police say six people were injured when a car plowed into Black Lives Matter demonstrators in Manhattan</p><p>One woman was arrested after allegedly <a href="https://www.theguardian.com/us-news/2020/dec/11/new-york-vehicle-crowd-injuries-black-lives-matter-protest">driving</a> her car into a crowd of Black Lives Matter protesters in Manhattan Friday afternoon, injuring six, the New York police department (NYPD) said.</p> <a href="https://www.theguardian.com/us-news/2020/dec/12/arrest-new-york-black-lives-matter-protesters-injured">Continue reading...</a>
+
+## World is in danger of missing Paris climate target, summit is warned
+ - [https://www.theguardian.com/environment/2020/dec/12/world-is-in-danger-of-missing-paris-climate-target-summit-is-warned](https://www.theguardian.com/environment/2020/dec/12/world-is-in-danger-of-missing-paris-climate-target-summit-is-warned)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 19:30:46+00:00
+
+<p>Minister tells more than 80 world leaders that not enough is being done</p><p>The world is still not on track to fulfil the 2015 Paris climate agreement, the UK’s business secretary Alok Sharma warned, after a <a href="https://www.theguardian.com/environment/2020/dec/12/un-secretary-general-all-countries-declare-climate-emergencies-antonio-guterres-climate-ambition-summit" title="">summit of more than 70 world leaders on the climate crisis</a> ended with few new commitments on greenhouse gas emissions.</p><p>Sharma said: “[People] will ask ‘Have we done enough to put the world on track to limit warming to 1.5C and protect people and nature from the effects of climate change?’ We must be honest with ourselves – the answer to that is currently no.”</p> <a href="https://www.theguardian.com/environment/2020/dec/12/world-is-in-danger-of-missing-paris-climate-target-summit-is-warned">Continue reading...</a>
+
+## Nagorno-Karabakh: both sides blame each other over ceasefire violations
+ - [https://www.theguardian.com/world/2020/dec/12/armenian-officials-and-azerbaijan-accuse-of-breeching-nagorno-karabakh-peace-deal](https://www.theguardian.com/world/2020/dec/12/armenian-officials-and-azerbaijan-accuse-of-breeching-nagorno-karabakh-peace-deal)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 19:13:51+00:00
+
+<p>Armenia and Azerbaijan accuse each other of breaching peace deal after new clashes in Gadrut region</p><p>Armenian officials and Azerbaijan on Saturday accused each other of breaching a peace deal that ended six weeks of fierce fighting over Nagorno-Karabakh, with Azerbaijan’s leader threatening to crush Armenian forces with an “iron fist”.</p><p>The new clashes mark the first significant breach of the peace deal brokered by Russia on 10 November which saw Azerbaijan reclaim control over broad swathes of Nagorno-Karabakh and surrounding lands which were held by Armenian forces for more than a quarter of a century.</p> <a href="https://www.theguardian.com/world/2020/dec/12/armenian-officials-and-azerbaijan-accuse-of-breeching-nagorno-karabakh-peace-deal">Continue reading...</a>
+
+## How we stay together: 'It took 12 years just to get the first kiss'
+ - [https://www.theguardian.com/lifeandstyle/2020/dec/13/how-we-stay-together-it-took-12-years-just-to-get-the-first-kiss](https://www.theguardian.com/lifeandstyle/2020/dec/13/how-we-stay-together-it-took-12-years-just-to-get-the-first-kiss)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 19:00:46+00:00
+
+<p> Kate Washington and Genki Kondo’s road to coupledom was long – but the depth of their friendship serves them well now</p><p><strong>Names:</strong> Kate Washington and Genki Kondo<br /><strong>Years together: </strong>eight<br /><strong>Occupations:</strong> educator and park ranger</p><p>It was obvious to everyone but them. When Kate Washington and Genki Kondo finally told friends and family they were a couple, “None of them were even as excited as we were … they were like ‘Oh yeah of course,’” says Genki.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/dec/13/how-we-stay-together-it-took-12-years-just-to-get-the-first-kiss">Continue reading...</a>
+
+## The 'Japanese Schindler' and one Australian family's tug-of-war with the national archives
+ - [https://www.theguardian.com/australia-news/2020/dec/13/the-japanese-schindler-and-one-australian-familys-tug-of-war-with-the-national-archives](https://www.theguardian.com/australia-news/2020/dec/13/the-japanese-schindler-and-one-australian-familys-tug-of-war-with-the-national-archives)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 19:00:45+00:00
+
+<p>Linda Royal wants to tell the story of the man who saved her Jewish family from the Nazis </p><p>“What is the point of having an important document buried in an archive for decades, invisible and out of reach to the public?”</p><p>That is the question at the centre of an emotional tug-of-war over a historic travel document between the National Archives of Australia and the descendants of a Jewish family who fled Nazi Europe.</p> <a href="https://www.theguardian.com/australia-news/2020/dec/13/the-japanese-schindler-and-one-australian-familys-tug-of-war-with-the-national-archives">Continue reading...</a>
+
+## How did Enoch Powell, a man with no shame, come to haunt our times? | Nick Cohen
+ - [https://www.theguardian.com/commentisfree/2020/dec/12/how-did-enoch-powell-a-man-with-no-shame-come-to-haunt-our-times](https://www.theguardian.com/commentisfree/2020/dec/12/how-did-enoch-powell-a-man-with-no-shame-come-to-haunt-our-times)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 18:59:45+00:00
+
+The late politician specialised in sowing division and indulged in national fantasies<p>The ghost of Enoch Powell hangs over Britain this weekend, with a smile on its thin lips. If you are too young to remember him, Boris Johnson offers a recrudescence. Powell was a genuine classical scholar. Cambridge awarded him a starred double first in Latin and Ancient Greek in 1933. Johnson was so-so academically. His failure to achieve a first at Oxford <a href="https://www.studyinternational.com/news/degree-boris-johnson/" title="">enraged him</a>. But, like Powell, he learned the value of dropping a Latin phrase in a class-ridden country, which still thinks a classical education is a sign of superior intelligence.</p><p>Both told monstrous lies: not the usual dishonesties of politics, but lies that break people’s lives. Powell’s “rivers of blood” speech had a title adapted from a line from Virgil, but that didn’t make it classy. He unleashed <a href="https://www.fiyazmughal.org/rivers-of-blood-50-years-on-from-enoch-powells-speech/" title="">hatred and violence</a> against black and Asian immigrants and their children in 1968 by using the story of an old white woman in Wolverhampton. She had lost her husband and sons in the war and her reward was to be intimidated by “Negros”. Her “windows are broken. She finds excreta pushed through her letterbox. When she goes to the shops, she is followed by children, charming, wide-grinning piccaninnies. They cannot speak English, but one word they know. ‘Racialist,’ they chant.”</p> <a href="https://www.theguardian.com/commentisfree/2020/dec/12/how-did-enoch-powell-a-man-with-no-shame-come-to-haunt-our-times">Continue reading...</a>
+
+## Scotch eggs: 10-fold surge in demand for 'substantial meal'
+ - [https://www.theguardian.com/uk-news/2020/dec/12/scotch-eggs-10-fold-surge-in-demand-for-substantial-meal](https://www.theguardian.com/uk-news/2020/dec/12/scotch-eggs-10-fold-surge-in-demand-for-substantial-meal)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 18:20:28+00:00
+
+<p>The snacks were deemed by ministers last week to be sufficient to order alongside alcohol in tier 2-area pubs</p><p>Suppliers of scotch eggs have reported a surge in demand after ministers said they classed as a “substantial meal”, thereby allowing people to order alcohol alongside them in pubs.</p><p>The food wholesaler Brakes, which works with 50,000 pubs across the UK, has seen a 10-fold increase in demand for the pork and breadcrumb-covered eggs since the lockdown in England ended last week.</p> <a href="https://www.theguardian.com/uk-news/2020/dec/12/scotch-eggs-10-fold-surge-in-demand-for-substantial-meal">Continue reading...</a>
+
+## Covid-19 drives 50% of students in UK to become 'more political'
+ - [https://www.theguardian.com/education/2020/dec/12/covid-19-drives-50-of-students-in-uk-to-become-more-political](https://www.theguardian.com/education/2020/dec/12/covid-19-drives-50-of-students-in-uk-to-become-more-political)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 18:09:20+00:00
+
+<p>NUS survey also finds 63% did not believe government acting in their best interests</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>More than half of university students (52%) have become more politicised as a result of the pandemic, a survey suggests, as grassroot rent strike groups continue to gain support from undergraduates over the festive period.</p><p>The poll, conducted by the National Union of Students (NUS), also found that almost two-thirds (63%) of the 4,193 respondents did not believe the government was acting in their best interests.</p> <a href="https://www.theguardian.com/education/2020/dec/12/covid-19-drives-50-of-students-in-uk-to-become-more-political">Continue reading...</a>
+
+## Boris Johnson, one year on – cartoon
+ - [https://www.theguardian.com/commentisfree/picture/2020/dec/12/boris-johnson-one-year-on-cartoon](https://www.theguardian.com/commentisfree/picture/2020/dec/12/boris-johnson-one-year-on-cartoon)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 18:00:44+00:00
+
+<p>On the eve of Brexit, our prime minister reflects on his time at the helm</p><p>•<a href="https://guardianprintshop.com/collections/chris-riddell-1/products/13th-december-2020">You can buy your own copy of this cartoon</a></p> <a href="https://www.theguardian.com/commentisfree/picture/2020/dec/12/boris-johnson-one-year-on-cartoon">Continue reading...</a>
+
+## Maggie O'Farrell: 'My children's feedback could be pretty brutal'
+ - [https://www.theguardian.com/books/2020/dec/12/maggie-ofarrell-my-childrens-feedback-could-be-pretty-brutal](https://www.theguardian.com/books/2020/dec/12/maggie-ofarrell-my-childrens-feedback-could-be-pretty-brutal)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 18:00:44+00:00
+
+<p>The author of the prize-winning Hamnet on her first children’s book, conquering her stammer, and the advantages of living with a fellow novelist</p><p>Maggie O’Farrell, 48, was born in Coleraine, Northern Ireland and grew up in North Berwick, Scotland. She has written eight novels and one memoir. Her debut, <em>After You’d Gone</em>, won the 2000 Betty Trask award and her third novel, <em>The Distance Between Us</em>, the 2005 Somerset Maugham award. In 2010 she was awarded the Costa book award (novel) for <em><a href="https://www.theguardian.com/books/2010/apr/25/hand-that-first-held-mine">The Hand That First Held Mine</a></em>. Her most recent novel, <em><a href="https://www.theguardian.com/books/2020/mar/29/hamnet-by-maggie-o-farrell-review">Hamnet</a></em>, won this year’s Woman’s prize for fiction and is Waterstones’ book of the year. Her latest book, <em><a href="https://guardianbookshop.com/where-snow-angels-go-9781406391992.html">Where Snow Angels Go</a></em>, published last month, is her first for children. She is married to novelist William Sutcliffe and has three children.</p><p><strong>What were the inspirations behind </strong><em><strong>Where Snow Angels Go</strong></em><strong>?<br /></strong>The Snow Angel was a character I had told my children about for a long time. It started when I was in the back of an ambulance with my daughter, who has fairly regular episodes of anaphylactic shock. One of the symptoms is that you get very cold and she was quite small at the time and very scared and I said: “It’s OK, don’t worry, there’s a snow angel in this ambulance and he’s wrapping his wings around you.” I’ve always loved the idea of angels.</p> <a href="https://www.theguardian.com/books/2020/dec/12/maggie-ofarrell-my-childrens-feedback-could-be-pretty-brutal">Continue reading...</a>
+
+## The natural birth cultists care little about leaving women in agony | Barbara Ellen
+ - [https://www.theguardian.com/commentisfree/2020/dec/12/natural-birth-cultists-care-little-that-women-are-left-in-agony](https://www.theguardian.com/commentisfree/2020/dec/12/natural-birth-cultists-care-little-that-women-are-left-in-agony)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 18:00:44+00:00
+
+The horrors found by the Ockenden report are not alas confined to one maternity unit<p>What will it take for people to realise that childbirth is not a game, unless it’s a game of chance? It can all go wonderfully to plan, or it can be random and potentially lethal. Ultimately, the only thing that matters is the safety of the mother and child.</p><p>An <a href="https://www.ockendenmaternityreview.org.uk/first-report/" title="">independent investigation</a> into Shrewsbury and Telford Hospital NHS (SaTH) trust, led by senior midwife Donna Ockenden, was courageously fought for by the families of two babies who died, Kate Stanton-Davies and Pippa Griffiths. It has since expanded, finding 1,862 serious incidents mostly between 2000 and 2019, including the deaths of hundreds of babies, abnormally high maternal deaths and a catalogue of incompetence, neglect and cruelty. Failure to handle high-risk cases correctly. Reluctance to perform caesarean sections in the overzealous pursuit of “natural” (vaginal) births. Inadequate consultant supervision. Adversarial attitudes between midwives and doctors. <a href="https://www.telegraph.co.uk/news/2020/12/10/shropshire-maternity-scandal-report-women-accused-lazy-left/" title="">Mocking of struggling mothers</a> as “lazy”, and blaming of mothers for their babies’ deaths.</p> <a href="https://www.theguardian.com/commentisfree/2020/dec/12/natural-birth-cultists-care-little-that-women-are-left-in-agony">Continue reading...</a>
+
+## Nigeria: Hundreds of pupils feared missing after bandit attack on school
+ - [https://www.theguardian.com/world/2020/dec/12/nigeria-hundreds-of-pupils-feared-missing-after-bandit-attack-on-school](https://www.theguardian.com/world/2020/dec/12/nigeria-hundreds-of-pupils-feared-missing-after-bandit-attack-on-school)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 17:37:00+00:00
+
+<p>About 400 pupils thought missing or kidnapped after gunmen stormed secondary school in Kankara</p><p>Bandits armed with assault rifles attacked a secondary school in Nigeria’s north-western Katsina state late on Friday, police said, and two local people told Reuters hundreds of students were missing.</p><p>The gunmen stormed the Government Science secondary school in Kankara district at about 9.40pm, and police at the scene returned fire, allowing some students to run for safety, police spokesman Gambo Isah said in a statement.</p> <a href="https://www.theguardian.com/world/2020/dec/12/nigeria-hundreds-of-pupils-feared-missing-after-bandit-attack-on-school">Continue reading...</a>
+
+## Owners confirm sale of Bristol Banksy house going ahead
+ - [https://www.theguardian.com/artanddesign/2020/dec/12/owners-confirm-sale-of-bristol-banksy-house-going-ahead](https://www.theguardian.com/artanddesign/2020/dec/12/owners-confirm-sale-of-bristol-banksy-house-going-ahead)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 17:33:04+00:00
+
+<p>Sale put on hold for 48 hours after mural appeared but family say they have not pulled out</p><p>The owner of a house in <a href="https://www.theguardian.com/uk/bristol">Bristol</a> on which <a href="https://www.theguardian.com/artanddesign/banksy">Banksy</a> spray-painted a mural is going ahead with the sale of the property despite the appearance of the artwork, her son has said.</p><p>On Friday, ITV News West Country reported <a href="https://www.theguardian.com/artanddesign/2020/dec/10/bansky-confirms-he-created-aachoo-artwork-in-bristol">the owners said they had pulled out of the sale</a> after the street artist confirmed the “Aachoo!!” work was his – a move which could see the price of the property soar.</p> <a href="https://www.theguardian.com/artanddesign/2020/dec/12/owners-confirm-sale-of-bristol-banksy-house-going-ahead">Continue reading...</a>
+
+## Craig Revel Horwood is making Strictly wholesome and inclusive fun | Rebecca Nicholson
+ - [https://www.theguardian.com/commentisfree/2020/dec/12/craig-revel-horwood-is-making-strictly-wholesome-and-inclusive-fun](https://www.theguardian.com/commentisfree/2020/dec/12/craig-revel-horwood-is-making-strictly-wholesome-and-inclusive-fun)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 17:30:43+00:00
+
+<p>If you’re offended by drag these days then it’s probably best just to stop watching this wonderful show</p><p>The story is starting to become a seasonal staple, like the pretence that anyone actually enjoys mulled anything, or wondering why so many Christmas sandwiches taste like jam, when cranberry sauce is clearly the least essential part of any Christmas dinner. (In fact, as we trudge through a gloomy December, navigating panic-buying, worrying about the sniffles and staying indoors, it strikes me that 2020’s overall mood has been quite December-esque.) </p><p><em><a href="https://www.theguardian.com/tv-and-radio/strictly-come-dancing">Strictly Come Dancing</a></em>, as festive as tinsel all autumn long, has once again been seen to test the limits of taste, of which it is a noted paragon. For <a href="https://www.bbc.co.uk/newsround/55148980">musicals week</a> (ah, musicals, notoriously only loved by straight people), its male dancers donned a touch of drag to perform a routine inspired by the film <em><a href="https://www.youtube.com/watch?v=wGWWeourHUg&amp;ab_channel=ParkCircus">The Adventures of Priscilla, Queen of the Desert</a></em>, which contains drag queens, and also a bus.</p> <a href="https://www.theguardian.com/commentisfree/2020/dec/12/craig-revel-horwood-is-making-strictly-wholesome-and-inclusive-fun">Continue reading...</a>
+
+## Police doused in petrol while arresting man in Bolton
+ - [https://www.theguardian.com/uk-news/2020/dec/12/police-doused-in-petrol-while-arresting-man-in-bolton](https://www.theguardian.com/uk-news/2020/dec/12/police-doused-in-petrol-while-arresting-man-in-bolton)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 17:26:52+00:00
+
+<p>The man, who was being arrested for domestic violence offences, resisted arrest and also set fire to a property </p><p>Police officers were doused in petrol as they tried to arrest a man in Bolton.</p><p>The incident, which also saw a property set alight, happened shortly before 11pm on Friday as Greater Manchester police (GMP) attempted to detain the man at a house in Farnworth for recent domestic violence offences.</p> <a href="https://www.theguardian.com/uk-news/2020/dec/12/police-doused-in-petrol-while-arresting-man-in-bolton">Continue reading...</a>
+
+## Artists’ homemade Christmas cards – in pictures
+ - [https://www.theguardian.com/artanddesign/gallery/2020/dec/12/artists-homemade-christmas-cards-in-pictures](https://www.theguardian.com/artanddesign/gallery/2020/dec/12/artists-homemade-christmas-cards-in-pictures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 17:00:42+00:00
+
+<p>If you want a Christmas card alternative to glitter and puns, try the new show at <a href="https://pallant.org.uk/">Pallant House Gallery, Sussex, </a>Christmas Greetings by Modern British Artists (until 6 Jan), which showcases handmade cards from Enid Marx and Barnett Freedman to Paula Rego and Gary Hume. </p><p>Louise Weller, Pallant House’s head of exhibitions, says: ‘What I would really like viewers to take from the show is inspiration to create their own cards and send handmade, heartfelt messages of love to friends and family this Christmas.’</p> <a href="https://www.theguardian.com/artanddesign/gallery/2020/dec/12/artists-homemade-christmas-cards-in-pictures">Continue reading...</a>
+
+## The week in audio: Death of a Headmaster; Did Ya Know and more
+ - [https://www.theguardian.com/tv-and-radio/2020/dec/12/death-of-a-headmaster-review-philip-lawrence-did-ya-know-othertone-pharrell](https://www.theguardian.com/tv-and-radio/2020/dec/12/death-of-a-headmaster-review-philip-lawrence-did-ya-know-othertone-pharrell)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 17:00:42+00:00
+
+<p>A thoughtful tribute from a former pupil remembers murdered headteacher Philip Lawrence 25 years on from his death</p><p><strong>Death of a Headmaster</strong> | <a href="https://www.bbc.co.uk/sounds/play/m000q3r0">BBC Sounds</a> <br /><strong>Did Ya Know</strong> | <a href="https://podcasts.apple.com/gb/podcast/did-ya-know/id1542788843">Apple Podcasts</a><br /><strong>OTHERtone with Pharrell, Scott and Fam-Lay</strong> | <a href="https://podcasts.google.com/feed/aHR0cHM6Ly9yc3MuYXJ0MTkuY29tL290aGVydG9uZQ?sa=X&amp;ved=0CAMQ4aUDahcKEwioo77VpcHtAhUAAAAAHQAAAAAQAw&amp;hl=en-GB">Google Podcasts</a> <br /><strong>Constantly Evolving</strong> | <a href="https://www.bbc.co.uk/sounds/brand/p08y03f5">BBC Sounds</a> </p><p>Twenty-five years ago last week, Philip Lawrence was stabbed. He was the headteacher at St George’s school in Maida Vale, north-west London, and had stepped in to protect a pupil who was being attacked at the school gates by teenagers from another school. Lawrence died later the same day. One of his former pupils, broadcaster <a href="http://www.edwardadoo.com/">Edward Adoo</a>, presents <strong><a href="https://www.bbc.co.uk/programmes/m000q3r0">Death of a Headmaster</a></strong>, a touching and fair-minded Radio 4 documentary about Lawrence and his legacy.</p> <a href="https://www.theguardian.com/tv-and-radio/2020/dec/12/death-of-a-headmaster-review-philip-lawrence-did-ya-know-othertone-pharrell">Continue reading...</a>
+
+## Hong Kong democracy campaigner Jimmy Lai denied bail
+ - [https://www.theguardian.com/world/2020/dec/12/hong-kong-democracy-campaigner-jimmy-lai-denied-bail](https://www.theguardian.com/world/2020/dec/12/hong-kong-democracy-campaigner-jimmy-lai-denied-bail)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 16:50:20+00:00
+
+<p>The 72-year-old media tycoon was charged under China’s draconian new security law on Friday</p><p>The Hong Kong media tycoon and pro-democracy campaigner Jimmy Lai has been denied bail, after being charged with colluding with foreign entities under the city’s new national security law.</p><p>Lai, who marked his 72nd birthday in jail this week, appeared in court on Saturday handcuffed to a chain around his waist, and led by a police officer.</p> <a href="https://www.theguardian.com/world/2020/dec/12/hong-kong-democracy-campaigner-jimmy-lai-denied-bail">Continue reading...</a>
+
+## More than 100 public figures call for halt to Osime Brown deportation
+ - [https://www.theguardian.com/uk-news/2020/dec/12/public-figures-call-for-halt-osime-brown-deportation-priti-patel](https://www.theguardian.com/uk-news/2020/dec/12/public-figures-call-for-halt-osime-brown-deportation-priti-patel)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 16:35:49+00:00
+
+<p>Letter to Priti Patel says sending man with autism to Jamaica, which he left aged four, is a ‘death sentence’<br /></p><p>More than 100 public figures, including the former archbishop of Canterbury Rowan Williams and the Labour peer Alf Dubs, have written to the home secretary calling for her to stop the deportation of a man with autism to Jamaica.</p><p>Osime Brown, 22, from Dudley, faces being sent to Jamaica, which he left when he was four, after being jailed over the robbery of a friend’s mobile phone, a crime he says he did not commit.</p> <a href="https://www.theguardian.com/uk-news/2020/dec/12/public-figures-call-for-halt-osime-brown-deportation-priti-patel">Continue reading...</a>
+
+## Boris Johnson’s drive to cut obesity rates ‘largely ineffective’
+ - [https://www.theguardian.com/world/2020/dec/12/boris-johnsons-drive-to-cut-obesity-rates-largely-ineffective](https://www.theguardian.com/world/2020/dec/12/boris-johnsons-drive-to-cut-obesity-rates-largely-ineffective)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 16:30:42+00:00
+
+<p>A strategy to cut the number of people with obesity and more at risk of potentially fatal Covid, has failed to have much impact on behaviour, says report</p><ul><li><strong><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></strong></li><li><strong><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></strong></li></ul><p>Boris Johnson’s appeal to Britons to slim down in response to the pandemic has not helped most people lose weight, according to new research calling for a far more wide-ranging response to the obesity crisis.</p><p>Warnings about the potential added risks Covid-19 poses to people with obesity are “largely ineffective”, the study found. It said ministers placed too much emphasis on “individual willpower and not enough on the environmental and economic aspects of obesity”.</p> <a href="https://www.theguardian.com/world/2020/dec/12/boris-johnsons-drive-to-cut-obesity-rates-largely-ineffective">Continue reading...</a>
+
+## Chadwick Boseman remembered by Ruth E Carter
+ - [https://www.theguardian.com/film/2020/dec/12/chadwick-boseman-remembered-by-ruth-e-carter-black-panther-obituaries-of-2020](https://www.theguardian.com/film/2020/dec/12/chadwick-boseman-remembered-by-ruth-e-carter-black-panther-obituaries-of-2020)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 16:20:42+00:00
+
+<p><strong>29 November 1976 – 28 August 2020</strong></p><p>The Oscar-winning costume designer – who worked with the actor on Black Panther – recalls a kind, self-assured man who would rather crack a joke than talk about his illness</p><ul><li><a href="https://www.theguardian.com/music/2020/dec/12/andrew-weatherall-remembered-by-david-holmes-obituaries-2020">Andrew Weatherall remembered by David Holmes</a></li><li><a href="https://www.theguardian.com/world/series/the-observer-obituaries-of-2020">Read the Observer’s obituaries of 2020 in full</a></li></ul><p>In 2015, I interviewed for the film <em>Marshall</em>, about the supreme court justice Thurgood Marshall in the 1940s, and they told me that Chadwick Boseman was playing the lead. I really loved his work in <em>42</em> [playing Jackie Robinson], and <a href="https://www.theguardian.com/film/2014/nov/23/get-on-up-review-james-brown-mark-kermode">as James Brown in </a><em><a href="https://www.theguardian.com/film/2014/nov/23/get-on-up-review-james-brown-mark-kermode">Get on Up</a></em>, so I was excited to meet him. He walked in for his first fitting and I showed him images and black-and-white videos of people in the 40s doing the lindy hop and going out partying. He started doing some of his James Brown moves in the room, to get us into the mood – I was amazed at his dancing abilities. Thurgood Marshall would have had the tie and the pinstripe double-breasted suit and the pocket squares, so I put all of those things on Chadwick and he started to embody, maybe for the first time, what he was feeling about the character. It was wonderful to work with someone who wanted to connect costume to character like that.</p><p>He was a very thoughtful person, and quiet, but not necessarily reserved. Once you asked him a question, he was an open book, but he wasn’t volunteering the information, probably because he wanted to hear what you had to say. On the first day of filming <a href="https://www.theguardian.com/film/2017/oct/18/marshall-review-chadwick-boseman-thurgood-marshall-us-civil-rights">on </a><em><a href="https://www.theguardian.com/film/2017/oct/18/marshall-review-chadwick-boseman-thurgood-marshall-us-civil-rights">Marshall</a></em> I found out that I would be designing for<a href="https://www.theguardian.com/film/2018/feb/06/black-panther-review-marvel-wakanda-chadwick-boseman"> </a><em><a href="https://www.theguardian.com/film/2018/feb/06/black-panther-review-marvel-wakanda-chadwick-boseman">Black Panther</a></em>, which meant we’d be working together again. I wondered if I should tell him, but I decided not to. Around two weeks before we finished, I finally told him, and he said: “Oh, I already knew.”</p> <a href="https://www.theguardian.com/film/2020/dec/12/chadwick-boseman-remembered-by-ruth-e-carter-black-panther-obituaries-of-2020">Continue reading...</a>
+
+## Oh, yes you can! Pantomime returns to a doorstep near you
+ - [https://www.theguardian.com/world/2020/dec/12/oh-yes-you-can-pantomime-returns-to-a-doorstep-near-you](https://www.theguardian.com/world/2020/dec/12/oh-yes-you-can-pantomime-returns-to-a-doorstep-near-you)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 16:20:41+00:00
+
+<p>With theatres dark across the country, pioneering artists are taking their shows on the road this Christmas</p><ul><li><strong><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></strong></li><li><strong><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></strong></li></ul><p>“Dressing up” for the theatre in winter 2020 might now mean putting on an anorak, a woolly hat and gloves. While the chances of enjoying a full-length pantomime or a West End show remain very limited for many, ordering a performance, in the way you might order a cab or a takeaway, has become a reality.</p><p>This weekend, a collaboration between the ride-hailing app FreeNow and the theatre company Gideon Reeling will transport characters from the classic pantomime <em>Puss in </em><em>Boots</em> to residential streets. Where once a big festive night out for the family might have involved a black cab ride in the centre of town, now the cast will do all the travelling before emerging from inside a cab on the pavement outside your home.</p> <a href="https://www.theguardian.com/world/2020/dec/12/oh-yes-you-can-pantomime-returns-to-a-doorstep-near-you">Continue reading...</a>
+
+## UN secretary general urges all countries to declare climate emergencies
+ - [https://www.theguardian.com/environment/2020/dec/12/un-secretary-general-all-countries-declare-climate-emergencies-antonio-guterres-climate-ambition-summit](https://www.theguardian.com/environment/2020/dec/12/un-secretary-general-all-countries-declare-climate-emergencies-antonio-guterres-climate-ambition-summit)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 16:04:58+00:00
+
+<p> António Guterres tells Climate Ambition Summit more must be done to hit net zero emissions<br /></p><p>Governments around the world should all declare a state of climate emergency until the world has reached net zero CO<sub>2</sub> emissions, the UN secretary general, António Guterres, has told a <a href="https://www.climateambitionsummit2020.org/index.php#programme">summit of world leaders</a>.</p><p>At least 38 countries have already <a href="https://www.theguardian.com/world/2020/dec/02/new-zealand-declares-a-climate-change-emergency">declared such a state of emergency</a>, often owing to their vulnerability to the impacts of climate breakdown, which are already being felt.</p> <a href="https://www.theguardian.com/environment/2020/dec/12/un-secretary-general-all-countries-declare-climate-emergencies-antonio-guterres-climate-ambition-summit">Continue reading...</a>
+
+## Tales of the riverbank: a small flat on the Thames that sparkles
+ - [https://www.theguardian.com/lifeandstyle/2020/dec/12/tales-of-the-riverbank-a-small-flat-on-the-thames-that-sparkles](https://www.theguardian.com/lifeandstyle/2020/dec/12/tales-of-the-riverbank-a-small-flat-on-the-thames-that-sparkles)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 16:00:43+00:00
+
+<p>Unusual colours, watery patterns and jewel-like details bring ebb and flow to this Docklands property</p><p>Clouds scurry across the hallway of this London flat. Not real ones, of course, but the low-lying stratocumuli of a monochrome wallpaper by <a href="https://www.theguardian.com/lifeandstyle/2014/jan/18/old-vintage-cutlery-kitchenware-ebay" title="">Fornasetti</a>. It’s a clever device, calculated to pull your gaze towards the view of the Thames which flows directly beneath this eighth-floor home in a watery ribbon of greens and browns that change with the seasons.</p><p>Rachel Chudley, who designed the interior, likens the hallway to a “birthing portal… you step through the front door and – whoosh! – you’re immediately transported towards the river.” Her growing reputation for expressive style has drawn likeminded clients, such as Lulu Guinness, doyenne of vintage bag design. This project, however, was closer to home.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/dec/12/tales-of-the-riverbank-a-small-flat-on-the-thames-that-sparkles">Continue reading...</a>
+
+## 'Brexit preparation? It's a shambles, and will be for months'
+ - [https://www.theguardian.com/politics/2020/dec/12/brexit-preparation-its-a-shambles-and-will-be-for-months](https://www.theguardian.com/politics/2020/dec/12/brexit-preparation-its-a-shambles-and-will-be-for-months)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 16:00:42+00:00
+
+<p>A haulage firm and a small food manufacturer tell of the turmoil caused by a lack of clear information about any EU trade deal </p><p>Brexit, whether in no-deal or an agreed form, poses significant challenges for many sectors of the British economy. Here we talk to two businesses people for whom overcoming those obstacles is an imperative.</p> <a href="https://www.theguardian.com/politics/2020/dec/12/brexit-preparation-its-a-shambles-and-will-be-for-months">Continue reading...</a>
+
+## Man arrested after boy, 15, stabbed to death in east London
+ - [https://www.theguardian.com/uk-news/2020/dec/11/investigation-begins-after-teenager-stabbed-in-east-london](https://www.theguardian.com/uk-news/2020/dec/11/investigation-begins-after-teenager-stabbed-in-east-london)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 15:37:57+00:00
+
+<p>Police detain 25-year-old on suspicion of murder after teenager pronounced dead at scene</p><p>A 25-year-old man has been arrested on suspicion of murder after a teenage boy was stabbed to death in east London.</p><p>Police were called just before 7pm on Friday after reports of a stabbing in Woodman Street, near the royal docks in Newham.</p> <a href="https://www.theguardian.com/uk-news/2020/dec/11/investigation-begins-after-teenager-stabbed-in-east-london">Continue reading...</a>
+
+## On my radar: Flohio's cultural highlights
+ - [https://www.theguardian.com/culture/2020/dec/12/on-my-radar-flohio-cultural-highlights](https://www.theguardian.com/culture/2020/dec/12/on-my-radar-flohio-cultural-highlights)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 15:00:40+00:00
+
+<p>The rapper on her favourite new music, political art to make you think, and a beloved Asian delicacy</p><p>Flohio was born Funmi Ohiosumah in Nigeria in 1992 and raised in Bermondsey, south London. The rapper first featured on God Colony’s track <em><a href="https://soundcloud.com/mixmag-1/premiere-god-colony-se16-feat-flohio">SE16</a> </em>in 2016 and in 2018 released her first EP <em>Wild Yout,</em><em> </em>which merged UK hip-hop with grime<em>. </em>She was chosen for BBC Music’s Sound of 2019 list and her 10-track debut mixtape, <em><a href="https://www.theguardian.com/music/2020/nov/29/flohio-no-panic-no-pain-review-debut-mixtape">No Panic No Pain</a></em><em>, </em>was released last month to critical acclaim.</p> <a href="https://www.theguardian.com/culture/2020/dec/12/on-my-radar-flohio-cultural-highlights">Continue reading...</a>
+
+## Andrew Weatherall remembered by David Holmes
+ - [https://www.theguardian.com/music/2020/dec/12/andrew-weatherall-remembered-by-david-holmes-obituaries-2020](https://www.theguardian.com/music/2020/dec/12/andrew-weatherall-remembered-by-david-holmes-obituaries-2020)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 14:30:39+00:00
+
+<p><strong>6 April 1963 – 17 February 2020</strong></p><p>The composer pays tribute to a brilliant polymath with singular musical vision, who was also a warm and wise friend</p><ul><li><a href="https://www.theguardian.com/football/2020/dec/12/diego-maradona-remembered-by-angus-macqueen">Diego Maradona remembered by Angus Macqueen</a></li><li><a href="https://www.theguardian.com/world/series/the-observer-obituaries-of-2020">Read the Observer’s obituaries of 2020 in full</a></li></ul><p>I’ll start by saying that DJing, remixing and producing were just something that Andrew did. I always looked at him as a much bigger presence. Spending a day with Andrew with a spliff and a cup of tea was an educational experience. I used to leave those meetings with fire in my belly, raring to go. He couldn’t wait to tell you about the new record he had just heard, or the new film he had just watched, or the new book he had just read, because he wanted you to taste what he had just experienced. He wasn’t precious or pretentious. He wanted to share the love.</p><p>In 1990, I saw him play at a club in London. He was already this mythical, brilliant DJ. I remember getting up the courage to say: “Hi, my name’s David. I live in Belfast. Will you come and play at my club <a href="https://www.theguardian.com/music/2020/jan/01/sugar-sweet-rave-united-belfast-david-holmes-iain-mccready">Sugar Sweet</a>?” He said: “I’d absolutely love to come to Belfast. I’ve read so many books about it.” He arrived with his corkscrew curly hair, motorbike boots, leather trousers and Breton top. He looked amazing. Back then, a lot of DJs wouldn’t come to Belfast, and rightly so! I get it. But Andrew was fascinated by it. He liked to go to the weird, off-kilter, dangerous places. He loved outsiders.</p> <a href="https://www.theguardian.com/music/2020/dec/12/andrew-weatherall-remembered-by-david-holmes-obituaries-2020">Continue reading...</a>
+
+## Church of England gives space for Covid vaccination and testing for up to a year
+ - [https://www.theguardian.com/world/2020/dec/12/church-of-england-gives-space-for-covid-vaccination-and-testing-for-up-to-a-year](https://www.theguardian.com/world/2020/dec/12/church-of-england-gives-space-for-covid-vaccination-and-testing-for-up-to-a-year)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 14:30:39+00:00
+
+<p>Cathedral crypts among buildings across the country turned into coronavirus field centres</p><ul><li><strong><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></strong></li><li><strong><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></strong></li></ul><p>A growing number of churches and cathedrals are offering their city and town-centre buildings to be converted into mass vaccination and Covid testing centres, even though it could mean restricting worship for a year.</p><p>As authorities press ahead with logistical plans for the country’s biggest ever public health programme, the Church of England said offers by churches to turn over their buildings were “a great act of service and witness”.</p> <a href="https://www.theguardian.com/world/2020/dec/12/church-of-england-gives-space-for-covid-vaccination-and-testing-for-up-to-a-year">Continue reading...</a>
+
+## Mary Gaitskill: ‘The menopause had tremendous creative energy for me’
+ - [https://www.theguardian.com/lifeandstyle/2020/dec/12/this-much-i-know-mary-gaitskill-for-me-the-menopause-had-great-creative-energy](https://www.theguardian.com/lifeandstyle/2020/dec/12/this-much-i-know-mary-gaitskill-for-me-the-menopause-had-great-creative-energy)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 14:00:39+00:00
+
+<p>The novelist, 66, on not knowing how to behave, the terrors of climate change and appearing in her students’ dreams</p><p><strong>I could easily </strong>have been a completely ruined person. I could easily have committed suicide when I was in my 20s. I could easily have been someone who could not do anything, just living in a hovel in poverty somewhere. That may sound crazy, but I’m basing it on my family. Both my sisters are living that way. When I was younger it was really difficult for me to exist normally.</p><p><strong>I didn’t know </strong>how to behave socially. I don’t mean that my behaviour was wild or insane, I just often felt like I did not know what other people were talking about. The things I said were very startling to people and I didn’t know why.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/dec/12/this-much-i-know-mary-gaitskill-for-me-the-menopause-had-great-creative-energy">Continue reading...</a>
+
+## Paul McCartney: McCartney III review – light from the bunker
+ - [https://www.theguardian.com/music/2020/dec/12/paul-mccartney-mccartney-iii-review-rockdown](https://www.theguardian.com/music/2020/dec/12/paul-mccartney-mccartney-iii-review-rockdown)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 14:00:39+00:00
+
+<p>(Capitol)<br />Entirely self-produced at home during ‘rockdown’, the former Beatle’s latest offering possesses the same playful spirit as his 1970 solo debut</p><p>The song that closes Paul McCartney’s latest solo album transcribes the to-do list of a man living a simpler life. Foxes are scaring the hens and lambs, so on Winter Bird/When Winter Comes, he’s got to see to the fence. Once that’s sorted, he might tackle the drainage issues in the carrot bed. Maybe he’ll get round to planting some trees to shade future generations.</p><p>Those with long memories might recognise the Paul McCartney at work on this track, and on swaths of <em>McCartney III</em>: it’s the back-to-land fugitive of his first solo album, <em>McCartney</em> (1970). Conceived as the Beatles were fractiously imploding, it was very much the work of a cultural powerhouse in a tailspin, resetting his dials on a Scottish farm with his young family.</p> <a href="https://www.theguardian.com/music/2020/dec/12/paul-mccartney-mccartney-iii-review-rockdown">Continue reading...</a>
+
+## Trump's end-of-term execution spree is nothing more than a perverse power trip
+ - [https://www.theguardian.com/commentisfree/2020/dec/12/donald-trump-execution-spree](https://www.theguardian.com/commentisfree/2020/dec/12/donald-trump-execution-spree)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 14:00:39+00:00
+
+<p>Racking up executions at the end of your presidency would be disgusting at the best of times. Doing it during a pandemic takes cruelty to a new level</p> <a href="https://www.theguardian.com/commentisfree/2020/dec/12/donald-trump-execution-spree">Continue reading...</a>
+
+## Supreme court rejects Trump-backed Texas lawsuit aiming to overturn election results
+ - [https://www.theguardian.com/us-news/2020/dec/11/supreme-court-rejects-trump-backed-texas-lawsuit-aiming-to-overturn-election-results](https://www.theguardian.com/us-news/2020/dec/11/supreme-court-rejects-trump-backed-texas-lawsuit-aiming-to-overturn-election-results)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 13:58:31+00:00
+
+<p>Court blocks baseless effort by Republicans to undo Joe Biden’s victory in four states</p><p>The US supreme court has unanimously rejected a baseless lawsuit filed by Texas seeking to overturn the presidential election result, dealing the biggest blow yet to Donald Trump’s assault on democracy.</p><p>In a brief, one page order, all nine justices on America’s highest court dismissed the longshot effort to throw out the vote counts in four states that the president lost: Georgia, Michigan, Pennsylvania and Wisconsin.</p> <a href="https://www.theguardian.com/us-news/2020/dec/11/supreme-court-rejects-trump-backed-texas-lawsuit-aiming-to-overturn-election-results">Continue reading...</a>
+
+## ‘We don't have enough nurses to keep all our patients safe,’ says RCN leader
+ - [https://www.theguardian.com/society/2020/dec/12/we-dont-have-enough-nurses-to-keep-all-our-patients-safe-says-rcn-leader](https://www.theguardian.com/society/2020/dec/12/we-dont-have-enough-nurses-to-keep-all-our-patients-safe-says-rcn-leader)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 13:28:12+00:00
+
+<p>Vacancies hit 36,000 as burnt-out staff leave for jobs including supermarket work</p><ul><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>There are not enough nurses to safely care for patients in the UK, according to the body that represents the profession, and many of those who are working are suffering from anxiety and burnout after a gruelling nine months treating Covid patients.</p><p>A year after the prime minister pledged during the 2019 election campaign to add 50,000 nurses to the NHS, the Royal College of Nursing has accused Boris Johnson of being “disingenuous” for claiming the government is meeting this 2025 target.</p> <a href="https://www.theguardian.com/society/2020/dec/12/we-dont-have-enough-nurses-to-keep-all-our-patients-safe-says-rcn-leader">Continue reading...</a>
+
+## Children will die due to UK overseas aid cuts, paediatricians say
+ - [https://www.theguardian.com/politics/2020/dec/12/children-will-die-due-to-uk-overseas-aid-cuts-paediatricians-say](https://www.theguardian.com/politics/2020/dec/12/children-will-die-due-to-uk-overseas-aid-cuts-paediatricians-say)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 13:20:35+00:00
+
+<p>Royal college says aid cuts on top of Covid collateral will have negative impact on poorest for generations<br /></p><p>Cutting the UK’s overseas aid budget will result in a significant number of children dying “with negative impacts lasting generations”, the Royal College of Paediatrics and Child Health has said.</p><p>Joining a <a href="https://www.theguardian.com/global-development/2020/nov/26/uk-aid-cuts-unprincipled-unjustified-and-harmful-say-experts-and-mps">chorus of voices opposing</a> the reduction of overseas aid funding <a href="https://www.theguardian.com/global-development/2020/nov/25/uk-foreign-aid-budget-cut-chancellor-announces">from 0.7% to 0.5% of Britain’s gross national income</a>, the RCPCH said the evidence was overwhelming that aid helped children’s health and any reduction would have far-reaching consequences.</p> <a href="https://www.theguardian.com/politics/2020/dec/12/children-will-die-due-to-uk-overseas-aid-cuts-paediatricians-say">Continue reading...</a>
+
+## Police investigate suspected voyeur over fake nude gameshow
+ - [https://www.theguardian.com/uk-news/2020/dec/12/police-investigate-suspected-voyeur-over-fake-nude-gameshow](https://www.theguardian.com/uk-news/2020/dec/12/police-investigate-suspected-voyeur-over-fake-nude-gameshow)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 13:04:04+00:00
+
+<p>Detectives follow up reports of men being coerced into naked challenges for chance to win £5,000</p><p>Police are appealing for information as part of an investigation into a fake nude gameshow.</p><p>A 28-year-old man reported that he had been approached by a man claiming to be in the entertainment industry.</p> <a href="https://www.theguardian.com/uk-news/2020/dec/12/police-investigate-suspected-voyeur-over-fake-nude-gameshow">Continue reading...</a>
+
+## This year, for the first time, I won’t go home for Christmas. Will my family ties loosen for good?
+ - [https://www.theguardian.com/lifeandstyle/2020/dec/12/this-year-for-the-first-time-i-wont-go-home-for-christmas-will-my-family-ties-loosen-for-good](https://www.theguardian.com/lifeandstyle/2020/dec/12/this-year-for-the-first-time-i-wont-go-home-for-christmas-will-my-family-ties-loosen-for-good)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 13:00:38+00:00
+
+<p>Flying visits to Northern Ireland kept me connected. FaceTime, Zoom and my niece’s drawings arriving by post are no substitute</p><p>I have never missed Christmas at home, though I have lived elsewhere for more than 20 years. This year, I will break that run. The festive travel window means that I could fly back to Northern Ireland from London. But my father is elderly and our neighbourhood on the border has been relatively untouched by Covid-19 until recently, so it doesn’t feel the safest plan. Instead, I’ll be in London. It will mark a year since I’ve been home; the longest I’ve ever been away.</p><p>With a flight time of under an hour, on a ticket often cheaper than a night out, I normally go home many times a year. It means I never have to miss a big night out; if it’s an emergency, I can be back in a matter of hours. Being home often feels crucial to my sense of self.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/dec/12/this-year-for-the-first-time-i-wont-go-home-for-christmas-will-my-family-ties-loosen-for-good">Continue reading...</a>
+
+## Keir Starmer winning Tory Leave voters for Labour – poll
+ - [https://www.theguardian.com/politics/2020/dec/12/keir-starmer-winning-over-tory-leave-voters-to-labour-poll](https://www.theguardian.com/politics/2020/dec/12/keir-starmer-winning-over-tory-leave-voters-to-labour-poll)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 12:53:19+00:00
+
+<p>As the party leader decides whether to back any Brexit deal, a survey of 7,000 electors shows he has closed the gap with the Conservatives since the election last year</p><p>More Leave voters than Remainers have swung from the Tories to Labour since the last election, according to a major polling project that suggests Keir Starmer, the Labour leader, has made some early progress in bridging the Brexit divide.</p><p>A large 7,000-strong poll, designed to examine the political changes that have taken place since Labour’s disastrous result, found that the party was showing signs of winning over some of those who backed the Tories last year.</p> <a href="https://www.theguardian.com/politics/2020/dec/12/keir-starmer-winning-over-tory-leave-voters-to-labour-poll">Continue reading...</a>
+
+## Brexit: UK and EU continue trade talks as deadline looms
+ - [https://www.theguardian.com/politics/2020/dec/12/brexit-uk-eu-continue-trade-talks-deadline-looms](https://www.theguardian.com/politics/2020/dec/12/brexit-uk-eu-continue-trade-talks-deadline-looms)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 12:32:52+00:00
+
+<p>Less than 48 hours left to reach deal, as UK prepares to deploy naval ships to patrol waters<br /></p><p>Trade talks between the UK and the EU are continuing with less than 48 hours to go until the deadline imposed by both parties to reach a deal.</p><p>With both sides saying on Friday that an agreement on trade was unlikely, Boris Johnson met Michael Gove, the minister who has responsibility for Brexit planning, to “take stock” of plans for a no-deal exit from the EU. The UK is also <a href="https://www.theguardian.com/uk-news/2020/dec/11/four-navy-ships-to-help-protect-uk-waters-in-case-of-no-deal-brexit">readying four Royal Navy patrol ships</a> to help protect its fishing waters from 1 January in the event a deal cannot be reached.</p> <a href="https://www.theguardian.com/politics/2020/dec/12/brexit-uk-eu-continue-trade-talks-deadline-looms">Continue reading...</a>
+
+## Duck and all the trimmings: Signe Johansen's recipes for a Scandinavian Christmas dinner
+ - [https://www.theguardian.com/food/2020/dec/12/roast-duck-cherry-glogg-sauce-winter-salad-janssons-temptation-signe-johansen-scandinavian-christmas-dinner-recipes](https://www.theguardian.com/food/2020/dec/12/roast-duck-cherry-glogg-sauce-winter-salad-janssons-temptation-signe-johansen-scandinavian-christmas-dinner-recipes)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 12:00:37+00:00
+
+<p>A Scandinavian feast of blow-dried roast duck with a boozy cherry sauce, a winter salad with clementines and candied walnuts, and a luxurious, layered potato hotpot</p><p>In Scandinavia, a season of cosy celebrations mark the dark period of midwinter. From lighting candles on the first Sunday of advent to baking spiced biscuits and cakes to share with loved ones, people across the region come together several times during December, and the <em>julebord</em> (or Christmas smörgåsbord) held on the evening of 24 December is a simple feast of hot and cold dishes, usually prepared in advance so both the host and guests can relax together. This year, the nature of these celebrations will be disrupted, so I’ve adapted a few of my favourite seasonal recipes so they can easily scale down for a <em>hyggelig</em> celebration between two or three people. <em>God jul</em>, as we say in Norwegian – and let’s hope for brighter festivities in 2021.</p> <a href="https://www.theguardian.com/food/2020/dec/12/roast-duck-cherry-glogg-sauce-winter-salad-janssons-temptation-signe-johansen-scandinavian-christmas-dinner-recipes">Continue reading...</a>
+
+## ‘My goal is justice for all Syrians’: one man’s journey from jail to witness for the prosecution
+ - [https://www.theguardian.com/world/2020/dec/12/my-goal-is-justice-for-all-syrians-one-mans-journey-from-jail-to-witness-for-the-prosecution](https://www.theguardian.com/world/2020/dec/12/my-goal-is-justice-for-all-syrians-one-mans-journey-from-jail-to-witness-for-the-prosecution)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 12:00:37+00:00
+
+<p>Anwar al-Bunni devoted his life to human rights in Syria. Now in exile in Germany, he is part of a landmark first prosecution for war crimes against Bashar al-Assad’s regime</p><p>Anwar al-Bunni had only been in Germany a couple of months when he walked into a shop and found himself face to face with the man he believes had interrogated and jailed him nearly a decade earlier. Both men were buying groceries in a Turkish shop near the gates of Marienfelde, the Berlin refugee camp they now called home. There was a vague flicker of recognition, but Bunni couldn’t quite place the other man.</p><p>It was 2014, a year<strong> </strong>before <a href="https://www.theguardian.com/world/2020/aug/30/angela-merkel-great-migrant-gamble-paid-off">Angela Merkel’s decision to open Germany’s borders to refugees</a> drew more than a million people fleeing war and hardship to the country. Even so, thousands of Syrians had already found their way to Berlin. Bunni, a human rights lawyer with more than three decades’ experience fighting the Syrian regime in the courts, and several years spent inside its jails for his trouble, was part of a large network of colleagues, clients, friends and former opponents.</p> <a href="https://www.theguardian.com/world/2020/dec/12/my-goal-is-justice-for-all-syrians-one-mans-journey-from-jail-to-witness-for-the-prosecution">Continue reading...</a>
+
+## Benjamina Ebuehi's Christmas recipe for mini clementine ginger tarts | The sweet spot
+ - [https://www.theguardian.com/food/2020/dec/12/benjamina-ebuehis-christmas-recipe-for-mini-clementine-ginger-tarts](https://www.theguardian.com/food/2020/dec/12/benjamina-ebuehis-christmas-recipe-for-mini-clementine-ginger-tarts)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 11:00:36+00:00
+
+<p>The sweetness of clementine curd mellows the hit of fiery ginger in this tasty winter dessert</p><p><strong> We g</strong><strong>et through a ridiculous amount of ginger in my house. </strong>Whether it’s fresh, crystallised or stem ginger in syrup, it’s such a familiar comfort and makes many appearances in both my sweet and savoury cooking at this time of year. Sometimes I’ll lean in to the fiery heat that ginger can bring, but for desserts I prefer to mellow it out a little with sweetness. Enter sweet clementine curd.</p> <a href="https://www.theguardian.com/food/2020/dec/12/benjamina-ebuehis-christmas-recipe-for-mini-clementine-ginger-tarts">Continue reading...</a>
+
+## Lewis Hamilton has spoken out on human rights. Formula One will have to take a stand | Sayed Ahmed AlWadaei
+ - [https://www.theguardian.com/commentisfree/2020/dec/12/lewis-hamilton-human-rights-formula-one-grand-prix-abu-dhabi-regimes](https://www.theguardian.com/commentisfree/2020/dec/12/lewis-hamilton-human-rights-formula-one-grand-prix-abu-dhabi-regimes)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 11:00:35+00:00
+
+<p>The grand prix season ends in Abu Dhabi this weekend. The sport needs to rethink its partnerships with oppressive regimes</p><p>For Formula One fans around the world, the news that world champion Lewis Hamilton <a href="https://www.theguardian.com/sport/2020/dec/10/george-russell-replace-lewis-hamilton-f1-gp-abu-dhabi">has recovered from coronavirus</a> and will be fit to race in Abu Dhabi this weekend will be met with jubilation. F1’s management, on the other hand, might be feeling ambivalent. </p><p><br />Over the course of a season marred by Covid-19, Hamilton’s increasingly <a href="https://www.theguardian.com/sport/2020/nov/17/lewis-hamilton-george-floyd-f1-record-championships-greatest-driver-racism">firm stance</a> on social justice, sparked by the Black Lives Matter movement, has frequently overshadowed the racing. And last month, before the Bahrain Grand Prix, he made the <a href="https://www.theguardian.com/sport/2020/nov/26/f1-has-massive-problem-to-address-over-human-rights-says-lewis-hamilton">incendiary claim</a> that F1 has a “consistent and massive problem” with human rights abuses in the places it visits. Chase Carey, the head of F1, hit back, saying “we are very <a href="https://edition.cnn.com/2020/12/01/motorsport/formula-one-bahrain-grand-prix-chase-carey-human-rights-spt-intl/index.html">proud of our partnership</a> here in Bahrain”, but this has done little to quell the uproar.</p> <a href="https://www.theguardian.com/commentisfree/2020/dec/12/lewis-hamilton-human-rights-formula-one-grand-prix-abu-dhabi-regimes">Continue reading...</a>
+
+## The British middle class is in freefall, its young people pushed into precarity | Owen Jones
+ - [https://www.theguardian.com/commentisfree/2020/dec/12/british-middle-class-young-people-class-home-ownership-job-security](https://www.theguardian.com/commentisfree/2020/dec/12/british-middle-class-young-people-class-home-ownership-job-security)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 10:00:35+00:00
+
+<p>The children of affluent and working-class parents alike can no longer expect home ownership, job security or a decent salary <br /></p><p>The great decline of the British middle class is as stark as it is little discussed. A year ago, Labour’s losses in the so-called red wall seemed to emphasise a historic collapse in its relationship with those described as the party’s “traditional, working-class” base. In the election campaign itself, the psephologist Sir John Curtice <a href="https://www.express.co.uk/news/uk/1214528/Polling-John-Curtice-Jeremy-Corbyn-BBC-Andrew-Marr-latest-news">said that</a> Labour was “no longer a party of the working class. [It’s] a party of young people”. </p><p>It is not to disparage his polling expertise to point out that treating “the working class” and the “young” as separate categories is somewhat puzzling. It is more accurate to describe a collapse of the middle class among the young: the “proletarianisation” of a generation, to use a particularly catchy phrase.</p> <a href="https://www.theguardian.com/commentisfree/2020/dec/12/british-middle-class-young-people-class-home-ownership-job-security">Continue reading...</a>
+
+## Origin story: what do we know now about where coronavirus came from?
+ - [https://www.theguardian.com/world/2020/dec/12/where-did-coronavirus-come-from-covid](https://www.theguardian.com/world/2020/dec/12/where-did-coronavirus-come-from-covid)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 10:00:34+00:00
+
+<p>When Chinese scientists alerted colleagues to a new virus last December, suspicion fell on a Wuhan market. What have health officials learned since then?</p><ul><li><a href="https://support.theguardian.com/contribute?acquisitionData=%7B%22source%22%3A%22GUARDIAN_WEB%22%2C%22componentType%22%3A%22ACQUISITIONS_STANDFIRST%22%2C%22componentId%22%3A%22covid_supplement_2020_standfirst%22%2C%22campaignCode%22%3A%22covid_supplement_2020%22%7D&amp;INTCMP=covid_supplement_2020">Show your support for rigorous, independent Guardian journalism</a></li><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p>Maria van Kerkhove was staying with her sister in the US for the Christmas holidays, but checking her emails. As always. Every day there are signals of potential trouble, said the World Health Organization virologist who was to become a household name and face within weeks.</p><p>“There’s always something that happens at Christmas time. There’s always some alert, or a signal of a suspected case. The last several years it’s been Mers [Middle East respiratory syndrome] – a suspect case travelling to Malaysia or Indonesia or Korea or somewhere in Asia from the Middle East. So there’s always some kind of signal. There’s always something that happens,” she said.</p> <a href="https://www.theguardian.com/world/2020/dec/12/where-did-coronavirus-come-from-covid">Continue reading...</a>
+
+## Should London be in tier 3? Politicians face Covid rules dilemma
+ - [https://www.theguardian.com/uk-news/2020/dec/12/london-tier-3-politicians-covid-rules-dilemma](https://www.theguardian.com/uk-news/2020/dec/12/london-tier-3-politicians-covid-rules-dilemma)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 10:00:34+00:00
+
+<p>Some advisers say strictest rules should already cover city – while others warn of jobs catastrophe</p><ul><li>‘<a href="https://www.theguardian.com/world/2020/dec/12/tier-3-upminster-fears-tougher-covid-rules">If we go into tier 3, I’m done’: Upminster fears tougher Covid rules</a></li><li><a href="https://www.theguardian.com/world/series/coronavirus-live/latest">Coronavirus – latest updates</a></li></ul><p>Even in a political year of hugely difficult decisions, the one looming next week looks particularly tricky – and risks dividing the government: whether London should move into the top tier of coronavirus restrictions.</p><p><a href="https://www.theguardian.com/world/2020/nov/27/areas-in-england-may-go-down-a-tier-before-christmas-says-robert-jenrick">Boris Johnson told the public “your tier is not your destiny”</a> as England emerged from a four-week November lockdown, holding out the hope that restrictions could be loosened when they are reviewed on 16 December.</p> <a href="https://www.theguardian.com/uk-news/2020/dec/12/london-tier-3-politicians-covid-rules-dilemma">Continue reading...</a>
+
+## Talk is cheap when it comes to climate action. Now the government must deliver | Matthew Pennycook
+ - [https://www.theguardian.com/commentisfree/2020/dec/12/talk-is-cheap-when-it-comes-to-climate-action-now-the-government-must-deliver](https://www.theguardian.com/commentisfree/2020/dec/12/talk-is-cheap-when-it-comes-to-climate-action-now-the-government-must-deliver)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 10:00:34+00:00
+
+<p>Despite Boris Johnson’s pledges, the UK is way off course on its path to net zero emissions. It’s Labour’s job to force the issue<br /><br />• Matthew Pennycook is shadow minister for climate change</p><p>The coronavirus pandemic and the jobs crisis it has precipitated are rightly consuming our immediate attention. Meanwhile, the climate and environment emergency has not gone away. These intersecting crises demand urgent and coordinated action.</p><p>When it comes to averting catastrophic global heating, the science is unequivocal: bold action is required, and it is required now. As the UN has warned, <a href="https://www.un.org/en/sections/issues-depth/climate-change/">limiting warming to 1.5C</a> requires “far-reaching and unprecedented changes in all aspects of society” for which “the next few years are probably the most important in our history”.</p> <a href="https://www.theguardian.com/commentisfree/2020/dec/12/talk-is-cheap-when-it-comes-to-climate-action-now-the-government-must-deliver">Continue reading...</a>
+
+## 'Our school had children who couldn't afford event days'
+ - [https://www.theguardian.com/society/2020/dec/12/our-school-had-children-who-couldnt-afford-event-days](https://www.theguardian.com/society/2020/dec/12/our-school-had-children-who-couldnt-afford-event-days)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 08:30:32+00:00
+
+<p>The Child Poverty Action Group helped a Dundee primary make life better for deprived families </p><ul><li>Please donate to our appeal <a href="https://guardian.ctdonate.org/?utm_source=gdnwb&amp;utm_medium=editorial&amp;utm_campaign=Marketing_CharityAppeal_1119&amp;CMP_TU=editorial&amp;CMP_BUNIT=edtrl">here</a></li></ul><p>It was the “special occasions” at her children’s school that Anna (name changed) struggled with. She and her partner both work but, with four children, stumping up the cash for Halloween costumes, Christmas jumper days or pyjama days was tricky.</p><p>“Sometimes we could manage, other times we couldn’t,” she said. “I’ve kept my kids off school in the past when we couldn’t afford to send them in with whatever it was that they were meant to have.” On other occasions, such as book fairs, she would have to borrow money.</p> <a href="https://www.theguardian.com/society/2020/dec/12/our-school-had-children-who-couldnt-afford-event-days">Continue reading...</a>
+
+## David Attenborough: ‘The Earth and its oceans are finite. We need to show mutual restraint’
+ - [https://www.theguardian.com/tv-and-radio/2020/dec/12/david-attenborough-the-earth-and-its-oceans-are-finite-we-need-to-show-mutual-restraint](https://www.theguardian.com/tv-and-radio/2020/dec/12/david-attenborough-the-earth-and-its-oceans-are-finite-we-need-to-show-mutual-restraint)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 08:00:34+00:00
+
+<p>At 94, what has the world’s most-travelled naturalist learned? He talks garden birds in lockdown, the eerie silence of Chernobyl – and tackling the climate crisis<br /></p><p>Before the stay-at-home orders of 2020 kept him in one place for months on end, <a href="https://www.theguardian.com/tv-and-radio/david-attenborough" title="">David Attenborough</a> had never sat in his garden and listened to the birds. Not properly, he says, not determinedly “swotting up with a notebook and keeping a bird list”. The foremost figure in natural-world broadcasting (so admired by naturalists around the planet, he has three types of plant as well as a spider, snail, grasshopper, frog, lizard, marsupial lion and shark-like fish named after him) hardly paid attention to the wildlife on his doorstep until lockdown forced his hand. From spring through to autumn, he says, he sat outside with a pencil and made a determined effort to identify every species he could hear. Blackbirds. Thrushes. Jays. Blue tits and great tits. Swifts.</p><p>“Actually, I couldn’t really hear the swifts,” the 94-year-old admits. Something to do with their pitch, and his failing ears. “My hearing,” Attenborough growls, using the breathy, mournful voice that often accompanies footage of an ageing alpha getting supplanted by a younger fitter animal, “is not what it was.”</p> <a href="https://www.theguardian.com/tv-and-radio/2020/dec/12/david-attenborough-the-earth-and-its-oceans-are-finite-we-need-to-show-mutual-restraint">Continue reading...</a>
+
+## Veganattone and 'no turkey' crowns: it's a merry vegan Christmas for UK retailers
+ - [https://www.theguardian.com/business/2020/dec/12/veganattone-and-no-turkey-crowns-its-a-merry-vegan-christmas-for-uk-retailers](https://www.theguardian.com/business/2020/dec/12/veganattone-and-no-turkey-crowns-its-a-merry-vegan-christmas-for-uk-retailers)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 08:00:31+00:00
+
+<p>Waitrose, Tesco and M&amp;S report surges in vegan food sales, as grocery chains expand plant-based ranges</p><p>Forget nut roast, or boring old vegetable wellington. From so-called “veganettone” to sticky toffee pudding and even meat-free whole “no turkey” crowns, retailers and food manufacturers are pulling out all the stops to offer a dizzying range of plant-based options for the traditional <a href="https://www.theguardian.com/food/christmas-food-and-drink">Christmas spread.</a></p><p>As research reveals that more than one in four Britons plan to eat more <a href="https://www.theguardian.com/food/vegan">vegan food</a> at Christmas this year, supermarkets are reporting strong sales of alternatives to festive staples, with some “limited edition” alternatives to the turkey centrepiece already selling out.</p> <a href="https://www.theguardian.com/business/2020/dec/12/veganattone-and-no-turkey-crowns-its-a-merry-vegan-christmas-for-uk-retailers">Continue reading...</a>
+
+## ‘It brings cheer after a rubbish year’: advent windows light up UK streets
+ - [https://www.theguardian.com/lifeandstyle/2020/dec/12/advent-windows-light-up-uk-streets](https://www.theguardian.com/lifeandstyle/2020/dec/12/advent-windows-light-up-uk-streets)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 07:00:30+00:00
+
+<p>Festive window decorating takes off as communities adapt to Christmas amid pandemic</p><p>On Tuesday evening the lights will go on in Clare Bennett’s front window and a carefully constructed snow scene will be revealed to her neighbours. “There have been endless discussions about the use of Sellotape and sticky-back plastic. It’s been quite a learning curve seeing what you need to make a window display,” she said. “You can get quite lost in these discussions.”</p><p>Bennett’s window will be number 15 in a living advent calendar. “We’re all really impressed with the quality of the ones so far, and there is a pressure not to let the side down,” she said.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/dec/12/advent-windows-light-up-uk-streets">Continue reading...</a>
+
+## Blind date: ‘She has a gap in her teeth which is charming, and a bit boho’
+ - [https://www.theguardian.com/lifeandstyle/2020/dec/12/blind-date-liz-philip](https://www.theguardian.com/lifeandstyle/2020/dec/12/blind-date-liz-philip)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 06:00:30+00:00
+
+<p>Philip, 57, sales manager, and Liz, 61, illustrator</p><p><strong>What were you hoping for?</strong><br />An interesting and entertaining evening, and to meet a soulmate.</p> <a href="https://www.theguardian.com/lifeandstyle/2020/dec/12/blind-date-liz-philip">Continue reading...</a>
+
+## The 20 best photographs of the week
+ - [https://www.theguardian.com/artanddesign/gallery/2020/dec/12/the-20-best-photographs-of-the-week](https://www.theguardian.com/artanddesign/gallery/2020/dec/12/the-20-best-photographs-of-the-week)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 06:00:29+00:00
+
+<p>Protests in Santiago, Neymar kneels in support of Black Lives Matter, the conflict in Ethiopia, and the enduring impact of Covid-19: the most striking images from around the world</p> <a href="https://www.theguardian.com/artanddesign/gallery/2020/dec/12/the-20-best-photographs-of-the-week">Continue reading...</a>
+
+## Iran executes dissident journalist accused of inciting unrest
+ - [https://www.theguardian.com/world/2020/dec/12/iran-executes-dissident-journalist-for-inspiring-2017-protests](https://www.theguardian.com/world/2020/dec/12/iran-executes-dissident-journalist-for-inspiring-2017-protests)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 05:54:55+00:00
+
+<p>Amnesty International brands rush to execute Ruhollah Zam ‘reprehensible’ </p><p>Iran has executed a dissident journalist, a year after he was seized by the country’s elite Revolutionary Guards in Iraq and forcibly repatriated to face trial.</p><p>Ruhollah Zam, 47, was hanged early on Saturday morning, Iranian state media reported. His family visited him the previous day, but prison and judicial authorities had not told them or him about the scheduled execution, Amnesty International said.</p> <a href="https://www.theguardian.com/world/2020/dec/12/iran-executes-dissident-journalist-for-inspiring-2017-protests">Continue reading...</a>
+
+## Fatal crash closes southbound M1 near Leicester, causing huge tailbacks
+ - [https://www.theguardian.com/world/2020/dec/12/huge-tailbacks-after-fatal-crash-closes-southbound-m1-near-leicester](https://www.theguardian.com/world/2020/dec/12/huge-tailbacks-after-fatal-crash-closes-southbound-m1-near-leicester)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 04:42:28+00:00
+
+<p>Police appeal for witnesses after a collision involving two lorries leaves a 52-year-old man dead </p><p>A man has died and the M1 has been closed southbound in Leicestershire following a collision between two lorries, causing long tailbacks.</p><p>The crash happened at around 7pm on Friday evening on the southbound carriageway of the motorway, close to junction 21a at Leicester Forest East, police said in a statement.</p> <a href="https://www.theguardian.com/world/2020/dec/12/huge-tailbacks-after-fatal-crash-closes-southbound-m1-near-leicester">Continue reading...</a>
+
+## Coronavirus live news: US regulator approves emergency use of Pfizer vaccine, Trump says
+ - [https://www.theguardian.com/world/live/2020/dec/12/coronavirus-live-news-brazil-investigates-reinfection-australia-pins-hopes-on-oxford-vaccine](https://www.theguardian.com/world/live/2020/dec/12/coronavirus-live-news-brazil-investigates-reinfection-australia-pins-hopes-on-oxford-vaccine)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 02:51:01+00:00
+
+<p>UK coronavirus hospitalisations increase; indoor dining restrictions reinstated in New York; WHO warns number of deaths surging</p><ul><li><a href="https://www.theguardian.com/world/2020/dec/11/pfizer-vaccine-fda-emergency-use-authorization-covid">FDA chief urged by White House to approve Pfizer vaccine ‘or quit’</a></li><li><a href="https://www.theguardian.com/world/2020/dec/11/scientists-warn-against-christmas-gatherings-uk-despite-relaxed-rules-covid">Scientists warn against Christmas gatherings in UK </a></li><li><a href="https://www.theguardian.com/us-news/2020/dec/11/california-covid-19-cases-deaths-hospital-beds">California’s ICU beds near capacity as hospitalizations hit record</a></li><li><a href="https://www.theguardian.com/world/coronavirus-outbreak">See all our coronavirus coverage</a></li></ul><p class="block-time published-time"> <time datetime="2020-12-12T02:45:52.622Z">2.45am <span class="timezone">GMT</span></time> </p><p>The <strong>US president, Donald Trump</strong>, has released a video confirming the FDA’s approval of the Pfizer vaccine. </p><p>He begins by saying: “I have really good news.”</p><p>Today our nation has achieved a medical miracle. We have delivered a safe and effective vaccine in just nine months. This is one of the greatest scientific accomplishments in history. It will save millions of lives and soon end the pandemic once and for all. I am thrilled to report that the FDA has authorised the Pfizer vaccine. We have given Pfizer and other companies a great deal of money hoping this would be the outcome, and it was.</p><p dir="ltr" lang="und"><a href="https://t.co/ofLq3OMicv">pic.twitter.com/ofLq3OMicv</a></p><p class="block-time published-time"> <time datetime="2020-12-12T02:33:13.913Z">2.33am <span class="timezone">GMT</span></time> </p><p>The US Food and Drug Administration has reportedly given emergency approval to a coronavirus vaccine developed by Pfizer and BioNTech, the first drug to prevent Covid-19 approved in the US.</p><p>It makes the US the sixth country – following Britain, Bahrain, Canada, Saudi Arabia and Mexico – to approve the vaccine. The news was <a href="https://www.nytimes.com/2020/12/11/health/pfizer-vaccine-authorized.html?action=click&amp;module=Top%20Stories&amp;pgtype=Homepage">first reported</a> by the New York Times.</p><p> <span>Related: </span><a href="https://www.theguardian.com/world/2020/dec/11/fda-approves-pfizer-biontech-covid-19-coronavirus-vaccine-for-use-in-us">FDA reportedly approves Pfizer/BioNTech coronavirus vaccine for emergency use in US</a> </p> <a href="https://www.theguardian.com/world/live/2020/dec/12/coronavirus-live-news-brazil-investigates-reinfection-australia-pins-hopes-on-oxford-vaccine">Continue reading...</a>
+
+## Switzerland denies deal with China was threat to dissidents
+ - [https://www.theguardian.com/world/2020/dec/12/switzerland-denies-deal-with-china-was-threat-to-dissidents](https://www.theguardian.com/world/2020/dec/12/switzerland-denies-deal-with-china-was-threat-to-dissidents)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 02:23:44+00:00
+
+<p>Government says deal allowing Beijing officials to interrogate Chinese nationals was standard ‘technical arrangement’</p><p>The Swiss government has strongly rejected accusations that <a href="https://www.theguardian.com/world/2020/dec/09/secret-deal-reveals-chinese-spies-free-rein-switzerland">a deal allowing Chinese officials to enter Switzerland</a> and interrogate Chinese nationals put dissidents at risk.</p><p><a href="https://www.theguardian.com/world/switzerland">Switzerland</a> entered into a so-called re-admission agreement with <a href="https://www.theguardian.com/world/china">China</a> back in 2015. The deal expired on Monday.</p> <a href="https://www.theguardian.com/world/2020/dec/12/switzerland-denies-deal-with-china-was-threat-to-dissidents">Continue reading...</a>
+
+## Trump administration puts second man to death in two days
+ - [https://www.theguardian.com/us-news/2020/dec/11/federal-execution-alfred-bourgeois-trump-administration](https://www.theguardian.com/us-news/2020/dec/11/federal-execution-alfred-bourgeois-trump-administration)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 02:18:23+00:00
+
+<p>Alfred Bourgeois’s IQ put him in the intellectually disabled category, which should have barred execution, lawyers say</p><p>The Trump administration continued its unprecedented series of post-election federal executions Friday by putting to death a Louisiana truck driver who abused and killed his two-year-old daughter. </p><p>Alfred Bourgeois, 56, was pronounced dead at 8.21pm eastern time after receiving a lethal injection at the federal prison in Terre Haute, Indiana.</p> <a href="https://www.theguardian.com/us-news/2020/dec/11/federal-execution-alfred-bourgeois-trump-administration">Continue reading...</a>
+
+## Kurdish refugee 'shocked' by Australia's decision to free him after seven years in detention
+ - [https://www.theguardian.com/australia-news/2020/dec/12/kurdish-refugee-shocked-by-australias-decision-to-free-him-after-seven-years-in-detention](https://www.theguardian.com/australia-news/2020/dec/12/kurdish-refugee-shocked-by-australias-decision-to-free-him-after-seven-years-in-detention)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 02:13:33+00:00
+
+<p>Farhad Bandesh to speak at Melbourne rally and also outside Mantra hotel, where more than 60 people remain in detention</p><p>A Kurdish refugee who was suddenly <a href="https://www.theguardian.com/australia-news/ng-interactive/2020/dec/10/timeline-australia-offshore-immigration-detention-system-program-census-of-asylum-seekers-refugees">freed from immigration detention after seven-and-a-half years</a> has said he feels “reborn again”, and thanked supporters and human rights activists.</p><p>Farhad Bandesh, an artist and musician who fled persecution in Iran, arrived in Australia in 2013 but was held on Manus Island for six years, and then in detention in Australia since July 2019.</p> <a href="https://www.theguardian.com/australia-news/2020/dec/12/kurdish-refugee-shocked-by-australias-decision-to-free-him-after-seven-years-in-detention">Continue reading...</a>
+
+## UK government 'has underestimated takeup for Hong Kong resettlement scheme'
+ - [https://www.theguardian.com/world/2020/dec/12/uk-government-underestimates-takeup-hong-kong-resettlement](https://www.theguardian.com/world/2020/dec/12/uk-government-underestimates-takeup-hong-kong-resettlement)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 00:01:22+00:00
+
+<p>Survey finds more than 600,000 may want to move to Britain, many within two years of January start date</p><p>Hong Kong residents are likely to move to the UK faster than the British government has anticipated, and more should be done to prepare for their arrival, a new advocacy group has said.</p><p>HongKongers in Britain (HKB) surveyed city residents hoping to emigrate under a <a href="https://www.theguardian.com/world/2020/jun/03/britain-could-change-immigration-rules-for-hong-kong-citizens">new British government scheme</a> that opens in January, allowing those with colonial-era British National Overseas (BNO) status to obtain visas and pursue a “path to citizenship”.</p> <a href="https://www.theguardian.com/world/2020/dec/12/uk-government-underestimates-takeup-hong-kong-resettlement">Continue reading...</a>
+
+## Talking Horses: Winters is coming to Cheltenham with a likeable 14-1 shot
+ - [https://www.theguardian.com/sport/2020/dec/11/crowds-back-at-cheltenham-but-festival-numbers-likely-to-be-limited-talking-horses-horse-racing-tips](https://www.theguardian.com/sport/2020/dec/11/crowds-back-at-cheltenham-but-festival-numbers-likely-to-be-limited-talking-horses-horse-racing-tips)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-12-12 00:00:19+00:00
+
+<p>Chatham Street Lad, known as a Cork specialist, has the talent to do well in Gloucestershire against the zippy Coole Cody</p><p>The County Cork trainer Michael Winters has yet to saddle a jumps winner in Britain but that may be about to change as he sends over the fascinating <strong>Chatham Street Lad (1.50) </strong>for a tilt at the Caspian Caviar Gold Cup. The horse is seen as a specialist at his local track, with four wins there, and Cork is very different to Cheltenham, but he had so much in hand when he scored there last month that it is hard to believe he will not get involved.</p><p> <span>Related: </span><a href="https://www.theguardian.com/sport/2020/dec/10/veteran-trainer-dismayed-as-panel-fines-him-over-triple-nickle-effort">Talking Horses: veteran trainer dismayed by his first fine in 36 years</a> </p> <a href="https://www.theguardian.com/sport/2020/dec/11/crowds-back-at-cheltenham-but-festival-numbers-likely-to-be-limited-talking-horses-horse-racing-tips">Continue reading...</a>
+

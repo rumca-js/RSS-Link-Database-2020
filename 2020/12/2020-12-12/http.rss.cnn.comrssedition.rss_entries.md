@@ -1,0 +1,305 @@
+# Source:CNN, URL:http://rss.cnn.com/rss/edition.rss, language:en-US
+
+## Trump raised firing Barr in White House meeting on Friday
+ - [https://www.cnn.com/2020/12/12/politics/william-barr-donald-trump-white-house-meeting/index.html](https://www.cnn.com/2020/12/12/politics/william-barr-donald-trump-white-house-meeting/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 23:57:25+00:00
+
+President Donald Trump raised the prospect of firing Attorney General William Barr in a meeting on Friday, but it's unclear whether he'll choose to dismiss Barr before the end of his term next month.
+
+## Analyst discusses Russian misinformation around Covid-19 vaccine
+ - [https://www.cnn.com/videos/politics/2020/12/12/coronavirus-vaccine-trump-biden-transition-vinograd-presidential-brief-nr-vpx.cnn](https://www.cnn.com/videos/politics/2020/12/12/coronavirus-vaccine-trump-biden-transition-vinograd-presidential-brief-nr-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 23:22:33+00:00
+
+CNN national security analyst Samantha Vinograd discusses the risks of disinformation around the coronavirus vaccine and warns Americans to be on "high alert."
+
+## Undercover cops dressed as Santa and his elf fight crime at a California shopping center
+ - [https://www.cnn.com/2020/12/12/us/santa-cops-california-trnd/index.html](https://www.cnn.com/2020/12/12/us/santa-cops-california-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 21:07:50+00:00
+
+Cops dressed as Santa Claus and his elf jumped into action when they saw  car being stolen, said police in Riverside, California.
+
+## Boris Johnson may find himself increasingly isolated at a crucial moment in history
+ - [https://www.cnn.com/2020/12/12/uk/boris-johnson-difficult-year-intl-gbr/index.html](https://www.cnn.com/2020/12/12/uk/boris-johnson-difficult-year-intl-gbr/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 20:57:50+00:00
+
+On December 12, 2019, Boris Johnson fulfilled his destiny.
+
+## Trump schemes next political moves after effort to overthrow democracy dead ends at Supreme Court
+ - [https://www.cnn.com/2020/12/12/politics/donald-trump-supreme-court-pfizer-vaccine/index.html](https://www.cnn.com/2020/12/12/politics/donald-trump-supreme-court-pfizer-vaccine/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 20:31:20+00:00
+
+President Donald Trump's effort to unravel democracy hit a dead end at the Supreme Court Friday night, capping five weeks in which he dragged the country along on his narcissistic quest to stay in power after President-elect Joe Biden overwhelmingly won the election.
+
+## What we know about Pfizer's vaccine
+ - [https://www.cnn.com/2020/12/11/health/pfizer-vaccine-what-we-know/index.html](https://www.cnn.com/2020/12/11/health/pfizer-vaccine-what-we-know/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 20:20:53+00:00
+
+• US surpasses 16 million Covid-19 cases
+• LATEST: Vaccine hesitancy now 'biggest challenge' in Covid fight
+
+## 'Monumental' vaccine news arrives on the deadliest day of the pandemic in the US
+ - [https://www.cnn.com/collections/intl-vaccine-1212/](https://www.cnn.com/collections/intl-vaccine-1212/)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 20:12:11+00:00
+
+
+
+## 'Monumental' vaccine news arrives on the deadliest day of the pandemic in the US
+ - [https://www.cnn.com/2020/12/12/health/us-coronavirus-saturday/index.html](https://www.cnn.com/2020/12/12/health/us-coronavirus-saturday/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 19:59:17+00:00
+
+• Exclusive: US vaccine authorization is 'a most important milestone,' BioNTech CEO says
+• Quick OK of first US Covid-19 vaccine cut no corners, FDA officials promise
+
+## Organizers apologize after videos show packed crowds at Mexican art festival
+ - [https://www.cnn.com/videos/travel/2020/12/12/tulum-mexico-music-festival-covid-19-rivers-pkg-vpx.cnn](https://www.cnn.com/videos/travel/2020/12/12/tulum-mexico-music-festival-covid-19-rivers-pkg-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 19:31:23+00:00
+
+The five-day Art With Me festival drew hundreds of attendees in mid-November. The organizers have apologized after images and video posted on social media revealed packed crowds of people without masks in Mexico's hipster resort town of Tulum. CNN's Matt Rivers reports.
+
+## Trump made big in-roads in Hispanic areas across the nation
+ - [https://www.cnn.com/2020/12/12/politics/trump-hispanic-vote/index.html](https://www.cnn.com/2020/12/12/politics/trump-hispanic-vote/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 19:26:10+00:00
+
+One of the most notable early results on Election Night came from Florida's heavily Hispanic Miami-Dade county. President Donald Trump lost it to President-elect Joe Biden by just 7 points, after losing it by 29 points in 2016.
+
+## Covid-19 vaccine developer AstraZeneca agrees to buy rare disease firm Alexion for $39 billion
+ - [https://www.cnn.com/2020/12/12/business/astrazeneca-alexion-39-billion/index.html](https://www.cnn.com/2020/12/12/business/astrazeneca-alexion-39-billion/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 18:39:42+00:00
+
+Leading Covid-19 vaccine developer AstraZeneca agreed on Saturday to buy Boston pharmaceutical firm Alexion for $39 billion.
+
+## The 30 retailers and restaurant chains that filed for bankruptcy in 2020
+ - [https://www.cnn.com/2020/12/12/business/retailers-restaurants-bankrupt-2020/index.html](https://www.cnn.com/2020/12/12/business/retailers-restaurants-bankrupt-2020/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 18:30:51+00:00
+
+There's no way to sugarcoat it: 2020 was a brutal year for restaurants and stores. The pandemic, massive amounts of debt and a shift in shopping as well as dining habits created a lethal cocktail of bankruptcies and closures.
+
+## 'I don't know if I ever competed in a clean field,' says Phelps
+ - [https://www.cnn.com/2020/12/12/sport/michael-phelps-tokyo-doping-olympics-spt-intl/index.html](https://www.cnn.com/2020/12/12/sport/michael-phelps-tokyo-doping-olympics-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 18:27:22+00:00
+
+Michael Phelps, who retired as the most decorated Olympian in history in 2016, is not holding out much hope for a clean Olympics Games in Tokyo next year.
+
+## NASCAR driver Ryan Newman is Google's most-searched for athlete of 2020
+ - [https://www.cnn.com/2020/12/12/sport/ryan-newman-nascar-google-athlete-search-spt-intl/index.html](https://www.cnn.com/2020/12/12/sport/ryan-newman-nascar-google-athlete-search-spt-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 18:26:11+00:00
+
+NASCAR driver Ryan Newman, who survived a horror crash earlier this year, was the most-searched for athlete of 2020, according to Google.
+
+## Analysis: Trump deal is yet another headache for Biden team
+ - [https://www.cnn.com/2020/12/12/politics/trump-morocco-analysis-intl/index.html](https://www.cnn.com/2020/12/12/politics/trump-morocco-analysis-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 17:34:56+00:00
+
+On Thursday, Morocco became the fourth Arab state this year to announce it would establish relations with Israel. It was another diplomatic win for the Trump administration, with US President Donald Trump tweeting that it was "a massive breakthrough for peace in the Middle East!"
+
+## Iran executes dissident journalist Rouhollah Zam
+ - [https://www.cnn.com/2020/12/12/middleeast/iran-execution-journalist-rouhollah-zam-intl/index.html](https://www.cnn.com/2020/12/12/middleeast/iran-execution-journalist-rouhollah-zam-intl/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 17:22:42+00:00
+
+Dissident Iranian journalist Rouhollah Zam was hanged in Iran on Saturday morning, according to state television IRIB.
+
+## The emergency alert Biden should send on Inauguration Day
+ - [https://www.cnn.com/2020/12/12/opinions/biden-wireless-emergency-alert-coronavirus-stillman/index.html](https://www.cnn.com/2020/12/12/opinions/biden-wireless-emergency-alert-coronavirus-stillman/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 16:45:54+00:00
+
+Meteorologists learned long ago that an accurate forecast or severe weather warning is useless if it doesn't reach its intended audience. The same is true for public health guidance.
+
+## Pentagon official who spread conspiracies, disparaged immigrants and refugees gets spot on influential West Point advisory board
+ - [https://www.cnn.com/2020/12/12/politics/kfile-douglas-macgregor-west-point-board/index.html](https://www.cnn.com/2020/12/12/politics/kfile-douglas-macgregor-west-point-board/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 16:01:13+00:00
+
+A senior adviser at the Pentagon with a history of disparaging refugees and immigrants, spreading conspiracies, and other controversial rhetoric was nominated by President Donald Trump on Tuesday for a spot on West Point's advisory board.
+
+## Why the stock market feels immune to the pandemic
+ - [https://www.cnn.com/2020/12/12/politics/what-matters-december-11/index.html](https://www.cnn.com/2020/12/12/politics/what-matters-december-11/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 15:42:53+00:00
+
+Unless you've been studying birds on a remote island in the South Pacific since last February, you know there's a worldwide pandemic going on that's ground large portions of the economy to a halt.
+
+## Santa visits look different this Christmas. Here's what to expect
+ - [https://www.cnn.com/videos/business/2020/12/09/christmas-santa-mall-virtual-visits-eg-llr-orig.cnn](https://www.cnn.com/videos/business/2020/12/09/christmas-santa-mall-virtual-visits-eg-llr-orig.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 13:56:32+00:00
+
+Santa Claus is offering virtual calls from the North Pole and socially distanced visits at malls across the country this Christmas, giving families a personalized and safe experience during the Covid-19 pandemic.
+
+## Navy boats on standby to protect UK waters in case of no-deal Brexit
+ - [https://www.cnn.com/2020/12/12/uk/brexit-no-deal-navy-intl-gbr/index.html](https://www.cnn.com/2020/12/12/uk/brexit-no-deal-navy-intl-gbr/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 13:44:20+00:00
+
+The UK will have "a range of robust enforcement measures" at the end of the Brexit transition period, including "numerous" offshore patrol vessels available in its territorial waters, the Ministry of Defense (MOD) said Saturday.
+
+## What is a faithless elector and how common are they?
+ - [https://www.cnn.com/videos/politics/2020/12/11/faithless-electors-supreme-court-2020-mh-orig.cnn](https://www.cnn.com/videos/politics/2020/12/11/faithless-electors-supreme-court-2020-mh-orig.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 12:57:11+00:00
+
+Faithless electors have never had an impact on the outcome of an election, but they have occurred over the years. Here's how it works.
+
+## The Supreme Court's clear message to President Trump: Stop
+ - [https://www.cnn.com/2020/12/11/politics/trump-turmoil-supreme-court/index.html](https://www.cnn.com/2020/12/11/politics/trump-turmoil-supreme-court/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 12:33:31+00:00
+
+During the past four years, President Donald Trump has challenged the integrity of the Supreme Court and tried to drag the justices into the legal muck with him.
+
+## She lost her Army Vet husband and gave birth to their premature baby in 48 hours
+ - [https://www.cnn.com/2020/12/12/us/covid-19-joy-sorry-keenes/index.html](https://www.cnn.com/2020/12/12/us/covid-19-joy-sorry-keenes/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 12:24:08+00:00
+
+Jeffery Michael Keene was a devoted husband, father and an Army combat veteran. He had served four tours in Afghanistan and Iraq during his 12 years of service. Despite being in the front lines of war, he would face his deadliest challenge at home.
+
+## The moments before police fatally shot a Black man entering his own home
+ - [https://www.cnn.com/2020/12/12/us/casey-goodson-jr-what-we-know/index.html](https://www.cnn.com/2020/12/12/us/casey-goodson-jr-what-we-know/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 11:26:23+00:00
+
+A Franklin County Sheriff's Office deputy was in Columbus, Ohio, on December 4 looking for violent offenders. Instead, he fatally shot Casey Goodson Jr., a 23-year-old Black man, who had no criminal background, according to a family attorney, and was not the target of any investigation.
+
+## Covid-19 took the personal out of personal training. Here's how trainers adapted
+ - [https://www.cnn.com/2020/12/12/us/personal-trainers-adapt-covid-19/index.html](https://www.cnn.com/2020/12/12/us/personal-trainers-adapt-covid-19/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 11:10:02+00:00
+
+Things were looking up for Jason Zenga in late 2019 and in early 2020.
+
+## Former gang member is named Missouri's Teacher of the Year
+ - [https://www.cnn.com/2020/12/12/us/former-gang-member-teacher-trnd/index.html](https://www.cnn.com/2020/12/12/us/former-gang-member-teacher-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 10:05:10+00:00
+
+Darrion Cockrell hated school as a child, as he navigated the the foster care system. He joined a gang by age 10.
+
+## Rediscovered 70-year-old photos spark worldwide quest
+ - [https://www.cnn.com/travel/article/mystery-photos-europe-1950s-travel-william-fagan/index.html](https://www.cnn.com/travel/article/mystery-photos-europe-1950s-travel-william-fagan/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 10:00:03+00:00
+
+In one photo, a woman wearing a patterned dress walks down a deserted street in Bellagio, northern Italy, a small dachshund lapping at her heels. To her left there's a gelateria, and at the end of the passageway, a stone church looms ahead.
+
+## Gold coins, medieval treasures discovered in British countryside during lockdown
+ - [https://www.cnn.com/style/article/lockdown-garden-archaeology-trnd/index.html](https://www.cnn.com/style/article/lockdown-garden-archaeology-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 09:16:00+00:00
+
+New quarantine hobbies have unearthed new passions, some bringing with them a literal silver lining.
+
+## Celebrate winter with 8 holiday traditions from around the world
+ - [https://www.cnn.com/travel/article/holiday-traditions-around-the-world-wellness/index.html](https://www.cnn.com/travel/article/holiday-traditions-around-the-world-wellness/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 09:11:01+00:00
+
+You know this part already: The holidays are different this year. In order to protect loved ones from a deadly virus, families around the world are avoiding gatherings, sometimes canceling beloved events altogether.
+
+## After fighting cancer, Tracey Emin returns to the art world with raw, emotional works
+ - [https://www.cnn.com/style/article/tracey-emin-interview/index.html](https://www.cnn.com/style/article/tracey-emin-interview/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 09:07:44+00:00
+
+Tracey Emin is utterly fearless. Just months after undergoing extensive surgery to treat an aggressive bladder cancer, the famed British artist, who has been remarkably candid about the entire ordeal, has two new shows in London. And in line with her highly personal -- and often controversial -- art practice, her dual exhibition with Expressionist painter Edvard Munch is one of naked bodies, gestural brushstrokes and raw emotions.
+
+## This 74-year-old grandmother just graduated from college alongside her granddaughter
+ - [https://www.cnn.com/2020/12/12/us/grandmother-granddaughter-graduate-trnd/index.html](https://www.cnn.com/2020/12/12/us/grandmother-granddaughter-graduate-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 07:25:15+00:00
+
+It's never too late to get college diploma.
+
+## These containers will deliver Covid-19 vaccines across continents and oceans. But they were made to ship something else entirely
+ - [https://www.cnn.com/2020/12/12/business/thermo-king-coronavirus-vaccine-freezer/index.html](https://www.cnn.com/2020/12/12/business/thermo-king-coronavirus-vaccine-freezer/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 06:52:04+00:00
+
+It's one of the biggest logistical challenges in modern history: How will millions of Covid-19 vaccine doses that must be kept at incredibly cold temperatures be quickly shipped across continents and oceans?
+
+## A grieving family in Trump country is fighting to prevent more Covid-19 deaths
+ - [https://www.cnn.com/2020/12/11/us/colorado-masks-may-bunjes/index.html](https://www.cnn.com/2020/12/11/us/colorado-masks-may-bunjes/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 06:10:33+00:00
+
+May Bunjes was a giver who lived to donate her time and money to those less fortunate in her community in Greeley, Colorado.
+
+## Two Black men have been executed within two days. Two more are set to die before Biden's inauguration
+ - [https://www.cnn.com/2020/12/12/us/brandon-bernard-alfred-bourgeois-executions/index.html](https://www.cnn.com/2020/12/12/us/brandon-bernard-alfred-bourgeois-executions/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 05:30:11+00:00
+
+Anger over federal executions continued to grow Friday after two Black men died by lethal injection within nearly 24 hours.
+
+## Woman who lost mother to coronavirus has message for Trump
+ - [https://www.cnn.com/videos/us/2020/12/12/colorado-family-devastated-kafanov-coronavirus-pkg-ctn-vpx.cnn](https://www.cnn.com/videos/us/2020/12/12/colorado-family-devastated-kafanov-coronavirus-pkg-ctn-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 05:09:48+00:00
+
+CNN's Lucy Kafanov talks to a Colorado family who lost a relative to Covid-19.
+
+## Supreme Court rejects Texas' and Trump's bid to overturn election
+ - [https://www.cnn.com/2020/12/11/politics/supreme-court-texas-trump-biden/index.html](https://www.cnn.com/2020/12/11/politics/supreme-court-texas-trump-biden/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 05:09:30+00:00
+
+The Supreme Court rejected a bid from Texas' attorney general -- supported by President Donald Trump -- to block the ballots of millions of voters in battleground states that went in favor of President Elect Joe Biden.
+
+## Sarah Palin makes false election claims
+ - [https://www.cnn.com/videos/politics/2020/12/12/sarah-palin-donald-trump-false-claims-2020-election-nobles-pkg-vpx-ebof.cnn](https://www.cnn.com/videos/politics/2020/12/12/sarah-palin-donald-trump-false-claims-2020-election-nobles-pkg-vpx-ebof.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 01:49:25+00:00
+
+Former Governor of Alaska Sarah Palin has joined President Donald Trump and his allies in continuing to push false election claims. CNN's Ryan Nobles reports.
+
+## After 51 years, the Zodiac Killer's cipher has been solved by amateur codebreakers
+ - [https://www.cnn.com/2020/12/11/us/zodiac-killer-cypher-340-code-trnd/index.html](https://www.cnn.com/2020/12/11/us/zodiac-killer-cypher-340-code-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 00:49:34+00:00
+
+More than 50 years after the so-called Zodiac Killer first began terrorizing the streets of Northern California, a code-breaking team is believed to have finally cracked one of the killer's mysterious coded messages sent to the San Francisco Chronicle in 1969.
+
+## Thousands of people are protesting with farmers in India. This is why you should care
+ - [https://www.cnn.com/2020/12/11/world/farmer-protests-india-protests-hnk-trnd/index.html](https://www.cnn.com/2020/12/11/world/farmer-protests-india-protests-hnk-trnd/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 00:40:19+00:00
+
+Farmers in India have reached a stalemate with the government over its proposed amendments to laws the farmers feel will ravage their livelihoods and create an opportunity for large, private companies to enter and exploit the entire agriculture sector.
+
+## Famed GOP election lawyer weighs in on Supreme Court decision
+ - [https://www.cnn.com/videos/politics/2020/12/11/ginsberg-supreme-court-rejects-bid-overturn-election-reaction-vpx.cnn](https://www.cnn.com/videos/politics/2020/12/11/ginsberg-supreme-court-rejects-bid-overturn-election-reaction-vpx.cnn)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 00:18:38+00:00
+
+CNN's Wolf Blitzer talks to Republican lawyer Ben Ginsberg about the Supreme Court rejecting President Donald Trump's bid to overturn the 2020 election results.
+
+## Lil Wayne pleads guilty to federal firearm charge
+ - [https://www.cnn.com/2020/12/11/entertainment/lil-wayne-gun-charge-guilty-plea/index.html](https://www.cnn.com/2020/12/11/entertainment/lil-wayne-gun-charge-guilty-plea/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 00:12:35+00:00
+
+Rapper Lil Wayne faces up to 10 years in federal prison after he pleaded guilty Friday to illegal gun possession, prosecutors said.
+
+## Senator to bring Ken Starr to testify at hearing on 2020 elections
+ - [https://www.cnn.com/2020/12/11/politics/ron-johnson-ken-starr-2020-election-hearing/index.html](https://www.cnn.com/2020/12/11/politics/ron-johnson-ken-starr-2020-election-hearing/index.html)
+ - RSS feed: http://rss.cnn.com/rss/edition.rss
+ - date published: 2020-12-12 00:02:54+00:00
+
+Sen. Ron Johnson, the chairman of the Homeland Security and Governmental Affairs Committee, has invited former independent counsel Ken Starr and attorneys in key battleground states to testify at a controversial hearing next week where he plans to probe the 2020 election that President-elect Joe Biden won.
+

@@ -1,0 +1,590 @@
+# Source:The Guardian, URL:https://www.theguardian.com/rss, language:en-UK
+
+## Scientists discover Neanderthal skeleton that hints at flower burial
+ - [https://www.theguardian.com/science/2020/feb/18/scientists-discover-neanderthal-skeleton-in-an-iraqi-cave](https://www.theguardian.com/science/2020/feb/18/scientists-discover-neanderthal-skeleton-in-an-iraqi-cave)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 23:41:34+00:00
+
+<p>The fossils found in Iraqi cave provide fresh evidence the species buried their death with mortuary rituals</p><p>A Neanderthal skeleton unearthed in an Iraqi cave, already famous for fossils of these cousins of our species, is providing fresh evidence that they buried their dead – and intriguing clues that flowers may have been used in such rituals.</p><p>Scientists said they had discovered the well-preserved upper body skeleton of an adult Neanderthal, who lived about 70,000 years ago, in Shanidar Cave in the semi-autonomous Kurdistan region of northern Iraq on Tuesday. The individual – dubbed Shanidar Z – was perhaps in his or her 40s or 50s with their sex undetermined.</p> <a href="https://www.theguardian.com/science/2020/feb/18/scientists-discover-neanderthal-skeleton-in-an-iraqi-cave">Continue reading...</a>
+
+## Restoration work inside Pompeii's House of Lovers – in pictures
+ - [https://www.theguardian.com/science/gallery/2020/feb/18/restoration-work-inside-pompeii-house-of-lovers-in-pictures](https://www.theguardian.com/science/gallery/2020/feb/18/restoration-work-inside-pompeii-house-of-lovers-in-pictures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 18:15:00+00:00
+
+<p>The ancient Roman city’s House of the Lovers has reopened to the public 40 years after it was severely damaged in 1980 by an earthquake </p><ul><li><a href="https://www.theguardian.com/science/2020/feb/18/pompeii-house-of-lovers-reopens-to-public-after-40-years">Pompeii’s House of Lovers reopens to public</a></li></ul> <a href="https://www.theguardian.com/science/gallery/2020/feb/18/restoration-work-inside-pompeii-house-of-lovers-in-pictures">Continue reading...</a>
+
+## How will you be affected by UK university strikes?
+ - [https://www.theguardian.com/education/2020/feb/18/how-will-you-be-affected-by-uk-university-strikes](https://www.theguardian.com/education/2020/feb/18/how-will-you-be-affected-by-uk-university-strikes)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 18:09:55+00:00
+
+<p>Whether you are a student or university staff, we would like to hear how you are being affected by industrial strike action</p><p>The <a href="https://www.ucu.org.uk/article/10621/UCU-announces-14-strike-days-at-74-UK-universities-in-February-and-March">University College Union (UCU)</a> have confirmed that staff from 74 universities across the UK will go on strike starting on Thursday for 14 days until 13 March 2020.</p><p>The strike follows the <a href="https://www.theguardian.com/education/2019/nov/25/university-strike-staff-walk-out-uk-pay-pensions">November and December 2019</a> strike, in which staff from 60 universities walked out over disputes regarding pay, pensions and working conditions. The strikes are expected to cause significant <a href="https://www.theguardian.com/education/2019/nov/20/university-students-face-disruption-after-union-warns-of-strike">disruption</a> to the studies of university students during the final weeks of term.</p> <a href="https://www.theguardian.com/education/2020/feb/18/how-will-you-be-affected-by-uk-university-strikes">Continue reading...</a>
+
+## Dawn Butler: I'm mistaken for other black female MPs at least once a week
+ - [https://www.theguardian.com/politics/2020/feb/18/exhausting-battle-dawn-butler-on-calling-out-racism-in-politics](https://www.theguardian.com/politics/2020/feb/18/exhausting-battle-dawn-butler-on-calling-out-racism-in-politics)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 17:50:03+00:00
+
+<p>Labour deputy leadership hopeful talks about ‘exhausting battle’ of calling out racism in politics</p><p>Dawn Butler, the Labour deputy leader candidate, has revealed she is mistaken for other black female colleagues “at least once a week” and described her “exhausting battle” to be correctly identified, after the BBC confused her with fellow MP Marsha de Cordova earlier this month.</p><p>The senior Labour MP, who was the first black woman to speak at the dispatch box in 2009, said she had been becoming “immune” to being mixed up with colleagues, but felt it necessary to speak out this time because she did not want newer MPs to suffer the same misidentification.</p> <a href="https://www.theguardian.com/politics/2020/feb/18/exhausting-battle-dawn-butler-on-calling-out-racism-in-politics">Continue reading...</a>
+
+## Paddington Green: inside the anti-terror HQ taken over by climate anarchists
+ - [https://www.theguardian.com/world/2020/feb/18/paddington-green-inside-the-anti-terror-hq-taken-over-by-climate-anarchists](https://www.theguardian.com/world/2020/feb/18/paddington-green-inside-the-anti-terror-hq-taken-over-by-climate-anarchists)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 17:00:44+00:00
+
+<p>The Green Anti-Capitalist Front have occupied the closed police station to use as a base for week of action</p><p>For almost 50 years, Paddington Green police station in London was the nexus of the UK’s anti-terror policing operations. Its 16 high-security, subterranean cells have held IRA terrorists, Islamist would-be suicide bombers and prisoners returned from Guantánamo Bay.</p><p>But, in an extraordinary reversal, it is now anarchists from groups listed in controversial anti-terrorist guidance who hold the keys to its cell blocks. They have squatted the vast complex and intend to use it as a base for environmental protest.</p> <a href="https://www.theguardian.com/world/2020/feb/18/paddington-green-inside-the-anti-terror-hq-taken-over-by-climate-anarchists">Continue reading...</a>
+
+## Everything you need to know about gum disease – and how to prevent it
+ - [https://www.theguardian.com/healthy-smiles/2020/feb/18/everything-you-need-to-know-about-gum-disease-and-how-to-prevent-it](https://www.theguardian.com/healthy-smiles/2020/feb/18/everything-you-need-to-know-about-gum-disease-and-how-to-prevent-it)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 16:33:22+00:00
+
+<p>Almost half of the UK population will have advanced gum disease at some point in their 40s, 50s or later. So what can be done to avoid it?</p><p>“We’re the gum gardeners,” says dental hygienist Elaine Tilling, head of clinical education at TePe. “Revolting phrase, isn’t it? But healthy gums are so important to your overall health.”</p><p>When we think of dental issues, it’s usually cavities, corrective braces or a half-day off work after having our wisdom teeth out that come to mind. But for Tilling and her fellow hygienists, the health of our gums should occupy much more of our brain space.</p> <a href="https://www.theguardian.com/healthy-smiles/2020/feb/18/everything-you-need-to-know-about-gum-disease-and-how-to-prevent-it">Continue reading...</a>
+
+## What causes bad breath? – and 11 other common dental questions answered
+ - [https://www.theguardian.com/healthy-smiles/2020/feb/18/what-causes-bad-breath-and-11-other-common-dental-questions-answered](https://www.theguardian.com/healthy-smiles/2020/feb/18/what-causes-bad-breath-and-11-other-common-dental-questions-answered)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 16:33:13+00:00
+
+<p>Is coffee really that bad for our teeth? Does it matter if we don’t floss? And is it possible to repair enamel? Dental expert and hygienist Elaine Tilling has the answers</p><p>From the first signs of tooth decay to at-home whitening advice, we asked TePe’s dental hygiene expert Elaine Tilling to answer our most pressing dental dos and don’ts. And by gum, she delivered. Here’s everything you ever wanted to know about oral hygiene, but were too scared of the dentist to ask …</p><p><strong>Q. What’s the best thing I can do for my teeth?<br /></strong>A. Simple: brush your teeth regularly using a fluoride toothpaste, clean between your teeth daily with floss or an <a href="https://www.tepe.com/uk/products/interdental-brushes/?utm_source=guardian&amp;utm_medium=article&amp;utm_campaign=WhatCausesBadBreath&amp;utm_content=TextLink" rel="nofollow">interdental brush</a> to clean those tiny spaces, and eat a balanced diet. That doesn’t mean you have to be healthier than thou – chocolate and sweets are only really bad if you graze between meals, but eating them with your meal is OK. Drinks-wise, the safest beverage is water.</p> <a href="https://www.theguardian.com/healthy-smiles/2020/feb/18/what-causes-bad-breath-and-11-other-common-dental-questions-answered">Continue reading...</a>
+
+## Tell us about spring wildflowers in Europe and the UK to win £200 towards a UK/Europe stay
+ - [https://www.theguardian.com/travel/2020/feb/18/readers-tips-competition-spring-wildflowers-europe-uk-win-200-towards-a-sawdays-stay](https://www.theguardian.com/travel/2020/feb/18/readers-tips-competition-spring-wildflowers-europe-uk-win-200-towards-a-sawdays-stay)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 16:22:34+00:00
+
+<p>Share a tip on wildflowers and colourful displays of spring blossoms and blooms in the countryside and nature parks</p><p>You may have wandered in Exmoor’s hidden valleys and come across carpets of snowdrops or hiked past vibrant crocus fields in the High Tatras. Wherever you have seen superb displays of spring wildflowers and blossom, please let us know.</p><p>It’s OK if they are in arboretums, nature parks or public gardens. Please stick to Europe, including the UK, this time.</p> <a href="https://www.theguardian.com/travel/2020/feb/18/readers-tips-competition-spring-wildflowers-europe-uk-win-200-towards-a-sawdays-stay">Continue reading...</a>
+
+## ‘I’ve got everything I want to do right here’: life as an apprentice junior content producer
+ - [https://www.theguardian.com/fire-up-your-future/video/2020/feb/18/ive-got-everything-i-want-to-do-right-here-life-as-an-apprentice-junior-content-producer](https://www.theguardian.com/fire-up-your-future/video/2020/feb/18/ive-got-everything-i-want-to-do-right-here-life-as-an-apprentice-junior-content-producer)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 15:37:28+00:00
+
+<p>Entrepreneur Jamal Edwards&nbsp;goes behind the scenes with Tafadzwa Muchenje, who is doing an apprenticeship with Channel 4&nbsp;</p><p><b><i>Fire it up</i></b><br /><i>Engineering, food, fashion – if you can think of it, there’s probably an apprenticeship available. From large corporations to agile startups, everyone’s getting involved. Excited? Visit</i><i>&nbsp;</i><i><a href="http://apprenticeships.gov.uk/">apprenticeships.gov.uk</a></i></p> <a href="https://www.theguardian.com/fire-up-your-future/video/2020/feb/18/ive-got-everything-i-want-to-do-right-here-life-as-an-apprentice-junior-content-producer">Continue reading...</a>
+
+## Leavism: the troubling truth behind the trend to keep working while on holiday
+ - [https://www.theguardian.com/money/shortcuts/2020/feb/18/leavism-trend-for-working-while-on-holiday-cary-cooper](https://www.theguardian.com/money/shortcuts/2020/feb/18/leavism-trend-for-working-while-on-holiday-cary-cooper)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 15:26:49+00:00
+
+Overworked employees are using their annual leave to catch up on tasks they should have left behind at the office. And it isn’t just precarity and smartphones to blame<br /><p>‘I can’t wait for my holiday,” a colleague told me. “I’m going to get so much work done!” At the time, I wasn’t shocked. Many professionals I know use their holidays as an opportunity to work. I have to admit that when I’m on holiday, I wake up early so I can do some sneaky work before the rest of the family appear and demanding I “relax”.</p><p>Now this trend of working on holidays has been given a name: leavism. Prof Cary Cooper and his colleagues at Manchester University <a href="https://www.researchgate.net/profile/Ian_Hesketh2/publication/273080838_Leaveism_and_public_sector_reform_will_the_practice_continue/links/54f6d1d40cf21d8b8a5dadbd.pdf" title="">first identified leavism in 2014</a>. They surveyed staff in a large UK police force during prolonged job cuts. They found that more than one third of the officers had taken leave or holiday when they had been sick or injured. Cooper soon realised that using annual leave instead of sick leave was part of a wider phenomenon where <a href="https://academic.oup.com/occmed/article/64/3/146/1439077" title="">holidays became a time to work</a>.</p> <a href="https://www.theguardian.com/money/shortcuts/2020/feb/18/leavism-trend-for-working-while-on-holiday-cary-cooper">Continue reading...</a>
+
+## Readers' tributes to Caroline Flack
+ - [https://www.theguardian.com/tv-and-radio/2020/feb/18/readers-pay-tribute-caroline-flack-love-island](https://www.theguardian.com/tv-and-radio/2020/feb/18/readers-pay-tribute-caroline-flack-love-island)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 15:23:55+00:00
+
+<p>We asked you to share your memories of the Love Island presenter, who died aged 40</p><p>Caroline seemed very relatable, so bubbly and warm. When I watched her present, I felt like she was one of my mates. She had a great way of turning the people’s lives in the villa, and the rather false world of Love Island, into something we should care about. Never ridiculing the sometimes ridiculous, she seemed to care about them all as friends. Beautiful people presenting on TV can often come across as false but Caroline did not. I didn’t think the death of a person I didn’t know could affect me the way Caroline’s has. It feels closer to home than another stranger’s passing – not because I watch telly a lot, but because I think it is devastating that a beautiful and clever woman has no future and she felt there was nothing to live for. <a href="https://www.theguardian.com/media/2020/feb/17/no-10-calls-on-social-media-firms-to-act-after-caroline-flack-death">I hope the campaign for kindness that has carried on since her death</a> is her legacy and people can learn from this horrible situation. <strong>Kirsty, 39, rural development consultant, Inverness</strong></p> <a href="https://www.theguardian.com/tv-and-radio/2020/feb/18/readers-pay-tribute-caroline-flack-love-island">Continue reading...</a>
+
+## HSBC to cut 35,000 jobs worldwide as profits plunge
+ - [https://www.theguardian.com/business/2020/feb/18/hsbc-to-cut-35000-jobs-worldwide-as-profits-plunge-coronavirus](https://www.theguardian.com/business/2020/feb/18/hsbc-to-cut-35000-jobs-worldwide-as-profits-plunge-coronavirus)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 15:19:41+00:00
+
+<p>Bank warns of ‘meaningful’ job losses in UK and of impact of coronavirus outbreak in Asia</p><p>HSBC has said it will slash 35,000 jobs over three years as part of a major shake-up as it issued a warning over the impact of the coronavirus outbreak in Asia.</p><p>The interim chief executive, Noel Quinn, confirmed on Tuesday that plans to cut $4.5bn (£3.5bn) worth of costs would involve slashing about 15% of the group’s global workforce. “We would expect our headcount to decrease from the current level of 235,000 to be closer to 200,000 in 2022,” Quinn said.</p> <a href="https://www.theguardian.com/business/2020/feb/18/hsbc-to-cut-35000-jobs-worldwide-as-profits-plunge-coronavirus">Continue reading...</a>
+
+## 'It’s been a really enriching experience’: why ambitious young people are choosing apprenticeships
+ - [https://www.theguardian.com/fire-up-your-future/2020/feb/18/its-been-a-really-enriching-experience-why-ambitious-young-people-are-choosing-apprenticeships](https://www.theguardian.com/fire-up-your-future/2020/feb/18/its-been-a-really-enriching-experience-why-ambitious-young-people-are-choosing-apprenticeships)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 15:16:45+00:00
+
+<p>Apprentices share their personal experiences on how taking an apprenticeship is helping to propel their careers forward</p><p>Samuel Okusaga, 20, wanted to make a good impression on his first day as an apprentice at education and publishing company Pearson PLC, so he wore a three-piece suit. “I was the most overdressed person in the office,” he says. But it wasn’t long before Okusaga got settled in and started making waves (and more appropriate fashion choices). Soon enough, he was helping to organise events and put together marketing materials. He even asked the chief executive of the company personally to be his mentor. “He agreed and I now have meetings with him three times a year,” he says. “It’s been a really enriching experience”.</p><p>There are a wide range of apprenticeship opportunities available across the UK. <a href="https://researchbriefings.parliament.uk/ResearchBriefing/Summary/SN06113" rel="nofollow">Government figures show</a> that in 2018/19, there were as many as 742,400 people doing an apprenticeship in England alone. Many ambitious people are choosing apprenticeships as a way to power ahead in their careers,<strong> </strong>while benefiting from structure and mentorship – something that all apprenticeships include.</p> <a href="https://www.theguardian.com/fire-up-your-future/2020/feb/18/its-been-a-really-enriching-experience-why-ambitious-young-people-are-choosing-apprenticeships">Continue reading...</a>
+
+## ‘It’s helped us to scale up’: the advantages of employing an apprentice
+ - [https://www.theguardian.com/fire-up-your-future/2020/feb/18/its-helped-us-to-scale-up-the-advantages-of-employing-an-apprentice](https://www.theguardian.com/fire-up-your-future/2020/feb/18/its-helped-us-to-scale-up-the-advantages-of-employing-an-apprentice)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 15:16:42+00:00
+
+<p>Apprentices can bring real value to a company. From more motivated teams to creating a learning culture that enables everyone to share knowledge freely, many businesses are reaping the rewards</p><p>There are many advantages to employing an apprentice, whether it’s seeing a new apprentice flourishing in your business or seeing your team motivated by their colleagues learning new skills. Apprentices are unique, but the one thing they have in common is their passion and enthusiasm. As a business, you don’t have to do it alone, either. As well as putting training funds to good use, you can receive further support and guidance from the government, such as showing how to make your recruitment practices accessible to prospective apprentices and how to give on-the-job help. We spoke to employers across the country to find out about the different ways they have benefited from working with apprentices.</p> <a href="https://www.theguardian.com/fire-up-your-future/2020/feb/18/its-helped-us-to-scale-up-the-advantages-of-employing-an-apprentice">Continue reading...</a>
+
+## Trump seems to call for new Roger Stone trial – live updates
+ - [https://www.theguardian.com/us-news/live/2020/feb/18/donald-trump-democrats-nevada-bloomberg-bernie-sanders-joe-biden-amy-klobuchar-live-updates](https://www.theguardian.com/us-news/live/2020/feb/18/donald-trump-democrats-nevada-bloomberg-bernie-sanders-joe-biden-amy-klobuchar-live-updates)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 15:13:08+00:00
+
+<ul><li>Billionaire Bloomberg will face opponents on debate stage in Las Vegas</li><li>Democratic rules were changed, opening door to former NY mayor’s participation</li><li>Bloomberg facing criticism over past policies and alleged comments</li><li>Help us cover the critical issues of 2020. Consider making a <a href="https://support.theguardian.com/us/contribute?acquisitionData=%7B%22source%22%3A%22GUARDIAN_WEB%22%2C%22componentType%22%3A%22ACQUISITIONS_EDITORIAL_LINK%22%2C%22componentId%22%3A%22USeoy2019_standfirst_givingtues%22%2C%22campaignCode%22%3A%22USeoy2019%22%2C%22referrerPageviewId%22%3A%22k6rptnscgg40xav7yegr%22%2C%22referrerUrl%22%3A%22https%3A%2F%2Fwww.theguardian.com%2Fus-news%2Flive%2F2020%2Ffeb%2F14%2Fdonald-trump-tweeting-attorney-general-william-barr-roger-stone-live-updates%22%7D&amp;INTCMP=USeoy2019">contribution</a></li></ul><p class="block-time published-time"> <time datetime="2020-02-18T15:13:08.187Z">3.13pm <span class="timezone">GMT</span></time> </p><p>With <strong>Michael Bloomberg </strong>climbing in the polls, the billionaire candidate’s campaign is going on the offensive against frontrunner <strong>Bernie Sanders. </strong></p><p>Bloomberg’s campaign manager suggested the opposition research on Sanders would be “disqualifying”:</p><p dir="ltr" lang="en">The opposition research on <a href="https://twitter.com/BernieSanders?ref_src=twsrc%5Etfw">@BernieSanders</a> could fill <a href="https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw">@realDonaldTrump</a>’s empty Foxconn facility in Wisconsin. <br /><br />It is very damaging, perhaps even disqualifying.</p><p dir="ltr" lang="en">Your boss <a href="https://twitter.com/MikeBloomberg?ref_src=twsrc%5Etfw">@MikeBloomberg</a> literally backed the Iraq War, endorsed Bush, pushed Social Security cuts, opposed raising min wage, vetoed a living wage law, and promoted a stop and frisk program that terrorized communities of color <a href="https://t.co/Q9OtUMSH6H">https://t.co/Q9OtUMSH6H</a></p><p class="block-time published-time"> <time datetime="2020-02-18T14:49:47.338Z">2.49pm <span class="timezone">GMT</span></time> </p><p>The good polling news for <strong>Michael Bloomberg </strong>just keeps on coming this morning.</p><p>A <a href="https://www.publicradiotulsa.org/post/bloomberg-leads-democrats-oklahoma-going-super-tuesday">new poll</a> from Oklahoma, which will also hold its primary on Super Tuesday, shows Bloomberg leading the field with 20%.</p> <a href="https://www.theguardian.com/us-news/live/2020/feb/18/donald-trump-democrats-nevada-bloomberg-bernie-sanders-joe-biden-amy-klobuchar-live-updates">Continue reading...</a>
+
+## ‘We want to be in Istanbul': Klopp urges Liverpool to meet Atlético head on
+ - [https://www.theguardian.com/football/2020/feb/17/jurgen-klopp-wants-liverpool-to-show-worth-as-european-contenders](https://www.theguardian.com/football/2020/feb/17/jurgen-klopp-wants-liverpool-to-show-worth-as-european-contenders)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 15:10:36+00:00
+
+<ul><li>Liverpool play Atlético in Champions League last-16 first leg</li><li>Klopp: ‘I see Madrid and for me it looks like a proper machine’<br /></li></ul><p>Jürgen Klopp has said Liverpool return to the scene of their sixth European triumph not with the confidence of Champions League holders but to prove they are contenders to defend their crown in Istanbul.</p><p>The reigning European champions face Atlético Madrid at Estadio Metropolitano on Tuesday 262 days after defeating Tottenham to win their latest Champions League title. Klopp has claimed Juventus and Paris Saint-Germain are bigger favourites for this season’s competition than his <a href="https://www.theguardian.com/football/2020/feb/15/norwich-liverpool-premier-league-match-report" title="">runaway Premier League leaders</a>, who will become the first English team in history to reach three consecutive European Cup/Champions League finals should they reach this season’s showpiece at the home of their 2005 triumph. But he admits there is no better place or opponents for Liverpool to reaffirm their European credentials than away at Diego Simeone’s Atlético.</p> <a href="https://www.theguardian.com/football/2020/feb/17/jurgen-klopp-wants-liverpool-to-show-worth-as-european-contenders">Continue reading...</a>
+
+## After Suleimani: Iran's scramble to recover from general's death
+ - [https://www.theguardian.com/world/2020/feb/18/after-suleimani-iran-scramble-recover-genera-death-quds-force](https://www.theguardian.com/world/2020/feb/18/after-suleimani-iran-scramble-recover-genera-death-quds-force)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 15:10:22+00:00
+
+<p>Loss of revered Quds Force commander and his aides has derailed country’s momentum in region</p><p>In the early hours of 3 January, Iraq’s prime minister, Adel Abdul Mahdi, frantically phoned his advisers. “Something big has happened,” he said, summoning them to a meeting in his office. “You need to come now.”</p><p>Like their boss, the advisers had heard the boom of the explosions that crunched into the airport road just after 1am, and their phones had been ringing incessantly. Each call had brought the unthinkable closer to shocking reality: Qassem Suleimani, the <a href="https://www.theguardian.com/world/2020/jan/05/making-of-a-martyr-how-qassem-suleimani-was-hunted-down">revered commander of Iran’s Quds Force</a> and the most powerful man in Iraq, had been killed, and so had nearly all of his closest aides. Throughout 17 years of post-Saddam Hussein bedlam across the Middle East, there had been little to rival this moment.</p> <a href="https://www.theguardian.com/world/2020/feb/18/after-suleimani-iran-scramble-recover-genera-death-quds-force">Continue reading...</a>
+
+## Apple shares drop after coronavirus warning; Jaguar Land Rover faces parts shortage – business live
+ - [https://www.theguardian.com/business/live/2020/feb/18/apples-coronavirus-warning-markets-ftse-uk-unemployment-business-live](https://www.theguardian.com/business/live/2020/feb/18/apples-coronavirus-warning-markets-ftse-uk-unemployment-business-live)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 15:05:03+00:00
+
+<p>Rolling coverage of the latest economic and financial news</p><ul><li>Latest: Apple shares drop 2.8% at the open</li><li><a href="https://www.theguardian.com/business/live/2020/feb/18/apples-coronavirus-warning-markets-ftse-uk-unemployment-business-live?page=with:block-5e4bb69d8f08e13324745635#block-5e4bb69d8f08e13324745635">German investor confidence hit by virus fears</a><br /></li><li><a href="https://www.theguardian.com/business/live/2020/feb/18/apples-coronavirus-warning-markets-ftse-uk-unemployment-business-live?page=with:block-5e4b9fa38f086a28115adc18#block-5e4b9fa38f086a28115adc18">Apple’s shares slide 5% in Frankfurt</a><br /></li><li><a href="https://www.theguardian.com/business/live/2020/feb/18/apples-coronavirus-warning-markets-ftse-uk-unemployment-business-live?page=with:block-5e4b9bb28f0811db2faf9b04#block-5e4b9bb28f0811db2faf9b04">Tech stocks hit by revenue warning</a><br /></li><li><a href="https://www.theguardian.com/business/live/2020/feb/18/apples-coronavirus-warning-markets-ftse-uk-unemployment-business-live?page=with:block-5e4b8a3d8f0811db2faf9abb#block-5e4b8a3d8f0811db2faf9abb">Apple: coronavirus will hurt iPhone sales</a></li></ul><p class="block-time published-time"> <time datetime="2020-02-18T15:05:03.447Z">3.05pm <span class="timezone">GMT</span></time> </p><p><strong>Don’t panic.... but carmaker Jaguar Land Rover’s UK factories could run out of parts from China in a couple of weeks.</strong></p><p>According to Reuters, JLR chief executive Ralf Speth has said that Jaguar Land Rover has enough parts from China to maintain its British production for the next two weeks but not beyond that at the moment.</p><p class="block-time published-time"> <time datetime="2020-02-18T14:50:22.586Z">2.50pm <span class="timezone">GMT</span></time> </p><p><strong>The Financial Times have <a href="https://www.ft.com/content/fc68eaca-521f-11ea-8841-482eed0038b1?emailId=5e4bd849ad8cb000048a7d17&amp;segmentId=3d08be62-315f-7330-5bbd-af33dc531acb">a great story</a> about Apple’s problems in China, which explains why production levels are much lower than expected. </strong></p><p>They’ve learned that Foxconn is struggling to get enough workers onto the iPhone assembly line at its huge factory complex at Zhengzhou, in China’s Henan province.</p><p>The rooms, which usually pack in eight workers, had quickly filled, causing Foxconn to halt the return of additional staff, explained a Zhengzhou-based factory recruiter, who asked not to be named.</p><p>“They don’t have enough room,” the recruiter said, adding that workers could now sign up and wait for quarantine availability. “There’s no one snoring. There’s no one bothering you. The internet is finally fast,” said one worker of the comfortable conditions in quarantine.</p> <a href="https://www.theguardian.com/business/live/2020/feb/18/apples-coronavirus-warning-markets-ftse-uk-unemployment-business-live">Continue reading...</a>
+
+## Netanyahu trial to begin on 17 March, says Israeli court
+ - [https://www.theguardian.com/world/2020/feb/18/benjamin-netanyahu-trial-to-begin-on-17-march-says-israel-justice-ministry](https://www.theguardian.com/world/2020/feb/18/benjamin-netanyahu-trial-to-begin-on-17-march-says-israel-justice-ministry)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 15:04:15+00:00
+
+<p>Prime minister is expected to attend initial hearing, where indictment will be read</p><p>The corruption trial of the Israeli prime minister, Benjamin Netanyahu, will begin on 17 March, just two weeks after national elections are held, an Israeli court has said.</p><p>Netanyahu is <a href="https://www.theguardian.com/world/2019/nov/21/israeli-prime-minister-benjamin-netanyahu-indicted-for-bribery-and">charged with bribery, fraud and breach of trust</a> under a number of cases in which he is alleged to have accepted lavish gifts from billionaire friends and exchanged regulatory favours for more positive media coverage. He has denied any wrongdoing.</p> <a href="https://www.theguardian.com/world/2020/feb/18/benjamin-netanyahu-trial-to-begin-on-17-march-says-israel-justice-ministry">Continue reading...</a>
+
+## Live shows get your heart racing – scientists prove it
+ - [https://www.theguardian.com/stage/2020/feb/18/live-shows-get-your-heart-racing-scientists-prove-it](https://www.theguardian.com/stage/2020/feb/18/live-shows-get-your-heart-racing-scientists-prove-it)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 14:49:59+00:00
+
+<p>UCL scientists measured heart rates and sweat glands of audiences and found live shows caused much greater response</p><p>Science has proved what theatre and concert-goers have long known. When it comes to emotional impact, watching a live performance is so much more thrilling than a version on screen.</p><p>Scientists from University College London (UCL) measured heart rates and sweat glands of audience members as they watched both theatre productions and films. They found that heart rates go up and down with the narrative arc of a story and that the highs are highest and lows lowest at a live show. The highest heart-rate levels were twice as high among those watching live theatre as those in the cinema.</p> <a href="https://www.theguardian.com/stage/2020/feb/18/live-shows-get-your-heart-racing-scientists-prove-it">Continue reading...</a>
+
+## Västerås Sinfonietta/Crawford-Phillips review – a force of nature
+ - [https://www.theguardian.com/music/2020/feb/18/vasteras-sinfonietta-simon-crawford-phillips-review-st-georges-bristol](https://www.theguardian.com/music/2020/feb/18/vasteras-sinfonietta-simon-crawford-phillips-review-st-georges-bristol)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 14:41:44+00:00
+
+<p><strong>St George’s Bristol </strong><br />The Swedish orchestra may lack polish but their warm personality shone through in this programme of Mendelssohn, Dvořák, Brahms and Mozart</p><p>A programme whose theme was the force that is nature was all too apt for a weekend when storms were tyrannical. Under their chief conductor, <a href="https://www.simoncrawford-phillips.com/">Simon Crawford-Phillips</a><a href="https://www.simoncrawford-phillips.com/">,</a> Sweden’s <a href="https://vastmanlandsmusiken.se/sinfoniettan/">Västerås Sinfonietta</a><a href="https://vastmanlandsmusiken.se/sinfoniettan/"> </a>began their current whirlwind British tour at St George’s. They filled the stage. This is an auditorium whose acoustic best suits recitals, but both the Orchestra of the Age of Enlightenment and the Aurora Orchestra are regulars there and the mood created is buoyant, especially now that Bristolians are temporarily without Colston Hall.</p><p>Mendelssohn’s Hebrides Overture, the original meteorological tone poem, was an obvious opener, with a contemporary one by the Swedish composer <a href="http://www.andreatarrodi.com/">Andrea Tarrodi</a> to follow. Her Zephyros, an ode to the god of the west wind, with its shimmering whisperings and rustlings and its surface sheen of metallic percussion, reached three climactic points, each dropping away differently and returning – with carefully judged effect – to a seductive breeze.</p> <a href="https://www.theguardian.com/music/2020/feb/18/vasteras-sinfonietta-simon-crawford-phillips-review-st-georges-bristol">Continue reading...</a>
+
+## Germany: senior CDU figure announces surprise leadership candidacy
+ - [https://www.theguardian.com/world/2020/feb/18/germany-senior-cdu-figure-announces-surprise-leadership-candidacy](https://www.theguardian.com/world/2020/feb/18/germany-senior-cdu-figure-announces-surprise-leadership-candidacy)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 14:28:44+00:00
+
+<p>Norbert Röttgen throws hat in ring to replace Merkel after Kramp-Karrenbauer steps aside<br /></p><p>A senior German conservative politician, who was once seen as the brains behind Angela Merkel’s inner circle but was later sacked by the chancellor, has put himself forward as a surprise candidate to take over as leader of her Christian Democratic Union (CDU), further complicating the party’s chaotic succession planning.</p><p>Norbert Röttgen announced his candidacy for the soon-to-be vacant seat at the top of the CDU in a press conference on Tuesday, saying he had decided to run because he believed the party should strategically position itself as the “party of the centre”.</p> <a href="https://www.theguardian.com/world/2020/feb/18/germany-senior-cdu-figure-announces-surprise-leadership-candidacy">Continue reading...</a>
+
+## Health experts question coronavirus quarantine measures on cruise ship
+ - [https://www.theguardian.com/world/2020/feb/18/global-health-experts-question-cruise-ship-coronavirus-quarantine-measures](https://www.theguardian.com/world/2020/feb/18/global-health-experts-question-cruise-ship-coronavirus-quarantine-measures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 14:13:48+00:00
+
+<p>Keeping passengers on ship may have helped spread of coronavirus, says one lawyer</p><p>Quarantine conditions imposed on a stricken ship in Japan are both morally dubious and appear counterproductive, according to health experts who fear the vessel has become an incubator for the coronavirus Covid-19.</p><p>Thousands of people have spent the past two weeks stuck onboard the Diamond Princess cruise ship, which now accounts for the biggest cluster of cases outside mainland China. More than 540 passengers in the Japanese port Yokohama are confirmed to have the virus, after 88 additional cases were confirmed on Tuesday.</p> <a href="https://www.theguardian.com/world/2020/feb/18/global-health-experts-question-cruise-ship-coronavirus-quarantine-measures">Continue reading...</a>
+
+## Bernie Sanders calls Mike Bloomberg's stop-and-frisk policy racist
+ - [https://www.theguardian.com/us-news/2020/feb/18/bernie-sanders-mike-bloomberg-washington-state](https://www.theguardian.com/us-news/2020/feb/18/bernie-sanders-mike-bloomberg-washington-state)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 14:07:47+00:00
+
+<p>As a poll put the New York billionaire second in the Democratic primary, the frontrunner told a rally ‘we are not an oligarchy’</p><p>Bernie Sanders railed against his fellow Democratic presidential candidate Mike Bloomberg during his first 2020 campaign visit to Washington state, as the billionaire continues to rise in the polls despite mounting criticism over his past remarks about women and minorities.</p><p>A new NPR/PBS NewsHour/Marist poll published on Tuesday showed Sanders leading in the Democratic primary contest at 31% support nationally, with Bloomberg surging into second place with 19% support.</p> <a href="https://www.theguardian.com/us-news/2020/feb/18/bernie-sanders-mike-bloomberg-washington-state">Continue reading...</a>
+
+## Minority staff asked for security passes more in parliament, report finds
+ - [https://www.theguardian.com/world/2020/feb/18/parliamentary-rules-lead-to-institutional-racism-lawyer-warns](https://www.theguardian.com/world/2020/feb/18/parliamentary-rules-lead-to-institutional-racism-lawyer-warns)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 14:05:22+00:00
+
+<p>House of Lords changes rules after survey finds BAME workers excluded from facilities for mostly white peers</p><p>Parliament has been accused of operating a form of apartheid after a report found that minority ethnic staff were asked to show their security passes more often than white counterparts.</p><p>Black and minority ethnic staff who responded to a survey carried out last year also complained that historic parliamentary rules meant that they were not allowed to eat or drink in the same rooms or even use the same toilets as the mostly white members of the House of Lords.</p> <a href="https://www.theguardian.com/world/2020/feb/18/parliamentary-rules-lead-to-institutional-racism-lawyer-warns">Continue reading...</a>
+
+## Apple is the best bellwether for the coronavirus fallout
+ - [https://www.theguardian.com/business/2020/feb/18/apple-is-the-best-bellwether-for-the-coronavirus-fallout](https://www.theguardian.com/business/2020/feb/18/apple-is-the-best-bellwether-for-the-coronavirus-fallout)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 14:00:39+00:00
+
+<p>Outbreak is supply and demand shock for tech giant and markets must wake up to the global risks</p><p>There are plenty of signs of the strains China’s economy is coming under as a result of the coronavirus. The sharp fall in German business confidence is one because Europe’s biggest economy suffers when demand for its exports falls. The decision by Cathay Pacific, Hong Kong’s flag carrier airline, to <a href="https://www.theguardian.com/business/2020/feb/17/cathay-pacific-issues-profit-warning-after-coronavirus-hits-service">cancel 40% of its flights</a> in February and March is another.</p><p>But the best bellwether of what has been happening in China is Apple, which has warned that it is <a href="https://www.theguardian.com/technology/2020/feb/17/apple-warns-of-coronavirus-causing-iphone-shortages">on course to </a><a href="https://www.theguardian.com/technology/2020/feb/17/apple-warns-of-coronavirus-causing-iphone-shortages">miss its revenue forecasts</a> in the first three months of 2020. China is a big market for Apple – accounting for about one-sixth of its global revenues – and is the source of most of its products. The coronavirus represents a demand and a supply shock to the company.</p> <a href="https://www.theguardian.com/business/2020/feb/18/apple-is-the-best-bellwether-for-the-coronavirus-fallout">Continue reading...</a>
+
+## How to make cooking for one fun | Kitchen Aide
+ - [https://www.theguardian.com/food/2020/feb/18/how-to-make-cooking-for-one-fun](https://www.theguardian.com/food/2020/feb/18/how-to-make-cooking-for-one-fun)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 14:00:28+00:00
+
+<p>Solo cooking is liberating: you only have to please yourself, and it’s an opportunity to experiment – and spoil yourself<br />• <em>Do you have a culinary dilemma? Email </em><a href="mailto:feast@theguardian.com"><em>feast@theguardian.com</em></a><br /></p><p><strong>Cooking for one can often feel a bit sad. How do I make it more fun? </strong><br /><em><strong>Dave, Brighton</strong></em></p><p>Writers lead pretty solitary lives – working alone more or less comes with the turf – and those who write about their, and our, tea are no exception. According to <a href="http://dianahenry.co.uk/" title="">Diana Henry</a>, a leading light of the modern genre, perhaps the single most important aspect of cooking for one is to view it as an opportunity: “You don’t have to please anyone but yourself,” she says, “and that’s a real bonus. And plan your meals for the week, so you have things to look forward to.” In that respect, at least, solo cooking isn’t <em>that </em>much different from any other kind. “Some food writers, notably <a href="https://www.theguardian.com/profile/nigelslater" title="">Nigel Slater</a>, are very good at dishes for one or two,” Henry adds, “so go through your cookbooks marking up dishes you love the look of but have never made. This is your chance to try them.”</p> <a href="https://www.theguardian.com/food/2020/feb/18/how-to-make-cooking-for-one-fun">Continue reading...</a>
+
+## Andrew Sabisky’s job at No 10 shows how mainstream the alt-right has become | Joe Mulhall
+ - [https://www.theguardian.com/commentisfree/2020/feb/18/andrew-sabisky-job-no-10-alt-right-adviser](https://www.theguardian.com/commentisfree/2020/feb/18/andrew-sabisky-job-no-10-alt-right-adviser)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 13:56:41+00:00
+
+The ex-adviser’s remarks draw on a murky online world of race pseudoscience that was once considered marginal<p>After days of pressure on No 10 to sack Andrew Sabisky, one of Dominic Cummings’ recently appointed “<a href="https://www.theguardian.com/politics/2020/jan/02/dominic-cummings-calls-for-weirdos-and-misfits-for-no-10-jobs" title="">weirdos and misfits</a>”, the self-styled “superforecaster” took to social media to <a href="https://www.theguardian.com/politics/2020/feb/17/boris-johnson-adviser-quits-over-race-and-eugenics-writings" title="">resign</a> last night. In his resignation tweet he said he hoped the “media learn to stop selective quoting”. However, when put in its proper context, Sabisky’s track record is far more damning than the out-of-context quotes for which he has been criticised, leaving Cummings and Downing Street with serious questions to answer.</p><p> <span>Related: </span><a href="https://www.theguardian.com/politics/2020/feb/18/andrew-sabisky-no-10-hiring-process-needs-looking-at-minister-kwasi-kwarteng">Andrew Sabisky: minister urges review of No 10 hiring process</a> </p> <a href="https://www.theguardian.com/commentisfree/2020/feb/18/andrew-sabisky-job-no-10-alt-right-adviser">Continue reading...</a>
+
+## Pompeii's House of Lovers reopens to public after 40 years
+ - [https://www.theguardian.com/science/2020/feb/18/pompeii-house-of-lovers-reopens-to-public-after-40-years](https://www.theguardian.com/science/2020/feb/18/pompeii-house-of-lovers-reopens-to-public-after-40-years)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 13:55:45+00:00
+
+<p>Jewel of ancient Roman city was severely damaged by destructive earthquake in 1980</p><p>One of Pompeii’s most celebrated buildings, the House of Lovers, will reopen to the public on Tuesday, 40 years after it was severely damaged in an earthquake.</p><p>The <em><a href="https://en.wikipedia.org/wiki/Domus">domus</a></em>, considered to be among the jewels of the ancient city that was buried by the eruption of Mount Vesuvius in AD79, was discovered in 1933 with its second floor and decorations almost completely preserved.</p> <a href="https://www.theguardian.com/science/2020/feb/18/pompeii-house-of-lovers-reopens-to-public-after-40-years">Continue reading...</a>
+
+## London fashion week autumn/winter 2020: the key shows – in pictures
+ - [https://www.theguardian.com/fashion/gallery/2020/feb/18/london-fashion-week-autumnwinter-2020-the-key-shows-in-pictures](https://www.theguardian.com/fashion/gallery/2020/feb/18/london-fashion-week-autumnwinter-2020-the-key-shows-in-pictures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 13:52:07+00:00
+
+<p>This season saw a heady mix of schedule regulars as well as up-and-coming stars – with a focus on sustainability <br /></p> <a href="https://www.theguardian.com/fashion/gallery/2020/feb/18/london-fashion-week-autumnwinter-2020-the-key-shows-in-pictures">Continue reading...</a>
+
+## Biba's Barbara Hulanicki: 'When you’re designing, you have to blank yourself out'
+ - [https://www.theguardian.com/fashion/2020/feb/18/bibas-barbara-hulanicki-when-youre-designing-you-have-to-blank-yourself-out](https://www.theguardian.com/fashion/2020/feb/18/bibas-barbara-hulanicki-when-youre-designing-you-have-to-blank-yourself-out)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 13:42:58+00:00
+
+<p>The designer and founder on starting out in London in 1964 and being inspired by Marlene Dietrich and Audrey Hepburn</p><p>This picture was taken for the press around the time we lost Biba [<a href="https://www.theguardian.com/theguardian/2013/sep/11/biba-store-kensington-opens-1973" title="t">the shop, on Kensington High Street</a> in London, closed in 1975]. I’m wearing a pair of black satin pyjamas with off-white piping – I’d been inspired by Marlene Dietrich, who was pictured wearing something similar. We did pyjamas in our first Biba catalogue, too – it’s a look that’s been going for ever. In Miami, where I now live, all the department stores are still full of it.</p><p>This look was very Biba: satin was our big thing. People would often wear our negligees and nighties out in the evenings. It’s the sort of thing I would have worn to a party or dinner, but not to work – it’s too floppy. I’m also wearing a collection of vintage jewellery. In those days, the vintage stuff, oh my God. It was amazing. Now it’s so expensive and all the good stuff is gone.</p> <a href="https://www.theguardian.com/fashion/2020/feb/18/bibas-barbara-hulanicki-when-youre-designing-you-have-to-blank-yourself-out">Continue reading...</a>
+
+## Mona Lisa's face mask and Boris Johnson's 'backside': Tuesday's best photos
+ - [https://www.theguardian.com/media/gallery/2020/feb/18/face-masks-and-boris-johnsons-backside-tuesdays-best-photos](https://www.theguardian.com/media/gallery/2020/feb/18/face-masks-and-boris-johnsons-backside-tuesdays-best-photos)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 13:42:57+00:00
+
+<p>The Guardian’s picture editors select photo highlights from around the world</p> <a href="https://www.theguardian.com/media/gallery/2020/feb/18/face-masks-and-boris-johnsons-backside-tuesdays-best-photos">Continue reading...</a>
+
+## UK Brexit negotiator accused of treating Britain and EU as 'two different planets'
+ - [https://www.theguardian.com/politics/2020/feb/18/uk-brexit-negotiator-britain-eu-different-planets](https://www.theguardian.com/politics/2020/feb/18/uk-brexit-negotiator-britain-eu-different-planets)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 13:36:13+00:00
+
+<p>Verhofstadt says it would be a ‘hell of a job’ to achieve success using David Frost’s approach</p><p>Boris Johnson’s chief Brexit negotiator has been accused of treating the EU and the UK as if they are “living on two different planets” after vowing to break all regulatory ties with Brussels.</p><p>Guy Verhofstadt, the former Belgian prime minister who has led the European parliament’s approach to Brexit, said it would be a “hell of a job” to secure a successful outcome from the negotiation using the British approach.</p> <a href="https://www.theguardian.com/politics/2020/feb/18/uk-brexit-negotiator-britain-eu-different-planets">Continue reading...</a>
+
+## Mourinho fears Son will miss rest of Spurs' season with arm fracture
+ - [https://www.theguardian.com/football/2020/feb/18/son-heung-min-out-for-weeks-after-fracturing-arm-in-aston-villa-clash-football](https://www.theguardian.com/football/2020/feb/18/son-heung-min-out-for-weeks-after-fracturing-arm-in-aston-villa-clash-football)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 13:36:09+00:00
+
+<ul><li>Forward played with injury for most of Sunday’s match</li><li>With Kane also out Mourinho says ‘situation couldn’t be worse’</li></ul><p>José Mourinho has said he fears Son Heung-min will miss the rest of the season after the forward fractured his right arm in Tottenham’s win against Aston Villa on Sunday.</p><p>Son sustained the injury in a first-minute challenge with Villa’s Ezri Konsa and, though he completed the 90 minutes and scored twice, he faces surgery. It leaves Tottenham desperately short up front, with Harry Kane also a long-term absentee with a hamstring injury.</p> <a href="https://www.theguardian.com/football/2020/feb/18/son-heung-min-out-for-weeks-after-fracturing-arm-in-aston-villa-clash-football">Continue reading...</a>
+
+## Andrew Weatherall: 10 of his greatest tracks
+ - [https://www.theguardian.com/music/2020/feb/18/andrew-weatherall-10-greatest-tracks](https://www.theguardian.com/music/2020/feb/18/andrew-weatherall-10-greatest-tracks)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 13:30:28+00:00
+
+<p>From My Bloody Valentine to Saint Etienne and Ricardo Villalobos, Andrew Weatherall sprinkled magic throughout his career</p><ul><li><a href="https://www.theguardian.com/music/2020/feb/17/andrew-weatherall-british-producer-behind-screamadelica-dies-aged-56">Andrew Weatherall, British producer behind Screamadelica, dies aged 56</a></li></ul> <a href="https://www.theguardian.com/music/2020/feb/18/andrew-weatherall-10-greatest-tracks">Continue reading...</a>
+
+## One in four NHS staff bullied, harassed or abused, survey finds
+ - [https://www.theguardian.com/society/2020/feb/18/one-in-four-nhs-staff-bullied-harassed-or-abused-survey-finds](https://www.theguardian.com/society/2020/feb/18/one-in-four-nhs-staff-bullied-harassed-or-abused-survey-finds)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 13:23:56+00:00
+
+<p>Poll of staff in England also finds 40% have felt unwell due to stress at work </p><p> More than a quarter of NHS workers have been bullied, harassed or abused in the past year by patients and members of the public, a poll suggests.</p><p>The NHS staff survey for England, which included responses from 569,440 staff, found 29% had experienced at least one incident of bullying, harassment or abuse in the past 12 months.</p> <a href="https://www.theguardian.com/society/2020/feb/18/one-in-four-nhs-staff-bullied-harassed-or-abused-survey-finds">Continue reading...</a>
+
+## 'The most boring part': why the killer didn't matter to Georges Simenon
+ - [https://www.theguardian.com/books/booksblog/2020/feb/18/why-the-killer-didnt-matter-to-georges-simenon](https://www.theguardian.com/books/booksblog/2020/feb/18/why-the-killer-didnt-matter-to-georges-simenon)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 13:20:07+00:00
+
+<p>Identifying the murderer in Maigret and the Man on the Bench is of scant concern to a writer preoccupied with deeper secrets</p><p>It isn’t normal to begin reviews of detective novels by discussing their last chapter. But Maigret and the Man on the Bench is not a normal detective novel – and its conclusion is so striking that it demands immediate attention.</p><p>If you’ve read the novel, you’ll know exactly what I mean. If you haven’t, I don’t think it’s giving away too much to say that in just 10 pages in David Watson’s (excellent) translation, Maigret discovers the identity of the murderer of Louis Thouret, the eponymous man on the bench. This murderer has barely been mentioned before in the novel, and Maigret doesn’t care about his identity. “This was the most boring part,” he reflects as he is writing up the case. Just six lines later, the book ends.</p> <a href="https://www.theguardian.com/books/booksblog/2020/feb/18/why-the-killer-didnt-matter-to-georges-simenon">Continue reading...</a>
+
+## Turkish Gezi park activists acquitted of terror charges in surprise ruling
+ - [https://www.theguardian.com/world/2020/feb/18/turkey-acquits-nine-activists-held-over-2013-gezi-park-protests](https://www.theguardian.com/world/2020/feb/18/turkey-acquits-nine-activists-held-over-2013-gezi-park-protests)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 13:13:22+00:00
+
+<p>Arrest warrants lifted for seven other defendants being tried over nationwide protests</p><p>A Turkish court has acquitted nine activists accused of terror charges over their alleged involvement in Istanbul’s Gezi park protests, a landmark ruling in a case that has given new hope to Turkey’s beleaguered civil society in a country where many fear the rule of law is being steadily eroded.</p><p>Applause erupted in the courtroom and some people cried in disbelief when the decision was announced at a courthouse near the Silivri maximum security prison campus, on the outskirts of Istanbul, on Tuesday.</p> <a href="https://www.theguardian.com/world/2020/feb/18/turkey-acquits-nine-activists-held-over-2013-gezi-park-protests">Continue reading...</a>
+
+## 'The chink of light I've been looking for': readers on 'associate citizenship'
+ - [https://www.theguardian.com/politics/2020/feb/18/readers-on-brexit-associate-citizenship-europe-eu](https://www.theguardian.com/politics/2020/feb/18/readers-on-brexit-associate-citizenship-europe-eu)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 13:03:26+00:00
+
+<p><a href="https://www.theguardian.com/politics/2020/feb/18/brexit-sadiq-khan-tell-us-what-you-think-about-associate-citizenship">We asked you</a> to tell us what you think about the idea of Britons having continued freedom of movement in Europe</p><p>I wholeheartedly endorse this idea and would be prepared to pay a reasonable fee to continue to retain my freedom of movement throughout the EU. Revoking my EU citizenship as a result of Brexit is an unfair curtailment of my rights. <strong>John Catron, 65, education consultant, York</strong></p> <a href="https://www.theguardian.com/politics/2020/feb/18/readers-on-brexit-associate-citizenship-europe-eu">Continue reading...</a>
+
+## John Burton: ‘I was a horrible person. Now I help lads who used to be like me’
+ - [https://www.theguardian.com/society/2020/feb/18/ex-convict-john-burton-prisoners-training-scheme-building](https://www.theguardian.com/society/2020/feb/18/ex-convict-john-burton-prisoners-training-scheme-building)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 13:00:27+00:00
+
+The ex-convict on how his construction training scheme gives prisoners the chance to build a crime-free life on the outside<p>John Burton, 49, knows all about that feeling of dislocation and uncertainty once the prison gates shut behind you and the outside world beckons. He has served two prison sentences since the early 2000s, one for cigarette smuggling and then for drug trafficking and money laundering.</p><p>Towards the end of his time in HMP Oakwood, Burton says he started to think about younger prisoners, some of whom he knew were going to go straight back into crime. “Without a job to go into, they are reliant on former criminal mates in order to earn a living when they are on the outside,” he says.</p> <a href="https://www.theguardian.com/society/2020/feb/18/ex-convict-john-burton-prisoners-training-scheme-building">Continue reading...</a>
+
+## Sequins, spoofs and salaciousness: meet drag king and queen improv duo Dragprov
+ - [https://www.theguardian.com/stage/2020/feb/18/drag-king-queen-improv-duo-dragprov](https://www.theguardian.com/stage/2020/feb/18/drag-king-queen-improv-duo-dragprov)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 12:45:10+00:00
+
+<p>From Eaton Messe’s cutting jokes to Christian Adore’s excellent singing, Dragprov are bringing glamour to improvised comedy</p><p>In a small room at London’s <a href="https://www.theguardian.com/stage/2019/dec/31/vault-festival-2020-comedy-and-theatre-shows-to-see">Vault festival</a>, drag king Christian Adore is trapped inside an imaginary dungeon. Clad in a sequined burgundy suit, he is taunted by drag queen Eaton Messe, who paces menacingly outside Christian’s pretend cell. This is Dragprov, a double act who improvise – in drag.</p><p>The pair are performing their latest impromptu musical, titled Lord Help Me, I’m in a Dungeon! With a live pianist, Dragprov perform songs and sketches that are quick-witted, eloquent and made up on the spur of the moment.</p> <a href="https://www.theguardian.com/stage/2020/feb/18/drag-king-queen-improv-duo-dragprov">Continue reading...</a>
+
+## Instagram brought us so close to Caroline Flack that her death seems personal | Leah Green
+ - [https://www.theguardian.com/commentisfree/2020/feb/18/instagram-caroline-flack-celebrity-grief](https://www.theguardian.com/commentisfree/2020/feb/18/instagram-caroline-flack-celebrity-grief)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 12:41:14+00:00
+
+<p>As the line between celebrity and reality continues to blur, the grief we feel is changing too</p><p>Caroline Flack has become a familiar figure in the lives of fans of Love Island, <a href="https://www.theguardian.com/commentisfree/2018/jul/31/love-island-british-society-laid-bare" title="">like me</a>, over the past five years. She was in our living rooms every summer and, for those of us who use social media, on our phones almost every day.</p><p>Through Instagram stories, we watched her on nights out, playing with her dog, singing at a piano and celebrating her 40th birthday. I had private thoughts about her boyfriends, her taste, and her presenting style. My friends and I occasionally discussed her as if she were an acquaintance on the periphery of our social circle. Her posts were similar to those we would share ourselves.</p> <a href="https://www.theguardian.com/commentisfree/2020/feb/18/instagram-caroline-flack-celebrity-grief">Continue reading...</a>
+
+## Mako Vunipola out of England's Six Nations showdown with Ireland
+ - [https://www.theguardian.com/sport/2020/feb/18/mako-vunipola-out-england-six-nations-showdown-ireland-rugby](https://www.theguardian.com/sport/2020/feb/18/mako-vunipola-out-england-six-nations-showdown-ireland-rugby)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 12:36:14+00:00
+
+<ul><li>Loosehead prop has travelled to Tonga for family reasons</li><li>Ben Obano added to squad, with Manu Tuilagi and Henry Slade </li></ul><p>England have received a huge blow before their crucial Six Nations match against Ireland on Sunday with Mako Vunipola ruled out, having travelled to Tonga for family reasons.</p><p> <span>Related: </span><a href="https://www.theguardian.com/sport/2020/feb/16/george-ford-warns-england-ireland-farrell-competitive-guy">George Ford warns England: 'Ireland's Farrell is a very competitive guy'</a> </p> <a href="https://www.theguardian.com/sport/2020/feb/18/mako-vunipola-out-england-six-nations-showdown-ireland-rugby">Continue reading...</a>
+
+## The Spin | World Twenty20: Anya Shrubsole looks to go all the way with England
+ - [https://www.theguardian.com/sport/blog/2020/feb/18/anya-shrubsole-world-twenty20-t20-england-cricket-the-spin](https://www.theguardian.com/sport/blog/2020/feb/18/anya-shrubsole-world-twenty20-t20-england-cricket-the-spin)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 12:34:39+00:00
+
+<p>After five heartbreaking exits, Shrubsole is determined to be playing in the MCG final on International Women’s Day</p><p>In 2009 a back injury forced the then-17-year-old Anya Shrubsole out of the World Twenty20. She had already been part of one World Cup-winning team – England having come back from Australia that March as champions in the 50-over format – but she was forced to watch from the sidelines as the team, as hosts, took a second title of the year. She has not missed a World Twenty20 since but England have not won again.</p><p>Though in 2010 West Indies could claim joint responsibility, Australia have knocked England out of every World Twenty20 since the very first, beating them in three finals and a semi-final.</p> <a href="https://www.theguardian.com/sport/blog/2020/feb/18/anya-shrubsole-world-twenty20-t20-england-cricket-the-spin">Continue reading...</a>
+
+## 'It chokes me': Russell Brand compares Caroline Flack to Amy Winehouse
+ - [https://www.theguardian.com/tv-and-radio/2020/feb/18/it-chokes-me-russell-brand-compares-caroline-flack-to-amy-winehouse](https://www.theguardian.com/tv-and-radio/2020/feb/18/it-chokes-me-russell-brand-compares-caroline-flack-to-amy-winehouse)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 12:20:39+00:00
+
+<p>In an essay about the presenter, Brand condemns the ‘incessant poking, trolling judgment that chased her to the grave’<br /></p><p>Russell Brand has written an essay following the death of TV host Caroline Flack, in which he implores readers to “convey love and support and kindness”. The presenter and comedian, 44, published<a href="https://www.russellbrand.com/caroline-flack/"> a post</a> on his website on Tuesday, following Flack’s death on Saturday.</p><p>In it, he recounts how he wrote a monologue based on the experiences of people who killed themselves, adding: “I am angry and sad that Caroline Flack found herself in that place. I am sad because she was a lovely little person, a real laugh, a dynamo and the idea that she had been so drained of hope by her circumstances chokes me.”</p> <a href="https://www.theguardian.com/tv-and-radio/2020/feb/18/it-chokes-me-russell-brand-compares-caroline-flack-to-amy-winehouse">Continue reading...</a>
+
+## Ryan Newman hospitalized in horrific wreck as Hamlin wins Daytona 500
+ - [https://www.theguardian.com/sport/2020/feb/17/daytona-500-denny-hamlin-ryan-newman-crash](https://www.theguardian.com/sport/2020/feb/17/daytona-500-denny-hamlin-ryan-newman-crash)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 12:06:31+00:00
+
+<ul><li>Denny Hamlin wins by second closest margin ever (0.014sec)</li><li>Ryan Newman hospitalized after crash while leading final lap</li><li>Nascar says Newman’s injuries are non-life-threatening</li><li><a href="https://www.theguardian.com/sport/2020/feb/16/trump-nascar-daytona-500-track-presidential-limo-the-beast">Trump takes lap in armored presidential limo ‘the Beast’</a></li></ul><p>Denny Hamlin won his second straight Daytona 500 and third overall, beating Ryan Blaney in a photo finish marred by a terrifying crash that sent Ryan Newman to hospital on Monday.</p><p>Newman had surged into the lead on the final lap when Blaney’s bumper caught the back of his Ford and sent Newman into the wall. His car flipped, rolled, was hit on the driver’s side by another car, and finally skidded across the finish line engulfed in flames.</p> <a href="https://www.theguardian.com/sport/2020/feb/17/daytona-500-denny-hamlin-ryan-newman-crash">Continue reading...</a>
+
+## Trust your nose: what rich people can learn from Parasite
+ - [https://www.theguardian.com/film/2020/feb/18/parasite-what-rich-people-can-learn-oscars-2020-bong-joon-ho](https://www.theguardian.com/film/2020/feb/18/parasite-what-rich-people-can-learn-oscars-2020-bong-joon-ho)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 12:04:06+00:00
+
+<p>Bong Joon-ho’s savage Oscar-winning satire offers plenty of helpful insights into how the wealthy can avoid being preyed on by the less fortunate </p><p><strong>Warning: contains spoilers</strong></p><p>Now that <a href="https://www.theguardian.com/film/parasite">Parasite</a> is everywhere, sweeping the Oscars and cleaning up at the box office, perhaps it’s time to stop and think about the film itself. Parasite is a fable about economic equality, which means there are many lessons that we as a society should take from it.</p><p>And when I say “we”, I obviously mean “rich people”. Extremely wealthy people like you and me have plenty to learn from Parasite. In fact, Parasite pretty much doubles as a blueprint of everything you shouldn’t do if, like us, you enjoy a life of preposterous material privilege. I can’t speak for the rest of you millionaires, but here’s what I took from the film.</p> <a href="https://www.theguardian.com/film/2020/feb/18/parasite-what-rich-people-can-learn-oscars-2020-bong-joon-ho">Continue reading...</a>
+
+## Mass grave shows how Black Death devastated the countryside
+ - [https://www.theguardian.com/society/2020/feb/18/mass-grave-shows-how-black-death-devastated-the-countryside](https://www.theguardian.com/society/2020/feb/18/mass-grave-shows-how-black-death-devastated-the-countryside)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 12:00:26+00:00
+
+<p>Grave in Lincolnshire dates to medieval pandemic of 1348 and reveals rural plague catastrophe</p><p>A mass grave containing the remains of dozens of victims of the <a href="https://www.history.com/topics/middle-ages/black-death">Black Death</a> offers chilling new evidence of the speed and scale of the devastation the plague brought to rural England, according to archaeologists.</p><p>The grave, discovered in a remote corner of rural Lincolnshire, has been dated to the 14th century, almost certainly to the <a href="https://en.wikipedia.org/wiki/Black_Death_in_England">earliest and deadliest medieval outbreak</a> of the disease in 1348-9.</p> <a href="https://www.theguardian.com/society/2020/feb/18/mass-grave-shows-how-black-death-devastated-the-countryside">Continue reading...</a>
+
+## Walk the line: pinstripes are the business once again – in pictures
+ - [https://www.theguardian.com/fashion/gallery/2020/feb/18/walk-the-line-pinstripes-are-the-business-once-again-in-pictures](https://www.theguardian.com/fashion/gallery/2020/feb/18/walk-the-line-pinstripes-are-the-business-once-again-in-pictures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 12:00:26+00:00
+
+<p>Paired with a T-shirt or even just a vest, the classic stripe is returns for men this season. Take inspiration from these high-fashion looks riffing on the boardroom staple</p><p>• Read more from the spring/summer 2020 edition of <a href="https://www.theguardian.com/fashion/series/the-fashion-spring-summer-2020">The Fashion</a>, our biannual style supplement</p> <a href="https://www.theguardian.com/fashion/gallery/2020/feb/18/walk-the-line-pinstripes-are-the-business-once-again-in-pictures">Continue reading...</a>
+
+## Average UK wages rise above pre-financial crisis levels
+ - [https://www.theguardian.com/business/2020/feb/18/average-uk-wages-rise-above-pre-financial-crisis-levels](https://www.theguardian.com/business/2020/feb/18/average-uk-wages-rise-above-pre-financial-crisis-levels)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 11:51:41+00:00
+
+<p>About 180,000 more people are in work – taking employment level to 32.9 million</p><p>Average wages in Britain have risen above their pre-financial crisis level for the first time as workers begin to repair the damage to their finances after a 12-year squeeze on living standards.</p><p>In a significant moment after a lost decade for British workers, the <a href="https://www.ons.gov.uk/employmentandlabourmarket/peopleinwork/employmentandemployeetypes/articles/labourmarketeconomiccommentary/february2020">Office for National Statistics</a> said average weekly earnings, excluding bonuses, have reached a fresh peak in real terms. This means pay packets adjusted for inflation are worth more than they were before the 2008 crash – although only just.</p> <a href="https://www.theguardian.com/business/2020/feb/18/average-uk-wages-rise-above-pre-financial-crisis-levels">Continue reading...</a>
+
+## From rep to reps: can a 'Shakespeare gym' solve the crisis in verse-speaking?
+ - [https://www.theguardian.com/stage/2020/feb/18/get-thee-to-a-shakespeare-gym-actors-not-knowing-shakespeare-is-just-the-start](https://www.theguardian.com/stage/2020/feb/18/get-thee-to-a-shakespeare-gym-actors-not-knowing-shakespeare-is-just-the-start)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 11:26:07+00:00
+
+<p>The Royal Shakespeare Company has vowed to drill the Bard’s rhythms into its actors – but our alienation from his language runs deeper <br /></p><p>‘Speak the speech, I pray you, as I pronounced it to you, trippingly on the tongue.” So says Hamlet to the players. But has his advice gone unheeded at a time when Shakespearean verse-speaking is widely held to be in decline? The RSC clearly thinks there is an issue as it has set up a Shakespeare “gym” in Stratford upon Avon to ensure, in the words of <a href="https://www.theguardian.com/stage/2020/feb/04/i-dont-care-who-wrote-shakespeare-says-rsc-artistic-director">its artistic director Gregory Doran</a>, “Everyone has the iambic pentameter in their bloodstream.” That’s a welcome trend, but I suspect the crisis goes deeper than that – and that classic texts are often regarded as alien, hostile territory.</p> <a href="https://www.theguardian.com/stage/2020/feb/18/get-thee-to-a-shakespeare-gym-actors-not-knowing-shakespeare-is-just-the-start">Continue reading...</a>
+
+## Julian Assange: Australian MPs call on UK to block US extradition
+ - [https://www.theguardian.com/media/2020/feb/18/julian-assange-australian-mps-uk-boris-johnson-block-us-extradition](https://www.theguardian.com/media/2020/feb/18/julian-assange-australian-mps-uk-boris-johnson-block-us-extradition)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 11:25:58+00:00
+
+<p>Politicians from WikiLeaks founder’s home country have flown to UK to visit him in jail</p><p>Boris Johnson should block attempts to extradite Julian Assange to the US, say two Australian MPs who have flown to the UK to visit the WikiLeaks founder.</p><p>Andrew Wilkie, an independent federal MP, said the extradition of Assange, who has been charged by the US with conspiring to hack into a secret Pentagon computer network, would set a dangerous precedent.</p> <a href="https://www.theguardian.com/media/2020/feb/18/julian-assange-australian-mps-uk-boris-johnson-block-us-extradition">Continue reading...</a>
+
+## Rose McGowan says she regrets Natalie Portman Oscars dress comments
+ - [https://www.theguardian.com/film/2020/feb/18/rose-mcgowan-natalie-portman-oscars-dress-protest](https://www.theguardian.com/film/2020/feb/18/rose-mcgowan-natalie-portman-oscars-dress-protest)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 11:24:12+00:00
+
+<p>McGowan tweets that she ‘lost sight of the bigger picture’ after calling fellow actor a ‘fraud’</p><p>Rose McGowan has expressed regret for her<a href="https://www.theguardian.com/film/2020/feb/12/rose-mcgowan-natalie-portman-oscars-dress-protest-female-directors"> attack on Natalie Portman over the latter’s Oscar dress “protest”</a>, which took aim at the exclusion of women from the best director Academy Award nominations.</p><p> <span>Related: </span><a href="https://www.theguardian.com/film/2020/feb/12/rose-mcgowan-natalie-portman-oscars-dress-protest-female-directors">Rose McGowan: Natalie Portman's Oscars dress protest 'deeply offensive'</a> </p> <a href="https://www.theguardian.com/film/2020/feb/18/rose-mcgowan-natalie-portman-oscars-dress-protest">Continue reading...</a>
+
+## French prosecutors investigate Russian artist over sex video
+ - [https://www.theguardian.com/world/2020/feb/18/french-prosecutors-investigate-russian-artist-pyotr-pavlensky-sex-video](https://www.theguardian.com/world/2020/feb/18/french-prosecutors-investigate-russian-artist-pyotr-pavlensky-sex-video)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 11:16:38+00:00
+
+<p>Pyotr Pavlensky and girlfriend face possible charges over scandal involving politician</p><p>French prosecutors have placed a Russian artist and his girlfriend under investigation over the leaking of a sex video that brought down a close ally of Emmanuel Macron.</p><p>Pyotr Pavlensky and Alexandra de Taddeo are facing charges of invasion of privacy and publishing images of a sexual nature without consent over the leaking of the video that forced Benjamin Griveaux <a href="https://www.theguardian.com/world/2020/feb/14/paris-mayoral-candidate-benjamin-griveaux-sex-video-scandal">to end his campaign to become mayor of Paris</a>.</p> <a href="https://www.theguardian.com/world/2020/feb/18/french-prosecutors-investigate-russian-artist-pyotr-pavlensky-sex-video">Continue reading...</a>
+
+## Brit awards 2020: who will win every award … and who should
+ - [https://www.theguardian.com/music/2020/feb/18/brit-awards-2020-who-will-who-should-win-lewis-capaldi-stormzy-dave-michael-kiwanuka](https://www.theguardian.com/music/2020/feb/18/brit-awards-2020-who-will-who-should-win-lewis-capaldi-stormzy-dave-michael-kiwanuka)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 11:01:45+00:00
+
+<p>Lewis Capaldi could sweep the board in his breakthrough year, but he faces strong competition from Stormzy, Dave and Michael Kiwanuka</p><p>Coldplay<br />Foals<br />Bring Me the Horizon<br />D-Block Europe<br />Bastille</p> <a href="https://www.theguardian.com/music/2020/feb/18/brit-awards-2020-who-will-who-should-win-lewis-capaldi-stormzy-dave-michael-kiwanuka">Continue reading...</a>
+
+## Bellwether caucuses: diverse Nevada is a crucial test for Democrats
+ - [https://www.theguardian.com/us-news/2020/feb/18/nevada-caucuses-democrats-crucial-contest](https://www.theguardian.com/us-news/2020/feb/18/nevada-caucuses-democrats-crucial-contest)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 11:00:25+00:00
+
+<p>Voters will head to polls on 22 February in ‘first in the west’ vote that tends to favor campaign with strongest ground support</p><p>At a strip mall across the street from the University of Nevada-Las Vegas, several Bernie Sanders volunteers stared at their phones, pretending to be disinterested in politics. Fellow volunteers walked over to them, and pitched the Vermont senator’s solutions to the student debt crisis and rising college tuition costs. Handing over clipboards, they offered volunteer information and urged their pretend-targets to commit to supporting Bernie. Then both groups traded roles, and those who played the distracted UNLV students practiced delivering Sanders’ plans for reform.</p><p> <span>Related: </span><a href="https://www.theguardian.com/us-news/2020/feb/18/nevada-scrambles-to-avoid-iowa-like-chaos-as-democratic-caucuses-approach">Nevada scrambles to avoid Iowa-like chaos as Democratic caucuses approach</a> </p> <a href="https://www.theguardian.com/us-news/2020/feb/18/nevada-caucuses-democrats-crucial-contest">Continue reading...</a>
+
+## Chelsea fans show that patience with Lampard may not be infinite | Jonathan Wilson
+ - [https://www.theguardian.com/football/2020/feb/18/chelsea-fans-patience-with-frank-lampard-not-infinite-dissent-manchester-united](https://www.theguardian.com/football/2020/feb/18/chelsea-fans-patience-with-frank-lampard-not-infinite-dissent-manchester-united)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 11:00:25+00:00
+
+<p>There was a murmur of dissent at the defeat by Manchester United and the excuses for a mediocre team will soon run out</p><p>Just briefly, for no more than a couple of seconds, there was a murmur of dissent directed at Frank Lampard by the home crowd. It came midway through the second half as Olivier Giroud was brought on for Michy Batshuayi. Up went the ironic roar: why hadn’t the French World Cup winner been brought on sooner? But then by that stage Chelsea fans were greeting most things, particularly decisions by the referee Anthony Taylor that went their way, with ironic cheers. If a VAR call had favoured them, or Batshuayi had scored a goal, the roof would have come off.</p><p>Still, the moment seemed telling, in part because the question is so obvious – Giroud may be 33, and he may have a history of missing big chances in the biggest games, but why has he been limited to just 304 minutes of football this season when those favoured by Lampard have been so erratic in front of goal of late? – and in part because it suggested Chelsea’s patience with Lampard may not be infinite.</p> <a href="https://www.theguardian.com/football/2020/feb/18/chelsea-fans-patience-with-frank-lampard-not-infinite-dissent-manchester-united">Continue reading...</a>
+
+## All the Labour candidates have tacked to the left, but do they really mean it? | Owen Jones
+ - [https://www.theguardian.com/commentisfree/2020/feb/18/labour-candidates-left-leadership-race-members](https://www.theguardian.com/commentisfree/2020/feb/18/labour-candidates-left-leadership-race-members)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 10:57:22+00:00
+
+<p>One question haunts the party’s leadership race: whether contenders are only saying what members want to hear</p><p>Chuka Umunna’s <a href="https://www.bbc.co.uk/news/uk-politics-33561504" title="">description</a> of the Labour party “behaving like a petulant child who has been told you can’t have the sweeties in the sweet shop” in the summer of 2015 was a somewhat crude summation of what became the prevailing attitude of Jeremy Corbyn’s internal opponents. While they would happily accept that thumbing their noses at the public for rejecting Labour was counterproductive, they never applied the same logic to their own party’s membership, too often regarding them as a delusional, ideologically crazed cult.</p><p> <span>Related: </span><a href="https://www.theguardian.com/commentisfree/2020/feb/16/keir-starmer-past-scrutiny">Keir Starmer’s past is coming under scrutiny. What can we learn from it? | David Renton</a> </p> <a href="https://www.theguardian.com/commentisfree/2020/feb/18/labour-candidates-left-leadership-race-members">Continue reading...</a>
+
+## Hindu god Shiva given seat on Kashi-Mahakal Express
+ - [https://www.theguardian.com/world/2020/feb/18/hindu-god-shiva-given-seat-on-kashi-mahakal-express](https://www.theguardian.com/world/2020/feb/18/hindu-god-shiva-given-seat-on-kashi-mahakal-express)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 10:49:21+00:00
+
+<p>Authorities say move was to ‘seek blessings’ for train taking people to pilgrimage sites</p><p>Indian rail authorities allocated a berth on a train on Sunday for the Hindu god Shiva, raising eyebrows in a country led by Narendra Modi’s hardline Hindu nationalist BJP party.</p><p>Officials in charge of the Kashi-Mahakal Express, which was flagged off by the Indian prime minister, booked the upper berth in a second-class, air-conditioned compartment for the god known as the cosmic destroyer on the train’s inaugural run.</p> <a href="https://www.theguardian.com/world/2020/feb/18/hindu-god-shiva-given-seat-on-kashi-mahakal-express">Continue reading...</a>
+
+## Will green technology kill Chile's deserts? – video
+ - [https://www.theguardian.com/global-development/video/2020/feb/18/will-green-technology-kill-chiles-deserts-video](https://www.theguardian.com/global-development/video/2020/feb/18/will-green-technology-kill-chiles-deserts-video)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 10:39:38+00:00
+
+<p>The Atacama in northern Chile is the driest desert in the world, and may be the oldest. It also holds 40% of the world's lithium – an essential ingredient in the rechargeable batteries used in green technology. Indigenous leaders and scientists say Chile's plans to feed a global green energy boom with Atacama lithium will kill the desert. As violent protests rock the country, they are fighting for the mining to stop&nbsp;<br /></p> <a href="https://www.theguardian.com/global-development/video/2020/feb/18/will-green-technology-kill-chiles-deserts-video">Continue reading...</a>
+
+## David Squires on … the 33rd anniversary of England's glorious 4-2 win in Spain
+ - [https://www.theguardian.com/football/ng-interactive/2020/feb/18/david-squires-on-the-33rd-anniversary-of-england-glorious-4-2-win-in-spain](https://www.theguardian.com/football/ng-interactive/2020/feb/18/david-squires-on-the-33rd-anniversary-of-england-glorious-4-2-win-in-spain)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 10:34:04+00:00
+
+<p>Our cartoonist on staying up for Sportsnight, <a href="https://www.theguardian.com/football/that-1980s-sports-blog/2018/oct/15/england-spain-madrid-four-goals-gary-lineker">some classic Gary Lineker self-deprecation</a> and a woeful slice from Steve Hodge</p><ul><li><a href="https://guardianprintshop.com/collections/david-squires/products/england-87">Buy a copy of this cartoon in our print shop</a></li><li><a href="https://www.theguardian.com/football/series/david-squires-on">Take a look through David’s archive of cartoon</a></li></ul> <a href="https://www.theguardian.com/football/ng-interactive/2020/feb/18/david-squires-on-the-33rd-anniversary-of-england-glorious-4-2-win-in-spain">Continue reading...</a>
+
+## New chancellor Rishi Sunak sticks to 11 March budget date
+ - [https://www.theguardian.com/uk-news/2020/feb/18/new-chancellor-rishi-sunak-sticks-to-11-march-budget-date](https://www.theguardian.com/uk-news/2020/feb/18/new-chancellor-rishi-sunak-sticks-to-11-march-budget-date)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 10:07:11+00:00
+
+<p>The 39-year-old has three weeks to sort out programme after Sajid Javid’s exit</p><p>The budget will go ahead on 11 March, the Treasury said on Tuesday, forcing the new chancellor, Rishi Sunak, to piece together a fresh tax and spending programme over the next three weeks.</p><p><a href="https://www.theguardian.com/uk-news/2020/feb/16/budget-may-be-delayed-in-wake-of-sajid-javid-departure-no-11-rishi-sunak">A delay was expected</a> after Sunak’s predecessor, Sajid Javid, <a href="https://www.theguardian.com/politics/2020/feb/13/sajid-javid-resigns-as-chancellor-amid-boris-johnson-reshuffle">abruptly quit his job</a> after a demand by Boris Johnson that he sack his advisers and replace them with a team jointly managed with No 10.</p> <a href="https://www.theguardian.com/uk-news/2020/feb/18/new-chancellor-rishi-sunak-sticks-to-11-march-budget-date">Continue reading...</a>
+
+## I learned firsthand how British universities are silencing abuse survivors | Danielle Bradford
+ - [https://www.theguardian.com/commentisfree/2020/feb/18/universities-silencing-abuse-survivors-students](https://www.theguardian.com/commentisfree/2020/feb/18/universities-silencing-abuse-survivors-students)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 10:00:23+00:00
+
+Gagging students is an unacceptable practice driven by the marketisation of education<br /><br />• Danielle Bradford is suing Cambridge University for discrimination over its handling of her sexual harassment complaint<p>More than half of students say they <a href="https://www.theguardian.com/education/2019/feb/26/more-than-half-of-uk-students-say-they-have-faced-unwanted-sexual-behaviour" title="">have experienced sexual harassment or assault</a>, but only 8% have reported it, a study shows. Many of those who do submit a formal report spend weeks, maybe months, retelling the story of what might be one of the most difficult events of their lives. Imagine, then, what it might feel like in the midst of all this to be presented with a legally binding document that swears you to complete secrecy – meaning you cannot speak of your experience to anyone, not friends, family, staff or colleagues. That’s what it’s like to be a student presented with a non-disclosure agreement.</p><p>Last week, an investigation by the BBC revealed that nearly a third of universities <a href="https://www.bbc.co.uk/news/uk-51447615" title="">have used NDAs in student grievance disputes</a> since 2016, including cases concerning sexual assault, bullying and lack of disability support. Involving £1.3m in payouts, these NDAs have been criticised as <a href="https://twitter.com/AnnOlivarius/status/1227537010816098305?s=20" title="">“legally questionable”</a> by expert lawyers, and an <a href="https://twitter.com/CSkidmoreUK/status/1227526371200638977" title="">“abuse of power”</a> by the former universities minister Chris Skidmore.</p> <a href="https://www.theguardian.com/commentisfree/2020/feb/18/universities-silencing-abuse-survivors-students">Continue reading...</a>
+
+## Andrew Sabisky: minister urges review of No 10 hiring process
+ - [https://www.theguardian.com/politics/2020/feb/18/andrew-sabisky-no-10-hiring-process-needs-looking-at-minister-kwasi-kwarteng](https://www.theguardian.com/politics/2020/feb/18/andrew-sabisky-no-10-hiring-process-needs-looking-at-minister-kwasi-kwarteng)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 09:35:13+00:00
+
+<p>Kwasi Kwarteng says views of Johnson ex-adviser are ‘racist, offensive and objectionable’ </p><p>The business minister Kwasi Kwarteng has said the process for hiring staff to advise Downing Street needs to be “looked at” following the <a href="https://www.theguardian.com/politics/2020/feb/17/boris-johnson-adviser-quits-over-race-and-eugenics-writings">resignation of the Tory adviser Andrew Sabisky</a> over his controversial claims that intelligence was linked to race.</p><p>Kwarteng described the 27-year-old’s remarks in columns, blogs and online posts as “racist, offensive and objectionable”.</p> <a href="https://www.theguardian.com/politics/2020/feb/18/andrew-sabisky-no-10-hiring-process-needs-looking-at-minister-kwasi-kwarteng">Continue reading...</a>
+
+## Rogue colons, endless ellipses: the worst grammar crimes in film titles
+ - [https://www.theguardian.com/film/2020/feb/18/rogue-colons-endless-ellipses-the-worst-grammar-crimes-in-film-titles](https://www.theguardian.com/film/2020/feb/18/rogue-colons-endless-ellipses-the-worst-grammar-crimes-in-film-titles)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 09:00:23+00:00
+
+<p>New Austen adaptation Emma. puts the period into period dramas. What other film titles include incongruous punctuation?</p><p>In “the most <a href="https://www.theguardian.com/film/darren-aronofsky">Darren Ar</a><a href="https://www.theguardian.com/film/darren-aronofsky">onofsky</a> thing of all time”, the director decided on having the exclamation mark at the end of the title of his 2017 film before he’d even written the script, because it “reflects the spirit of the film … at the end of it, there’s a big exclamation point.” Somewhere in east London, a hipster bakery that sells sourdough starters is cursing him for beating them to that name.<br /><strong>Grammar police verdict </strong>Starts wrong, ends badly.</p> <a href="https://www.theguardian.com/film/2020/feb/18/rogue-colons-endless-ellipses-the-worst-grammar-crimes-in-film-titles">Continue reading...</a>
+
+## Are plastic containers safe for our food? Experts say it’s hard to know
+ - [https://www.theguardian.com/us-news/2020/feb/18/are-plastic-containers-safe-to-use-food-experts](https://www.theguardian.com/us-news/2020/feb/18/are-plastic-containers-safe-to-use-food-experts)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 09:00:22+00:00
+
+<p>The plastics industry says its containers are safe but some experts advise consumers to avoid heating them and advocate using glass or metal instead </p><p>Many of us have an overflowing kitchen cupboard of plastic containers to store our leftovers.</p><p>But as awareness grows over the <a href="https://www.theguardian.com/us-news/series/united-states-of-plastic">health and environmental pitfalls</a> of plastic, some consumers may be wondering: is it time to ditch that stash of old deli containers?</p> <a href="https://www.theguardian.com/us-news/2020/feb/18/are-plastic-containers-safe-to-use-food-experts">Continue reading...</a>
+
+## Hive heists: why the next threat to bees is organized crime
+ - [https://www.theguardian.com/environment/2020/feb/18/bees-hives-theft-stealing-organized-crime-threat](https://www.theguardian.com/environment/2020/feb/18/bees-hives-theft-stealing-organized-crime-threat)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 09:00:22+00:00
+
+<p>Pollination has become big business, and thieves are now targeting hives with growing sophistication in the US</p><p>Mike Potts was aware he was at risk of being a victim of crime, he just didn’t think it would happen to him. But Potts is an owner of an increasingly valuable commodity that thieves are targeting with growing sophistication in the US: bees.</p><p>A booming demand for honeybees for pollination drew Potts, owner of Pottsy’s Pollination in Oregon, to load 400 hives of his bees on trucks and drive them down to California’s agricultural heartland last month. He unloaded them to a holding area just outside Yuba City and returned just a few days later to find 92 hives had been whisked away by thieves.</p> <a href="https://www.theguardian.com/environment/2020/feb/18/bees-hives-theft-stealing-organized-crime-threat">Continue reading...</a>
+
+## Wales braces for more heavy rain after devastating floods
+ - [https://www.theguardian.com/uk-news/2020/feb/18/wales-braced-for-more-heavy-rain-after-devastating-floods-storm-ellen](https://www.theguardian.com/uk-news/2020/feb/18/wales-braced-for-more-heavy-rain-after-devastating-floods-storm-ellen)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 08:47:25+00:00
+
+<p>More than 450 warnings still in place in UK as communities prepare for Storm Ellen</p><p>Parts of Wales that have been hit by the worst floods in a generation are preparing for further rain in the next 48 hours, as more than 450 flood warnings and alerts remain in place across the UK.</p><p>Heavy rain is forecast in parts of north and south Wales from Wednesday evening, hampering the round-the-clock cleanup operation launched after Storm Dennis.</p> <a href="https://www.theguardian.com/uk-news/2020/feb/18/wales-braced-for-more-heavy-rain-after-devastating-floods-storm-ellen">Continue reading...</a>
+
+## I laugh maniacally when I orgasm – and my boyfriend can no longer reach climax
+ - [https://www.theguardian.com/lifeandstyle/2020/feb/18/i-laugh-maniacally-when-i-orgasm-and-my-boyfriend-can-no-longer-reach-climax](https://www.theguardian.com/lifeandstyle/2020/feb/18/i-laugh-maniacally-when-i-orgasm-and-my-boyfriend-can-no-longer-reach-climax)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 08:00:21+00:00
+
+<p>I don’t see my laughter as a problem, but I’m worried that this will affect my relationship<br /></p><p><strong>I am a 37-year-old woman and have been with my partner for 10 months. My boyfriend and I enjoy an active sex life and we are deeply in love. I don’t see it as a problem, but recently, every time I have an orgasm, I experience manic fits of laughter. I have never experienced this before but, equally I have never orgasmed so hard before, either. My boyfriend finds this amusing, but then struggles to climax, so I think he is baffled by the whole thing. I am worried this will become an issue. What do you advise?</strong></p><p>I am glad you do not see this as a problem, and I would simply recommend that you tell your boyfriend that you truly appreciate the orgasms you are having with him, and that the intensity of them seems to have triggered a response that is new for you: spontaneous laughter. Make sure he understands that your mirth is not related to him. There has been very little scientific research into the neurophysiological mechanisms of orgasm. Case studies have reported phenomena just before, during, or after orgasm that include laughing – as well as more distressing symptoms such as crying, itching, drooling, urinating, seizures, headaches and other bodily pain. Medications have helped some of these symptoms. Fortunately for you, though, your symptom is giving you the healthy gifts of sexual pleasure and laughter, both at the same time. Lucky you!</p> <a href="https://www.theguardian.com/lifeandstyle/2020/feb/18/i-laugh-maniacally-when-i-orgasm-and-my-boyfriend-can-no-longer-reach-climax">Continue reading...</a>
+
+## Kidnappers prey with ‘total impunity’ on migrants waiting for hearings in Mexico
+ - [https://www.theguardian.com/us-news/2020/feb/18/mexico-kidnappers-migrants-trump-immigration](https://www.theguardian.com/us-news/2020/feb/18/mexico-kidnappers-migrants-trump-immigration)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 08:00:21+00:00
+
+<p>Report finds 80% of migrants waiting have been abducted by the mafia and 45% have suffered violence or violation</p><p>A score or so migrants crouch in the dark corridor of the safe house where they have been waiting for a month. Today, their turn has come to go back on the road again – not across the US border, however, but deeper into Mexico, to save their skins.</p><p>Outside, a minivan pulls up, driven by Baptist pastor Lorenzo Ortíz to take the migrants to relative safety, and away from kidnap, extortion and violation.</p> <a href="https://www.theguardian.com/us-news/2020/feb/18/mexico-kidnappers-migrants-trump-immigration">Continue reading...</a>
+
+## Nevada scrambles to avoid Iowa-like chaos as Democratic caucuses approach
+ - [https://www.theguardian.com/us-news/2020/feb/18/nevada-scrambles-to-avoid-iowa-like-chaos-as-democratic-caucuses-approach](https://www.theguardian.com/us-news/2020/feb/18/nevada-scrambles-to-avoid-iowa-like-chaos-as-democratic-caucuses-approach)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 08:00:21+00:00
+
+<p>The state party appears to have abandoned plans to use the app that led to disaster. But experts say more could be done</p><p>Democratic party officials in Nevada are rushing to avoid the <a href="https://www.theguardian.com/us-news/2020/feb/04/iowa-caucuses-delays-smartphone-app">fate of Iowa</a>, where technological and organizational failure left the first caucus in the 2020 presidential race without a clear winner.</p><p>Nevada Democratic party officials had initially planned to rely on <a href="https://www.vox.com/2020/2/4/21122779/nevada-caucuses-iowa-app">the same app</a> that caused chaos in Iowa to transfer results from local precincts during the caucus on 22 February.</p> <a href="https://www.theguardian.com/us-news/2020/feb/18/nevada-scrambles-to-avoid-iowa-like-chaos-as-democratic-caucuses-approach">Continue reading...</a>
+
+## ‘It’s scandalous’: when free schools shut for want of a permanent home
+ - [https://www.theguardian.com/education/2020/feb/18/free-schools-shut-want-permanent-home-greenwich](https://www.theguardian.com/education/2020/feb/18/free-schools-shut-want-permanent-home-greenwich)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 07:15:20+00:00
+
+<p>Greenwich academy is latest to close – and angry parents say it should never have been allowed to open</p><p>Louise Grace’s two children, aged 13 and 11, spent more than a week off school last term suffering from anxiety. Their school, the International Academy of Greenwich (IAG), is earmarked for closure and the worry of watching it happen – friends taking up places elsewhere, teachers leaving – is affecting both children badly, their mother says.</p><p>“My daughter is so upset by it all: she is losing her friends and she is worried about going to a new school, with her GCSEs about to start. She is despondent about the whole process,” says Grace.</p> <a href="https://www.theguardian.com/education/2020/feb/18/free-schools-shut-want-permanent-home-greenwich">Continue reading...</a>
+
+## Acid attack survivors in Uganda - in pictures
+ - [https://www.theguardian.com/global-development/gallery/2020/feb/18/acid-attack-survivors-in-uganda-in-pictures](https://www.theguardian.com/global-development/gallery/2020/feb/18/acid-attack-survivors-in-uganda-in-pictures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 07:00:20+00:00
+
+<p>Acid attacks have been on the rise in Uganda. Organisations such as End Acid Violence Uganda are pushing for a law that would see harsher punishments for perpetrators such as a ‘no bail policy’, satisfactory compensation for victims, and implementation of a medical care policy paid for by the government. End Acid Violence Uganda officers make regular home visits to survivors to offer support and guidance. </p> <a href="https://www.theguardian.com/global-development/gallery/2020/feb/18/acid-attack-survivors-in-uganda-in-pictures">Continue reading...</a>
+
+## The Ten Commandments as told by presidential figures – in pictures
+ - [https://www.theguardian.com/artanddesign/gallery/2020/feb/18/the-ten-commandments-as-told-by-presidential-figures-in-pictures](https://www.theguardian.com/artanddesign/gallery/2020/feb/18/the-ten-commandments-as-told-by-presidential-figures-in-pictures)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 07:00:20+00:00
+
+<p>In her new photo series, artist <a href="https://www.dinagoldstein.com/the-10-commandments/">Dina Goldstein</a> has created tableaux that match a different president to one of the Ten Commandments. She hopes the images will bring ‘visual shock, incongruity, irony and metaphor to inspire discourse and insight into how American society has gone so astray’</p> <a href="https://www.theguardian.com/artanddesign/gallery/2020/feb/18/the-ten-commandments-as-told-by-presidential-figures-in-pictures">Continue reading...</a>
+
+## What four years at sea taught me about our relationship to the ocean
+ - [https://www.theguardian.com/environment/2020/feb/18/what-four-years-at-sea-taught-me-about-our-relationship-to-the-ocean](https://www.theguardian.com/environment/2020/feb/18/what-four-years-at-sea-taught-me-about-our-relationship-to-the-ocean)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 07:00:20+00:00
+
+<p>Oceans are central to the story of civilisation – so why do so many of us feel disconnected from them?</p><p>It was on day 11, I think, that I stopped getting out of bed at all. I had already let my hygiene standards slip to the point that a large knot was starting to form in my hair. Later my mother would have to cut it out with scissors. She didn’t mind. We were all in the same boat.</p><p>I was nine years old, and nearly two weeks into sailing across the Atlantic with my family. My father had sailed all his life, and introduced my mother to it; and they spent years preparing to sail around the world. Including my little sister, that made four of us aboard a 52ft yacht – our home for four years from 2000, in which time we got from Dorset to New Zealand.</p> <a href="https://www.theguardian.com/environment/2020/feb/18/what-four-years-at-sea-taught-me-about-our-relationship-to-the-ocean">Continue reading...</a>
+
+## How an all-women fell-running course in Wales helped me let off the brakes
+ - [https://www.theguardian.com/travel/2020/feb/18/fell-running-wales-black-mountains-women-only-day-course](https://www.theguardian.com/travel/2020/feb/18/fell-running-wales-black-mountains-women-only-day-course)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 06:30:19+00:00
+
+<p>Leaving the tarmac behind, I tested my stamina and mettle on rocky terrain in the Black Mountains</p><p>At the top of a muddy slope that drops into a beautiful valley, I take a deep breath and prepare to put one foot in front of the other. Walking down this track, strewn with roots and ruts, wouldn’t normally be too challenging. But today I’m attempting to reach the bottom at a faster pace. The trouble is, I’m struggling with my fear of falling.</p><p>Thankfully, help is at hand. I’m in the Black Mountains for a Beginning Fell Running for Women course, run by Welsh company Element Active, based at Llanbedr village near Crickhowell. The day is run by <a href="https://element-active.co.uk/the-team/" title="">Ruth Pickvance</a>, a former international runner and British fell champion, and Faye Johnson, who competes internationally for Wales. Ruth created the course to encourage women to try <a href="https://www.theguardian.com/travel/2019/feb/02/six-best-wild-runs-trail-running-mountains-forests-uk" title="">fell running</a>, which means dashing over hills and dales in wide-open spaces, rather than the usual joggers’ grind of pounding the pavements.</p> <a href="https://www.theguardian.com/travel/2020/feb/18/fell-running-wales-black-mountains-women-only-day-course">Continue reading...</a>
+
+## Portugal considers subsidising UK tourists' post-Brexit healthcare
+ - [https://www.theguardian.com/politics/2020/feb/18/portugal-uk-tourists-post-brexit-healthcare-ehic](https://www.theguardian.com/politics/2020/feb/18/portugal-uk-tourists-post-brexit-healthcare-ehic)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 06:13:43+00:00
+
+<p>Country looking at continuing cover offered by European health insurance card</p><p>﻿Portugal is considering offering British tourists subsidised post-Brexit healthcare in an effort to retain their custom in the Algarve, Lisbon and beyond.</p><p>It is one of several novel measures being considered by the Portuguese government in an effort to minimise the disruption of Brexit to its economy.</p> <a href="https://www.theguardian.com/politics/2020/feb/18/portugal-uk-tourists-post-brexit-healthcare-ehic">Continue reading...</a>
+
+## Renewables barely feature in building programme for 500 schools
+ - [https://www.theguardian.com/education/2020/feb/18/renewables-barely-feature-building-programme-schools-solar-panels](https://www.theguardian.com/education/2020/feb/18/renewables-barely-feature-building-programme-schools-solar-panels)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 06:13:13+00:00
+
+<p>Solar panels, heat pumps and sustainable designs bypassed – but now one Somerset school is taking a stand</p><p>It is a modernist version of a log cabin nestling in a busy south London suburb – and it is about to make history. The new building for Hackbridge primary, in Sutton, opens next week as England’s first zero-carbon school, able to produce and conserve as much energy as it uses, and even put unused electricity generated back into the grid.</p><p>With its wood frame and cladding, solar panels, pumps to collect heat from the ground, and insulation made from recycled newspaper, it is the first school in England to meet the ambitious Passivhaus Plus low-energy design standard.</p> <a href="https://www.theguardian.com/education/2020/feb/18/renewables-barely-feature-building-programme-schools-solar-panels">Continue reading...</a>
+
+## 'I get a lot of love': how hope survives in the hell of Moria
+ - [https://www.theguardian.com/world/2020/feb/18/librarian-moria-tales-hope-refugee-camp](https://www.theguardian.com/world/2020/feb/18/librarian-moria-tales-hope-refugee-camp)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 06:00:20+00:00
+
+<p>The refugee camp is notorious for its overcrowding, fires and riots. But for the people who live there, life goes on – and every day brings new stories of resilience, bravery and compassion</p><p>It is not easy to find the library <a href="https://www.theguardian.com/world/2020/feb/09/moria-refugee-camp-doctors-story-lesbos-greece" title="">at Moria on the Greek island of Lesbos</a>. Before reaching the refugee camp’s main entrance, you turn off the road where the police bus is always parked, then walk up the track that runs beside the perimeter fence. You walk past the military post and the hawkers selling fruit and veg, trainers, cooking utensils, cigarettes, electrical equipment – pretty much everything; past huge stinking mountains of bagged-up rubbish – so much rubbish; and past the worst toilets in the world, overflowing with excrement and plastic.</p><p>Then, opposite the hole in the fence where people who don’t want to use the main gate come and go, you turn right, into what they call the Jungle, the olive groves into which the camp has exploded, because it was meant for 3,000 people and now has 20,000. Continue along the winding path, watching out for low-slung washing lines, past the burnt-out olive tree and the tiny tent with the family who always say hello, then turn left up the steep hill that becomes a muddy slide after rain. And there it is, on the right: Moria’s new library.</p> <a href="https://www.theguardian.com/world/2020/feb/18/librarian-moria-tales-hope-refugee-camp">Continue reading...</a>
+
+## Higher alcohol taxes to fund NHS would benefit poor – study
+ - [https://www.theguardian.com/society/2020/feb/18/higher-alcohol-taxes-to-fund-nhs-would-benefit-poor-study](https://www.theguardian.com/society/2020/feb/18/higher-alcohol-taxes-to-fund-nhs-would-benefit-poor-study)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 06:00:19+00:00
+
+<p>Research appears to upend idea alcohol taxes are regressive and prompts call for rise in budget</p><p>Raising alcohol taxes does not disproportionately affect poorer households, once the effects of the potential additional funds generated to plough into the NHS are taken into account, according to a study.</p><p>Although the research acknowledged increasing duties on alcoholic beverages may hit the most economically deprived proportionately harder than the rich, it claims this is outweighed by how the poorest benefit more from increased healthcare spending.</p> <a href="https://www.theguardian.com/society/2020/feb/18/higher-alcohol-taxes-to-fund-nhs-would-benefit-poor-study">Continue reading...</a>
+
+## How Sudan's star of the tambour defied death and dictatorship
+ - [https://www.theguardian.com/global-development/2020/feb/18/how-sudans-star-of-the-tambour-defied-death-and-dictatorship](https://www.theguardian.com/global-development/2020/feb/18/how-sudans-star-of-the-tambour-defied-death-and-dictatorship)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 06:00:19+00:00
+
+<p>Once lauded as one of Sudan’s finest musicians, Abu Obaida Hassan faded into obscurity under the Bashir regime and was even pronounced dead. Now he is back – to global acclaim</p><p>The unpaved outskirts of Omdurman, Sudan’s second city, seem like an unusual place to find a musical superstar, but Abu Obaida Hassan is far from ordinary. The frail man in his 60s who holds court in the shaded yard of a squat brick house represents a musical revolution, one that electrified traditional Sudanese music. Stranger still, in the eyes of the Sudanese public he is back from the dead.</p><p>In his 70s heyday, Abu Obaida travelled from Merowe, the home of the Shaigiya people and a centre of Nubian culture, to Khartoum, finding fame as a renegade player of a local stringed instrument known as the tambour.</p> <a href="https://www.theguardian.com/global-development/2020/feb/18/how-sudans-star-of-the-tambour-defied-death-and-dictatorship">Continue reading...</a>
+
+## UK hospital apologises for signs to coronavirus isolation facility
+ - [https://www.theguardian.com/world/2020/feb/18/uk-hospital-apologises-for-signs-to-coronavirus-isolation-facility-middlesbrough](https://www.theguardian.com/world/2020/feb/18/uk-hospital-apologises-for-signs-to-coronavirus-isolation-facility-middlesbrough)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 06:00:19+00:00
+
+<p>Middlesbrough hospital admits staff not adequately briefed after family unable to find unit</p><p>An NHS hospital trust has apologised for not providing “robust signage” towards its coronavirus isolation unit after a woman who feared she had the infection was unable to find the facility, and instead wandered into the oncology department.</p><p>The woman, who had developed flu-like symptoms after visiting Singapore and Hong Kong, was advised by a microbiology doctor through the NHS 111 service to self-refer at James Cook University hospital in <a href="https://www.theguardian.com/uk-news/middlesbrough">Middlesbrough</a>, where “pods” designed to prevent the spread of coronavirus had been established.</p> <a href="https://www.theguardian.com/world/2020/feb/18/uk-hospital-apologises-for-signs-to-coronavirus-isolation-facility-middlesbrough">Continue reading...</a>
+
+## 'I just wanted to die': the torture of an Iraqi protester
+ - [https://www.theguardian.com/world/2020/feb/18/i-just-wanted-to-die-the-torture-of-an-iraqi-protester](https://www.theguardian.com/world/2020/feb/18/i-just-wanted-to-die-the-torture-of-an-iraqi-protester)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 05:00:17+00:00
+
+<p>How a campaign of kidnapping, intimidation and killings is being used to try to quell uprising</p><p>As the sun began to set, the evening of 14 December seemed destined to be no different to any other for Hayder, a former military medic in Baghdad. After leaving the protest camp in Tahrir Square, where he had been treating the wounds of injured anti-government demonstrators, he went out for dinner with friends in the neighbouring district of Karrada.</p><p>Like thousands of other young Iraqis, Hayder first took to the streets <a href="https://www.theguardian.com/world/2019/oct/06/iraq-protests-un-demands-end-to-violence-as-death-tolls-nears-100">two months earlier on 1 October</a>. He was chanting slogans demanding better services and denouncing the corrupt ruling parties when security forces opened fire on the crowd. He stood on a highway leading to Tahrir Square and saw young, unarmed protesters fall around him, some dead, others injured.</p> <a href="https://www.theguardian.com/world/2020/feb/18/i-just-wanted-to-die-the-torture-of-an-iraqi-protester">Continue reading...</a>
+
+## Can the fashion industry ever be sustainable? – podcast
+ - [https://www.theguardian.com/news/audio/2020/feb/18/can-the-fashion-industry-ever-be-sustainable](https://www.theguardian.com/news/audio/2020/feb/18/can-the-fashion-industry-ever-be-sustainable)
+ - RSS feed: https://www.theguardian.com/rss
+ - date published: 2020-02-18 03:00:15+00:00
+
+<p>Environmental journalist Lucy Siegle has been writing about the fashion industry for 15 years. As London fashion week draws to a close, she discusses ways the industry could become more environmentally friendly. And: Laura Snapes on the Brit awards and its lack of female nominees</p><p>Today in Focus producer <strong>Hannah Moore</strong> discusses being backstage at the Vin + OMI show with <strong>Rachel Humphreys</strong>. Hannah took part in the show at London fashion week, which showcased a more sustainable approach to fashion. </p><p>Plus, the environmental journalist <strong>Lucy Siegle</strong>, who has been covering the fashion industry for 15 years, talks to Rachel about why fast fashion has such a hold and the changes that need to happen to make the industry more environmentally friendly. </p> <a href="https://www.theguardian.com/news/audio/2020/feb/18/can-the-fashion-industry-ever-be-sustainable">Continue reading...</a>
+
