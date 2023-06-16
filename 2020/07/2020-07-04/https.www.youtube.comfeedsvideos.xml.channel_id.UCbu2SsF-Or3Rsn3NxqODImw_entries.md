@@ -1,0 +1,52 @@
+# Source:GameSpot, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw, language:en-US
+
+## Blankos Block Party Is A User Generated Playground
+ - [https://www.youtube.com/watch?v=kSOOniJ2FPs](https://www.youtube.com/watch?v=kSOOniJ2FPs)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-05 00:00:00+00:00
+
+Blankos Block Party is a colorful and intriguing-looking MMO party game of sorts that features a unique setup. The premise is that this game takes place in a world where vinyl toys come to life and have their own lives when humans aren't looking. 
+
+As part of GameSpot's gaming celebration Play For All, we caught up with Mythical Games chief creative officer Jamie Jackson who told us all about this imaginative project. In the video, Jackson talks about numerous aspects of the game, including its robust-looking level-editor that allows players to create basically anything they can imagine. 
+
+Basically, Blankos Block Party seems to combine the free-flowing gameplay of titles like Fortnite and Roblox with the aesthetic charm of a Funko Pop vinyl toy come to life. A beta test for the game launches later this year, so keep checking back with GameSpot for more!
+
+## PS5: 30 Video Game Series We Want To See On The New Console
+ - [https://www.youtube.com/watch?v=UUWmIuiMqsc](https://www.youtube.com/watch?v=UUWmIuiMqsc)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-05 00:00:00+00:00
+
+For the past 26 years, the PlayStation has produced some of gamings most memorable titles. In this video we’ll take a look back at some of these stand out games and discuss why now is the right time for them to make another appearance in the upcoming PS5.
+
+We've finally seen the PlayStation 5 in action--both the console itself and some of its upcoming games. While we already took a look at every PS5 game confirmed so far, there are plenty of games and ongoing series that deserve their chance to shine on the next-gen system. 
+
+Tony lists our top picks in the video above. There are tons of games that we'd love to see, from a Bloodborne remake to a Final Fantasy Tactics revival.
+
+## How To Make The Last Of Us 2 Even More Intense
+ - [https://www.youtube.com/watch?v=CM6h-Iu-87E](https://www.youtube.com/watch?v=CM6h-Iu-87E)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-04 00:00:00+00:00
+
+The Last Of Us Part 2 is a harrowing journey as is. But if you want to see what it's like on the hardest difficulty with absolutely no HUD, Jake has you covered.
+
+The Last of Us Part 2 imagines a brutal world filled with zombie-like infected monsters, along with some just-as-deadly and just-as-monstrous surviving humans. It's a world where staying alive often means someone else has to die, and the resources you need to keep yourself alive and take down your enemies are always at a premium.
+
+But if you really want to make The Last of Us 2 feel truly frightening, you should mess with its many elaborate difficulty settings. Developer Naughty Dog has included a lot of granular controls that let you create exactly the post-apocalyptic survival experience you want. And if you want a particularly intense, difficult experience, you can create one--so we set about trying to create the most authentic and harrowing version of The Last of Us Part 2 that we could. Check out the video above to see how we created the most difficult and realistic version of The Last of Us 2 we could manage.
+
+The easiest way to increase the toughness of your playthrough of The Last of Us 2 is to ratchet it up to Survivor difficulty, but it's possible to make a lot of smaller, more specific changes as well--like turning off ammo indicators, reticles, and other HUD elements, or adjusting enemy intelligence. There are a variety of options that can make the game harder (or easier, or more comfortable), and it's totally worth messing with all of them to find your perfect playthrough.
+
+We've got lots more coverage of The Last of Us Part 2, from our spoiler-free review (and spoiler review) to an explainer about the ending and tons of guides for finding everything the game has to offer.
+
+## Your Cyberpunk 2077 Questions Answered
+ - [https://www.youtube.com/watch?v=iG_R6ygP6Yo](https://www.youtube.com/watch?v=iG_R6ygP6Yo)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-04 00:00:00+00:00
+
+Jake and Tamoor played eight hours of Cyberpunk 2077 and are here to answer your questions!
+
+GameSpot recently had an opportunity to play a chunk of CD Projekt Red's much-anticipated RPG Cyberpunk 2077, which is shaping up to be one of this year's biggest games for PS4, Xbox One, and PC. 
+
+You had questions about the game, and we have answers. In a new video, GameSpot's Jake Dekker and Tamoor Hussain answer some of your questions about the game. In the video, Jake and Tamoor talk about whether or not the game has easter eggs, what the driving feels like, if you can take on quests above your level, and if you need to eat, sleep, and drink to sustain yourself. 
+
+Jake and Tamoor answer loads more questions, so be sure to watch the full video to hear directly from Jake and Tamoor about Cyberpunk 2077 and what fans can expect when the much-anticipated game releases in November.
+

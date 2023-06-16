@@ -1,0 +1,38 @@
+# Source:NPR Music, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A, language:en-US
+
+## Kate Davis: Tiny Desk (Home) Concert
+ - [https://www.youtube.com/watch?v=68hXtA9odvs](https://www.youtube.com/watch?v=68hXtA9odvs)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A
+ - date published: 2020-08-04 00:00:00+00:00
+
+The Tiny Desk is working from home for the foreseeable future. Introducing NPR Music's Tiny Desk (home) concerts, bringing you performances from across the country and the world. It's the same spirit — stripped-down sets, an intimate setting — just a different space.
+
+August 4, 2020 | Bob Boilen - Like so many artists, Kate Davis was to be on tour during the spring and summer of 2020. She was scheduled to play a concert at my desk in May. Sitting by her desk at home, Kate Davis is marking time by writing new music and performs one of those new tunes, "Ride or Die," for this quarantine concert. She's an extraordinary lyricist. Her 2019 album, Trophy, was a sharply worded collection of songs, many about growing up and a powerful tune about her father's death. "Open Heart," the second song performed for her Tiny Desk (home) concert, is about a broken heart. It's a subject tackled by many, but her lyrical prowess sets the scene in the hospital, where the doctor cuts her open, sees her critical condition, and takes out her broken heart. She sings, "Put the pieces back together, looks like it's been shattered by a bad love," later adding, "You'd rather feel this pain than have a broken heart." Hearing these songs stripped to their essence — just Kate Davis and her guitar — exposes her charm and wit.
+
+I look forward to what she comes up with as time allows her to write more timeless tales.
+
+SET LIST
+"Cloud Open"
+"Heart I Like"
+"Myself"
+"Ride or Die"
+
+MUSICIANS
+Kate Davis: vocals, guitar
+
+CREDITS
+Video by: Kate Davis; Audio by: Kate Davis; Producer: Bob Boilen; Audio Mastering Engineer: Josh Rogosin; Video Producer: Morgan Noelle Smith; Associate Producer: Bobby Carter; Executive Producer: Lauren Onkey; Senior VP, Programming: Anya Grundmann
+
+## John Legend: Tiny Desk (Home) Concert
+ - [https://www.youtube.com/watch?v=tFxQbPYe_ZA](https://www.youtube.com/watch?v=tFxQbPYe_ZA)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A
+ - date published: 2020-08-03 00:00:00+00:00
+
+The Tiny Desk is working from home for the foreseeable future. Introducing NPR Music's Tiny Desk (home) concerts, bringing you performances from across the country and the world. It's the same spirit — stripped-down sets, an intimate setting — just a different space.
+
+August 3, 2020 | Bob Boilen - John Legend fully embraced the spirit of the Tiny Desk for his quarantine concert. He filmed this four-song performance in an office, in this case the Los Angeles office of his management company Friends At Work. He endearingly refers to his piano as his "tiny desk." He flew his seven-piece band out from Philadelphia to fill that office with utter joy.
+
+They kick off the set with "Ooh Laa," a song John calls "doo-wop meets trap" it's also the lead-off track to his summer album, Bigger Love. In fact, all of the songs filmed on this day are from Bigger Love, including "Conversations in the Dark," which John says is "a good song for babies to dance to — you might want to get married to it, too, if you're so inclined." Meanwhile, behind the band on a big screen reads, "Speak the truth, even if your voice shakes."
+
+While introducing his final song, "Bigger Love,"he tells us that "I wrote all the songs before the pandemic, before we saw folks marching in the streets, mourning (the) life of George Floyd, expressing their outrage. But some of these songs feel even more appropriate now, feel like we need them more now then we did even when I wrote them. This song 'Bigger Love' is about the power of love to get us through tough times, the idea that when you have love, it makes you more resilient, it makes you more hopeful And we all need a little dance break, too, right?" So enjoy and turn it up.
+

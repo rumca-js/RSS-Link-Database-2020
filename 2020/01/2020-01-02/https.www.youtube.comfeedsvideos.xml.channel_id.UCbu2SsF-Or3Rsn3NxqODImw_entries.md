@@ -1,0 +1,23 @@
+# Source:GameSpot, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw, language:en-US
+
+## Free PS4 PlayStation Plus Games For January 2020 Revealed
+ - [https://www.youtube.com/watch?v=bcRPW9HMsxI](https://www.youtube.com/watch?v=bcRPW9HMsxI)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-01-03 00:00:00+00:00
+
+The free PS Plus games for January 2020 have been announced. PS4 players can start the new year off right with Uncharted: The Nathan Drake Collection, which includes the first three games in the series: Drake's Fortune, Among Thieves, and Drake's Deception. PS4's other free January game is Goat Simulator.
+
+## Grand Theft Auto V Comes To Xbox Game Pass | GameSpot Live
+ - [https://www.youtube.com/watch?v=dZnsR0A0aVg](https://www.youtube.com/watch?v=dZnsR0A0aVg)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-01-03 00:00:00+00:00
+
+GTA V has officially come to Xbox Game Pass which means we absolutely had to boot it up and relive the 2013 magic that has never ended in San Andreas.
+
+## Call Of Duty: Modern Warfare Grind Mode | GameSpot Live
+ - [https://www.youtube.com/watch?v=kT9TR4eQe_Y](https://www.youtube.com/watch?v=kT9TR4eQe_Y)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-01-02 00:00:00+00:00
+
+Modern Warfare introduces a new, but familiar, game mode to the multiplayer experience. Grind is a fast-paced mix between Kill Confirmed and Hardpoint but will require some serious strategy to succeed. GameSpot Live tries to Grind their way to victory to kick off the New Year!
+

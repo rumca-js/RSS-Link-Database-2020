@@ -1,0 +1,51 @@
+# Source:The Linux Experiment, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC5UAwBUum7CPN5buc-_N1Fw, language:en-US
+
+## GNOME 3.38 - Tour of the New Features, and a few thoughts
+ - [https://www.youtube.com/watch?v=kT8ZKi1Wud0](https://www.youtube.com/watch?v=kT8ZKi1Wud0)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC5UAwBUum7CPN5buc-_N1Fw
+ - date published: 2020-09-15 00:00:00+00:00
+
+For a limited time, use the link in my description to get a free trial of Skillshare Premium Membership: https://skl.sh/thelinuxexperiment09201
+
+It's that time of year again, where the new version of GNOME is upon us. Like every 6 months, this release includes a bunch of improvements to the desktop experience, and will be included in Ubuntu 20.10, Fedora 33, and will hit Arch and other rolling releases pretty quickly.
+
+Support the channel on Patreon: 
+https://www.patreon.com/thelinuxexperiment
+
+Follow me on Twitter : http://twitter.com/thelinuxEXP
+
+My Gaming on Linux Channel: https://www.youtube.com/channel/UCaw_Lz7oifDb-PZCAcZ07kw
+
+Follow me on LBRY: https://lbry.tv/@TheLinuxExperiment:e
+
+The main focus of GNOME 3.38 seems to be the shell. The app launcher loses its frequent apps page, and now defaults to a multi-paged app grid. App folders are still there, but now they can have pages as well, if you have more apps than what could fit in a single folder.
+
+The app grid can also be rearranged, meaning you can move any icon to any position you like, which is a lot more practical than using the alphabetical sort order. You can obviously still use the keyboard to type an app's name, and I'd expect most users to work like this, but a little bit of customisation can't hurt. To complete all of this, the app grid now resizes with your screen size, and displays more icons on larger displays.
+
+The date menu will now also show calendar appointments under the date panel so they're more visible.
+
+Epiphany, also called GNOME Web has received the brunt of the work here. It has a new preferences dialog, but most importantly, it has popup blocking and intelligent tracking protection enabled by default, and it will automatically block autoplay videos with sound. You can obviously tweak these settings if you like.
+Epiphany also allows you to mute audio for each individual browser tab, and it can import chromium data. It's built-in reader mode can now be linked to directly, so you can share the URL of a page with reading mode enabled.
+
+Sure, the engine powering epiphany is still lagging behind what Firefox or Chromium offers, but it's getting dangerously close to being a browser I could use daily.
+
+GNOME maps is now responsive, so people using Phosh on their pinephones will have a great maps apps now. The satellite view now displays labels on the maps, so it can actually serve a purpose now, and Maps has a night mode option that can be enabled or disabled independently of the rest of the system's settings.
+
+There is also a new Welcome app which replaces the previous one that linked to various help pages. It's a lot easier to use, and makes discovering the concepts behind GNOME a breeze. Since GNOME 3 is such a big departure from the usual desktop metaphor, I think newcomers will be pleased to have that good onboarding experience.
+
+Finally, the screenshot tool has a new interface, although it didn't gain any new capabilities.
+
+As always, GNOME settings sees some changes : the biggest one is the new parental controls. You can now create "child" accounts, and define a few permissions for each. You can limit the web browsers they can use, block installing new applications and set age ratings for them, or even restrict the use of specific applications.
+
+This change might seem small, but for computers used by families, it's a game changer.
+
+GNOME is also starting to implement some of the settings that GNOME Tweaks used to ship, which is a very, very good thing. The first one of these is a small one, but letting you display your battery percentage in the shell is definitely something a lot of people would want to do, so better late than never. It seems that this work will continue in future releases of GNOME, to integrate most if not all settings that GNOME Tweaks exposes inside the regular GNOME settings. I can't say I'm displeased about this, as removing the need to install a separate tool to enable basic customisation options is always a great step.
+
+You can also now share your device's internet connexion with more ease, as the hotspot page now sports a QR code you can just flash using any mobile app. That's going to be useful, especially when GNOME 3.38 hits mobile devices.
+
+GNOME also has improved fingerprint support. I can't test it, since I don't have any compatible hardware, but you can now log your fingerprint in the user settings and use them to log in to your desktop. Most of that work has been contributed by the Ubuntu team, so kudos to them. Now we're just waiting for more hardware support :)
+
+To finish this tour, GNOME will also block users from installing updates when the battery is low, to avoid half finished updates breaking the system, and the window manager had a bunch of improvements for Wayland and screencasting, notably support for fullscreen unredirect which will stop the compositor when playing a full screen game, to gain some CPU and GPU power.
+
+GNOME 3.38 will release officially on September the 16th.
+

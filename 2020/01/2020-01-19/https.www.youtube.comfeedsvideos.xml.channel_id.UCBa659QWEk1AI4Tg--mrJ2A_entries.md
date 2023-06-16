@@ -1,0 +1,11 @@
+# Source:Tom Scott, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCBa659QWEk1AI4Tg--mrJ2A, language:en-US
+
+## How To Grow A Martian Salad On Earth
+ - [https://www.youtube.com/watch?v=rBPLgtfouIs](https://www.youtube.com/watch?v=rBPLgtfouIs)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCBa659QWEk1AI4Tg--mrJ2A
+ - date published: 2020-01-20 00:00:00+00:00
+
+Subscribe to Aspect Science! https://www.youtube.com/channel/UCyi06SeKkiwoAzFVmQtDtfg or start with Tom's video on what would happen if a meteoroid hit an Apollo astronaut: https://www.youtube.com/watch?v=ll8izWe9nqk
+
+"12kg of Martian soil simulant" is a pretty good guest video pitch. This week, Tom from Aspect Science tries to grow a salad in Martian soil.
+

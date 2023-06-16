@@ -1,0 +1,59 @@
+# Source:The Linux Experiment, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC5UAwBUum7CPN5buc-_N1Fw, language:en-US
+
+## Create your own Linux ecosystem with Nextcloud, DavX5 and KDE Connect
+ - [https://www.youtube.com/watch?v=oGYppxV-kFE](https://www.youtube.com/watch?v=oGYppxV-kFE)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC5UAwBUum7CPN5buc-_N1Fw
+ - date published: 2020-11-27 00:00:00+00:00
+
+Visit http://linode.com/linuxexperiment for a 100$ credit on your new Linode account!
+
+Recently, I've created a video about how I think Linux lacks a strong software ecosystem. There were positive reactions, as well as negative ones, but in the end, I stand by it, and as such, I've created my own, Linux-based ecosystem. Let's see what I've used.
+
+Join this channel to get access to a monthly patroncast and vote on the next topics I'll cover:
+https://www.youtube.com/channel/UC5UAwBUum7CPN5buc-_N1Fw/join
+
+Support the channel on Patreon: 
+https://www.patreon.com/thelinuxexperiment
+
+Follow me on Twitter : http://twitter.com/thelinuxEXP
+
+My Gaming on Linux Channel: https://www.youtube.com/channel/UCaw_Lz7oifDb-PZCAcZ07kw
+
+Follow me on LBRY: https://lbry.tv/@TheLinuxExperiment:e
+
+The Linux Experiment merch: get your goodies there! https://teespring.com/en-GB/stores/the-linux-experiment
+
+## Nextcloud
+
+The main building block to get me started was Nextcloud. It's an amazing hub for almost everything you might need: Notes, Tasks, Contacts, Files and Calendar, and it can be extended with other applications to really use it as your digital centerpiece.
+
+I installed Nextcloud on a Linode server, using the base Nanode at 5€ per month, and installed Nextcloud in one command line, through SNAP. I know, I know, but it was just super convenient. I went with version 18, since it come with OnlyOffice pre-configured, I'll talk about that a little bit later.
+
+Where Nextcloud shines, is in its integration with almost anything you might want to use. It uses open protocols like Webdav or caldav, and this means a lot of applications can sync to Nextcloud. As a matter of fact, if you're using GNOME, you can just login with your Nextcloud account and server, directly from the "Online Accounts" settings panel, and everything will be automatically synced to the default GNOME applications, which is pretty nice.
+
+## Computers
+
+Syncing with a computer is pretty easy: either you use GNOME, and you just log into your account, and get auto sync right off the bat, or you sync individually to the apps you want to use.
+
+File syncing can be done through the Nextcloud application, available through an appimage, or through Flatpak. I set it up in a bit of a weird way, since I don't want all my stuff located inside a single Nextcloud folder, so I've set up what they call folder sync connections, which basically map the content of a local folder on your hard drive, to a folder on Nextcloud. This means that my documents, for example, are not inside the Nextcloud folder, but inside the Documents folder in my /home/ directory.
+
+I also sync my Notes to the Nextcloud/Notes folder. Little side "note" here as well, these notes are stored as individual files, so you can edit them manually without going into Nextcloud, so you can use any application of your choice.
+
+## Mobile devices
+
+I have defaulted to /e/. This is a completely degoogled version of Android, which I've talked about in a previous video.
+
+This has access to all android apps, minus the paid ones, and all apps on F Droid as well, so it's usable in a day to day scenario. It kinda looks like iOS by default, but you can install any launcher you want in there. It also uses MicroG to give you access to most Google apps if you really can't live without them.
+
+This system provides default applications that are not linked to Google services, but integrate perfectly with Nextcloud: tasks, calendars, contacts, notes... You name it. This is what I'm using as a daily driver, on a Galaxy S9+.
+
+You can achieve the same result on any Android phone using an app called DAVx5. It's paid for in the Google Play store, and free on F Droid. It just lets you enter your Nextcloud server and credentials, and lets you select what you want to sync to your device.
+
+Now, in that scenario, you'll get calendars and contacts, but Notes and tasks probably won't sync to your manufacturer's application, so you might have to download a specific Android app to handle these instead.
+
+You can also get the Nextcloud app, that lets you auto upload your pictures and syncs your photo albums as well, into separate folders.
+
+## Computer - phone integration
+
+Now, what we're lacking is a phone to computer integration. Fortunately, there is KDE Connect, a fantastic tool that also works on other desktop environments, and even has a GNOME extension called GS Connect. It lets you receive notifications from your phone on your computer, send text messages from your desktop or laptop, send files back and forth just like AirPlay on APple devices, or use your phone as a remote control for audio on your desktop, or a plain old touchpad.
+

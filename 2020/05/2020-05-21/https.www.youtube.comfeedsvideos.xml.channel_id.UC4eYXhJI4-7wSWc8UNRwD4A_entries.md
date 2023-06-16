@@ -1,0 +1,36 @@
+# Source:NPR Music, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A, language:en-US
+
+## Buddy and Kent Jamz: Tiny Desk (Home) Concert
+ - [https://www.youtube.com/watch?v=vNi82rhiIiE](https://www.youtube.com/watch?v=vNi82rhiIiE)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A
+ - date published: 2020-05-22 00:00:00+00:00
+
+ADVISORY: This video contains explicit language.
+
+The Tiny Desk is working from home for the foreseeable future. Introducing NPR Music's Tiny Desk (home) concerts, bringing you performances from across the country and the world. It's the same spirit — stripped-down sets, an intimate setting — just a different space.
+
+
+May 22, 2020 | Bobby Carter -- Buddy and Kent Jamz aren't just the life of the party, they're the last two to leave. (Figuratively speaking, of course. None of us are going anywhere these days.) So in the vein of Method Man and Redman, Cheech and Chong, and other mischievous pairings, they bring us the after afterparty. For their Tiny Desk home session, or Jank session as they put it, they mirror the cover of their new project, Janktape Vol. 1: seated on a couch, red cups and bottles scattered, with the 1990s cult classic cartoon Bebe's Kids projecting on the wall behind them. From their quarantine quarters in Los Angeles, they trade melodic bars and hooks from Janktape, with a little help from socially distanced Brody Brown on bass and keys.
+
+SET LIST
+"She Think"
+"For The Ladies"
+"Inconsistent"
+"Terrified"
+
+## Sylvan Esso: Tiny Desk (Home) Concert
+ - [https://www.youtube.com/watch?v=1ZJ9ynWJY78](https://www.youtube.com/watch?v=1ZJ9ynWJY78)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A
+ - date published: 2020-05-21 00:00:00+00:00
+
+The Tiny Desk is working from home for the foreseeable future. Introducing NPR Music's Tiny Desk (home) concerts, bringing you performances from across the country and the world. It's the same spirit — stripped-down sets, an intimate setting — just a different space.
+
+May 21, 2020 | Bob Boilen -- There's a moment near the top of this Sylvan Esso Tiny Desk (home) concert when Amelia Meath and Nick Sanborn exchange glances and love spills from their eyes and into my heart. If you're stuck at home, this is the way to do it!
+
+The Durham, N.C., couple gives us three songs from their home couch using modular synths, a rhythm machine and Amelia's heartfelt vocals. This home concert stands in sharp contrast to Sylvan Esso's remarkable new film, WITH, which features a host of their dear friends reshaping and reimagining their brilliant catalog of songs during the duo's 2019 tour. Add that to your list of things to do while sitting on your couch, hopefully with someone you like.
+
+SET LIST
+"Die Young"
+"Rewind"
+"Radio"
+

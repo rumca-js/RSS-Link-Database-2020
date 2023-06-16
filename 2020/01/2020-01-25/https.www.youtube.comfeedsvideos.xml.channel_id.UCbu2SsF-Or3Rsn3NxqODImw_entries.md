@@ -1,0 +1,16 @@
+# Source:GameSpot, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw, language:en-US
+
+## Dragon Ball Z: Kakarot - Anime vs. Game (Goku Turns Super Saiyan For The First Time)
+ - [https://www.youtube.com/watch?v=EDN2Ri-ZOaA](https://www.youtube.com/watch?v=EDN2Ri-ZOaA)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-01-25 00:00:00+00:00
+
+How true to the anime is Dragon Ball Z: Kakarot on PS4, Xbox One, and PC?  In this video, we've lined up scenes from Goku's iconic Super Saiyan transformation (and his defeat of Frieza) in the anime to match with the game. Some scenes from the game are more accurate to the manga than the anime, so they will occasionally differ.
+
+## How Combat Works in Dragon Ball Z: Kakarot
+ - [https://www.youtube.com/watch?v=w9OHKxAC8BQ](https://www.youtube.com/watch?v=w9OHKxAC8BQ)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-01-25 00:00:00+00:00
+
+(Presented by Bandai Namco) You may be a Super Saiyan, but you still need to know how to throw a punch. Check out our guide on how to make the most out of the Z-Warriors in Dragon Ball Z: Kakarot!
+

@@ -1,0 +1,23 @@
+# Source:NPR Music, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A, language:en-US
+
+## Jackie Evancho: NPR Music Tiny Desk Concert From The Archives
+ - [https://www.youtube.com/watch?v=Sy4msuC9GI8](https://www.youtube.com/watch?v=Sy4msuC9GI8)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A
+ - date published: 2020-10-04 00:00:00+00:00
+
+We've been filming Tiny Desk concerts for more than 10 years. While revisiting our archives, we discovered that some of our earliest concerts never made it to YouTube! 
+Watch Jackie Evancho’s Tiny Desk concert from 2011: https://www.npr.org/2011/05/23/136336310/jackie-evancho-tiny-desk-concert
+
+Bob Boilen | May 23, 2011
+
+I simply couldn't believe my eyes and ears. Seeing Jackie Evancho sing for the first time is nearly beyond belief. You've seen 11-year-olds, and you've heard beyond-beautiful singers. But rarely are they the same person — that is, until now.
+
+Evancho is an American singer of classical crossover material who performs show tunes, classical repertoire such as "Ave Maria" or Handel's "Ombra mai fu" or even a pop tune like Sarah McLachlan's "Angel." The world first heard her when she appeared on the reality show competition America's Got Talent, where she came in second place, yet wowed audiences with a powerful, mature voice that seemed nearly impossible to be coming out of such a tiny frame.
+
+She was inspired to sing after watching The Phantom of the Opera, and by age 8, she started entering contests. She put out an independent album in 2009 and released a holiday CD for Columbia Records. But it's her new collection of songs called Dream With Me (out June 14) that will bring her into the spotlight. The album includes appearances from Barbra Streisand and fellow TV singing sensation Susan Boyle, and is sure to impress fans of both. That record includes "Ombra mai fu," an aria Evancho performed at the Tiny Desk for a stunned audience at the NPR Music offices. She clearly is a very happy girl with an amazing musical gift. Enjoy.
+
+SET LIST
+Handel: "Ombra Mai Fu"
+"Lovers" (audio only)
+"Angel" (audio only)
+

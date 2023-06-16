@@ -1,0 +1,11 @@
+# Source:Jeremy Jahns, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC7v3-2K1N84V67IF-WTRG-Q, language:en-US
+
+## Mortal Kombat 11: Aftermath - Trailer (My Thoughts)
+ - [https://www.youtube.com/watch?v=4GYKhKNX0q0](https://www.youtube.com/watch?v=4GYKhKNX0q0)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC7v3-2K1N84V67IF-WTRG-Q
+ - date published: 2020-05-07 00:00:00+00:00
+
+We are getting more MK11 story, characters, and more! Here are my thoughts on the reveal of MORTAL KOMBAT 11: AFTERMATH!
+
+#MortalKombat #MK11
+

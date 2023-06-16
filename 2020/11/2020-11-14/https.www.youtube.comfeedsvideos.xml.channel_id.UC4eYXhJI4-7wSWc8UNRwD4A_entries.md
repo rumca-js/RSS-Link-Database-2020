@@ -1,0 +1,45 @@
+# Source:NPR Music, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A, language:en-US
+
+## Yo La Tengo: NPR Music Tiny Desk Concert From The Archives
+ - [https://www.youtube.com/watch?v=dFiytMtU0Mw](https://www.youtube.com/watch?v=dFiytMtU0Mw)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A
+ - date published: 2020-11-15 00:00:00+00:00
+
+We've been filming Tiny Desk concerts for more than 10 years. While revisiting our archives, we discovered that some of our earliest concerts never made it to YouTube! 
+Watch Yo La Tengo’s Tiny Desk concert from 2013: https://www.npr.org/2013/04/15/176905752/yo-la-tengo-tiny-desk-concert
+
+Otis Hart | July 15, 2013
+It's not often that someone on the NPR Music team gets to see his or her favorite band perform a Tiny Desk Concert. After all, you can only have one favorite band, and NPR Music supports a staff of about 20; that means that, of the 250-plus Tiny Desk Concerts we've produced, fewer than 10 percent could possibly have qualified for favorite-band status.
+
+All of which is to say that my favorite band, Yo La Tengo, actually played a Tiny Desk Concert. For those who aren't familiar with the Hoboken trio, Yo La Tengo's members — guitarist Ira Kaplan, drummer Georgia Hubley and bassist James McNew — have been doing their own thing (which, granted, can sometimes sound like The Velvet Underground) for more than 20 years. The band epitomizes, sheepishly, why so many were drawn to indie rock in the 1990s: the casual resolve to be yourself and let everything else sort itself out.
+
+The Yo La Tengo sound has evolved quite a bit since Hubley and Kaplan first jammed together in 1984; the feedback has subsided as they've grown older, replaced by a more contemplative vibe. The release of the band's 13th album, Fade, earlier this year marked a natural time to invite Yo La Tengo behind Bob Boilen's desk for an acoustic set.
+
+SET LIST
+"Is That Enough"
+"Tears Are In Your Eyes"
+"Ohm"
+
+CREDITS
+Producer: Otis Hart; Editor: Denise DeBelius; Audio Engineer: Kevin Wait; Videographers: Lizzie Chen, Denise DeBelius, Gabriella Garcia-Pardo; photo by Marie McGrory/NPR
+
+## Amplify with Lara Downes: Helga Davis
+ - [https://www.youtube.com/watch?v=66fk2Qlu1GA](https://www.youtube.com/watch?v=66fk2Qlu1GA)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A
+ - date published: 2020-11-14 00:00:00+00:00
+
+Lara Downes | November 14, 2020
+The first time I saw Helga Davis, she was wearing a column of white satin, standing in a pool of white light, shining. She was singing Judy Collins' "Wings of Angels," a song about grief and loss, but also about the power of love to transcend time and place, life and death. She was magnetic. You could have heard the softest whisper of an angel's wing in the spellbound silence.
+
+That night Helga and I found each other backstage and we've never let go. She's become one of my closest friends — someone I trust, depend on and listen to. She is fiercely and fearlessly creative as a performer, writer, curator, producer and broadcaster. She does not stop until she gets things exactly and spectacularly right. Her standards are relentless, whether researching a project, rehearsing a concert, or relishing a lobster roll.
+
+This pandemic has grounded Helga for the first time in her creative life. A constant world traveler by choice and by occupation, she has suffered deeply from the forced isolation of these long months. We've talked often about the challenges of navigating this strange time that is so undefined and yet so definitive. And we've cried. Although Helga has been confined to her Harlem apartment, she can't be contained. Her creative energy bursts through the boundaries of any four walls, and soars.
+
+In this conversation, we talk about transcending time and place — finding profound connections through the walls and miles that separate us — and imagining new dimensions for creativity and collaboration.
+
+And Helga remembers the first time she saw dolphins — those magical mammals who can burst through the surface of the ocean and soar free, even without wings.
+
+Lara Downes is a pianist with ears wide open.
+Helga Davis is a bold musical creator, at home in uncharted territory.
+Together they explore creative connections in this time of isolation.
+

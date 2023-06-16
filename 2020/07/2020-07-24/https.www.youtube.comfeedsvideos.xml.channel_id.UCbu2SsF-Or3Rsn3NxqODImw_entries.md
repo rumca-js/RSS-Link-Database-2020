@@ -1,0 +1,91 @@
+# Source:GameSpot, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw, language:en-US
+
+## Carrion Review
+ - [https://www.youtube.com/watch?v=GrSWtkLUx1o](https://www.youtube.com/watch?v=GrSWtkLUx1o)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-25 00:00:00+00:00
+
+Carrion is a "horror game in reverse" where you play as an alien monster monster escaping captivity. Devolver Digital's action game is now available on Xbox One, PC, and Nintendo Switch. You can read the *full written Carrion review by Alessandro Barbosa on GameSpot*.
+
+## The Evolution Of Halo's Gameplay
+ - [https://www.youtube.com/watch?v=Vlsh6TS2Sro](https://www.youtube.com/watch?v=Vlsh6TS2Sro)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-25 00:00:00+00:00
+
+With the latest Halo Infinite reveal, it’s the perfect time to look at the evolution of Halo’s gameplay and how it’s gradually evolved across all of the mainline games. 
+
+With Xbox finally showing off gameplay for Halo Infinite, the sixth mainline entry in the popular first-person shooter franchise, we figured it would be the perfect time to go back and chart the series' evolution. From 2001's Halo: Combat Evolved to 2020's Halo Infinite, the franchise has seen quite a few changes over the years.
+
+In the video above, Persia details those changes over the course of Halo's six mainline entries, throwing in a few words for the franchise's notable spin-offs, Halo 3: ODST and Halo Reach. Some of the changes have been narrative driven--Halo 2, for example, introduced a new playable character in the Arbiter. However, some changes were more gameplay-focused, like Halo 3's introduction of split screen co-op in the main campaign.
+
+Halo hasn't merely changed on the campaign side either--it's multiplayer has seen numerous overhauls over the course of the franchise's history. Halo 3: ODST, for instance, introduced a brand-new horde mode called Firefight and dropped dual-wielding altogether. But there have been more transformative changes as well, the most notable of which has to be Forge mode. Not only did Forge mode open up the floor for the community to create its own maps, the addition led to the creation of game types that were so popular that developers Bungie and 343 Industries would go on to recognize them as permanent game modes, like Grifball. 
+
+If you're looking to catch up on Halo's story prior to the Holiday 2020 release of Halo Infinite, then your best bet is picking up Halo: The Master Chief Collection. The collection contains Halo Combat Evolved Anniversary, Halo 2 Anniversary, Halo 3, Halo 3: ODST, Halo Reach, and Halo 4. Other than Halo 5: Guardians, that's every game that Persia talks about in the video above.
+
+## Top 5 Call of Duty: Warzone Moments Of The Week
+ - [https://www.youtube.com/watch?v=GbxR-3TJXcw](https://www.youtube.com/watch?v=GbxR-3TJXcw)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-25 00:00:00+00:00
+
+Here are 5 Call Of Duty moments brought to you by the Warzone community. 
+
+Call of Duty: Warzone is full of awesome, hilarious, and big-brain moments- sometimes all at once. This is our roundup of the top 5 Call of Duty: Warzone Moments of the week. 
+
+In our first clip, Reddit user KuzushiKavanagh makes a seemingly impossible save. After his friend FeedtheP0ny is downed on top of stadium, the only way he can pick his friend up is by letting him fall down. FeedtheP0ny plummets down to his friend in this hilarious mid-air revive. 
+In our second clip, Reddit user Releasethesnacken finds himself surrounded by an entire enemy squad...only they don’t even know it. He’s able to hide behind three other enemies on the back of a pickup truck and go entirely unnoticed. That is until he wipes them all out using his R9-0 shotgun.
+
+Clip number 3 features Twitter user Fhoowd in quite the pickle. Surrounded by two riot-shielding enemies, Fhoowd attempts to take them head-on. Unfortunately, the two enemies aren’t letting up and are making their way closer for the kill. Low on ammo, Fhoowd thinks quickly and drops his ammunitions box, which when fired at can be used much like a claymore explosive. As the shielders move in for the kill, Fhoowd drops the box and fires on it, killing both enemies at once. This incredibly risky move proved worthwhile for Fhoowd as he takes a few seconds for a victory tea-bagging.  
+
+Clip 4 is a terrifying look at what a glitchy operator skin can look like. If you want to pick up the Earth Expeditionary Force pack you’ve been warned. To round off our list, clip 5 comes from a Playstation Network user by the name of Pete_392. Pete is separated from his team when he comes across two enemies within inches of his position. Luckily, with the help of his riot shield, he’s able to go unnoticed in a corner for nearly a minute. Shocking still is that he manages to stealthily take down both enemies as they still have no idea he’s even in the same building as he is. 
+
+Mid-air revive: Reddit u/KuzushiKavanagh
+
+Shotgun Stowaway: Reddit u/releasethesnacken
+
+Ammo Box Legend: Twitter @Fhoowd_
+
+Charly Bundle Disaster: Reddit: u/TarMAC_BBQ
+
+Stealth Soldier: PSN: Pete_392
+
+## Crash Bandicoot 4 Brings Nostalgia & Pure Platforming Joy
+ - [https://www.youtube.com/watch?v=qhXTPUaUKQY](https://www.youtube.com/watch?v=qhXTPUaUKQY)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-24 00:00:00+00:00
+
+Crash Bandicoot 4: It’s About Time is Activision’s latest play for your feelings of nostalgia. A sequel to Naughty Dog’s original Crash trilogy, It’s About Time is a brand-new mainline instalment developed by Toys for Bob and slated for release in October on PS4 and Xbox One.
+
+Ahead of release, Alessandro and Eddie got some hands-on time with the game, and in a new video, they share their overall impressions. The video covers two different levels, Dino Dash and Snow Way Out, and they could not be more different. One has you escaping a gigantic t-rex and the other is set in a frosty world with zombie fishermen.
+
+The video showcases gameplay not only featuring Crash as the playable character, but also the villainous Dr. Neo Cortex. He’s cartoonishly evil, even going as far to joke about making Bandicoot soup. Also in the video, Alessandro and Eddie speak about the game’s new masks, which give you the ability to slow down time and phase the world, while they also discuss how It’s About Time is delivering story in a new and interesting way.
+
+It’s About Time launches on October 2 for PS4 and Xbox One. Keep checking back with GameSpot for the latest!
+
+## Ghost of Tsushima - Stylish Armor Combinations
+ - [https://www.youtube.com/watch?v=LHoFMv2IcRE](https://www.youtube.com/watch?v=LHoFMv2IcRE)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-24 00:00:00+00:00
+
+As you're exploring the world of Ghost of Tsushima, you'll find all kinds of gear you can use to customize Jin Sakai's look as you create the legend of the Ghost. You'll find various armor sets from completing Mythic Tales, special armor dyes by seeking out merchants and dye-makers, and headbands and masks for discovering shrines and haiku locations. All of it provides a ton of opportunities to make your own unique samurai outfits.
+
+With so many pieces of Vanity Gear hidden throughout the game, you can create a whole bunch of different outfits for Jin. We spent some time creating our own custom combinations in the video above to give you some ideas Whether you want to create a themed samurai warrior prowling Tsushima's forests, a stealthy ninja look, or some cosplay for a certain thieving raccoon franchise from Sucker Punch's past, we've got you covered.
+
+GameSpot has a whole lot more coverage of Ghost of Tsushima in the meantime, with guides covering just about everything: all the game's sidequests, its many collectibles, and its toughest hidden Trophy.
+
+## Halo Infinite Leads The Xbox Series X Games Showcase | Save State
+ - [https://www.youtube.com/watch?v=EEOfsnfyGB8](https://www.youtube.com/watch?v=EEOfsnfyGB8)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-24 00:00:00+00:00
+
+On today's Save State, Persia talks about our first look at Halo Infinite gameplay and highlights other Xbox Games Showcase announcements like a new Fable, Outer World DLC, and more.
+
+This Save State focuses on all things from the Xbox Game Showcase. The livestream kicked off with our first look at Halo Infinite gameplay. A cinematic opening fit for Master Chief began with a crash landing and took us into a mission on a massive map. Halo Infinite is confirmed to be larger than previous titles and Microsoft already spoke on brand new mechanics being added to the series. Multiplayer will be revealed in the coming months but other features like sprinting and the rumored grappling hook were shown in the gameplay. 
+
+There were also a variety of first and third-party games announced, like a brand new Fable, State of Decay 3, and Outer Worlds DLC. Fable's announcement closed out the show but gameplay or a release date were not provided. 
+
+Other announcements gave us more information on games like Hellblade 2: Senua's Sacrifice and Everwild, with new trailers and deeper looks into their worlds. And we also got confirmation that Destiny 2 will be making its way to next-gen through Game Pass. 
+
+There was even more details revealed during the Xbox Games Showcase and you can check it all out on GameSpot.com. While you're there, stop by our store to purchase Play For All merch, the proceeds of which are donated to Black Lives Matter and COVID-19 Relief. 
+
+This is your Save State for Thursday, July 23rd.
+

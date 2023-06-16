@@ -1,0 +1,58 @@
+# Source:NPR Music, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A, language:en-US
+
+## M. Ward: Tiny Desk (Home) Concert
+ - [https://www.youtube.com/watch?v=zBzeyUvkmCE](https://www.youtube.com/watch?v=zBzeyUvkmCE)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A
+ - date published: 2020-06-25 00:00:00+00:00
+
+The Tiny Desk is working from home for the foreseeable future. Introducing NPR Music's Tiny Desk (home) concerts, bringing you performances from across the country and the world. It's the same spirit — stripped-down sets, an intimate setting — just a different space.
+
+June 25, 2020 | Bob Boilen -- For me, M. Ward would be the perfect artist to sit next to while he played his songs, perhaps on a couch in a small room. And that's pretty much what you get with this Tiny Desk (home) concert. We see M. Ward in the lounge of BOCCE, a recording studio in Vancouver, Wash. That tender wispy-rasp in his voice and flowing acoustic guitar make M. Ward a musician I'd want to hear up close. Matt Ward took song requests from fans for this concert, so we hear comforting and memorable older tunes like "Poison Cup" (2006) and "Voice at the End of the Line" (2003). Those songs fit so well with music on his new record, Migration Stories, from which he plays "Coyote Mary's Traveling Show." The imagery and stories allow my mind to imagine, conjure, and wander. So shut that door, turn down the lights, and listen.
+
+SET LIST
+"Instrumental Intro"
+"Duet for Guitars #3"
+"Chinese Translation"
+"Requiem"
+"Coyote Mary's Traveling Show"
+"Poison Cup"
+"A Voice at the End of the Line"
+CREDITS
+Audio Engineer: John Morgan Askew; Producer: Bob Boilen; Audio Mastering Engineer: Josh Rogosin; Video Producer: Morgan Noelle Smith; Associate Producer: Bobby Carter; Executive Producer: Lauren Onkey; Senior VP, Programming: Anya Grundmann
+
+## Tiny Desk Contest Top Shelf, Episode 3
+ - [https://www.youtube.com/watch?v=KVPx_extb6M](https://www.youtube.com/watch?v=KVPx_extb6M)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A
+ - date published: 2020-06-25 00:00:00+00:00
+
+On Thursday, June 25, Tiny Desk series creator Bob Boilen and Contest judge Raina Douris were live for the third episode of Tiny Desk Contest Top Shelf: a weekly livestream series featuring the best entries from the 2020 Tiny Desk Contest, supported by @statefarm.
+
+Artists featured in this episode include:
+- Deal Casino (@ _dealcasino_), “Just A Cow” https://www.youtube.com/watch?v=QtWXqV0urZs 
+- Tia P. (@iamtiap), “151” https://www.youtube.com/watch?v=2HVmOYZT70g
+- Nick Shoulders (@okaycrawdad), “Too Old To Dream” https://www.youtube.com/watch?v=hweEQY_nDGg
+- Piel (@pielmusic), “Custodian” https://www.youtube.com/watch?v=nfUo0J051rA
+- Calvin The II (@calvintheii), “Hope” https://www.youtube.com/watch?v=FQqWKEjd0Rc
+
+You can learn more about the Tiny Desk Contest at npr.org/tinydeskcontest.
+
+#tinydesk #tinydeskcontest #tinydeskcontesttopshelf
+
+## Madame Gandhi: Tiny Desk (Home) Concert
+ - [https://www.youtube.com/watch?v=7Sc34WvNxp8](https://www.youtube.com/watch?v=7Sc34WvNxp8)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A
+ - date published: 2020-06-24 00:00:00+00:00
+
+The Tiny Desk is working from home for the foreseeable future. Introducing NPR Music's Tiny Desk (home) concerts, bringing you performances from across the country and the world. It's the same spirit — stripped-down sets, an intimate setting — just a different space.
+
+Kara Frame | June 24, 2020 
+With one quick glance, you can guess Madame Gandhi's favorite color. Surrounded by her yellow bongos and congas, a yellow desk from her youth and a yellow nightstand, her Tiny Desk (home) concert lighting nods to the lavender-lemon artwork of her 2019 Visions EP. She's intentional with everything she does, including activism that focuses primarily on gender liberation. She uses music to help elevate and celebrate female voices, from working with primarily queer women BIPOC on tour and video sets, to writing socially-conscious lyrics that challenge the white male-dominated music industry.. Madame Gandhi's clear, soft voice and swells of percussion give you the necessary space to meditate on her message of inclusion and equality.
+
+SET LIST
+"Waiting For Me"
+"Moon in the Sky"
+"Bad Habits"
+
+CREDITS
+Videographer: Aroy Productions; Audio Engineer: Aroy Productions; Producer: Kara Frame; Video Producer: Maia Stern; Audio Mastering Engineer: Josh Rogosin; Associate Producer: Bobby Carter; Executive Producer: Lauren Onkey; Senior VP, Programming: Anya Grundmann
+

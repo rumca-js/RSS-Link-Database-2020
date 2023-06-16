@@ -1,0 +1,50 @@
+# Source:The Linux Experiment, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC5UAwBUum7CPN5buc-_N1Fw, language:en-US
+
+## Software Ecosystems are bad, but Linux needs one
+ - [https://www.youtube.com/watch?v=q7tAGOjwx0M](https://www.youtube.com/watch?v=q7tAGOjwx0M)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC5UAwBUum7CPN5buc-_N1Fw
+ - date published: 2020-10-12 00:00:00+00:00
+
+DOwnload Safing's Portmaster here: https://safing.io/portmaster/
+Every company is talking about building their ecosystem. Apple, Samsung, Google, Microsoft, even Amazon, they all want to have the full experience, with hardware, software, services, all designed to lock the users in and keep them coming for more products, more data, all at the price of convenience. I don't like these walled gardens, but I still think we need a full open source ecosystem where the desktop works well with mobile, smartwatches, iot devices, and services. Let's see how that could work.
+
+Join the channel to get access to a monthly patroncast and vote on the next topics I'll cover:
+https://www.youtube.com/channel/UC5UAwBUum7CPN5buc-_N1Fw/join
+
+Support the channel on Patreon: 
+https://www.patreon.com/thelinuxexperiment
+
+Follow me on Twitter : http://twitter.com/thelinuxEXP
+
+My Gaming on Linux Channel: https://www.youtube.com/channel/UCaw_Lz7oifDb-PZCAcZ07kw
+
+Follow me on LBRY: https://lbry.tv/@TheLinuxExperiment:e
+
+The Linux Experiment merch: get your goodies there! https://teespring.com/en-GB/stores/the-linux-experiment
+
+As of today, there is no syncing between your Linux desktop, and a potential Linux phone. No interaction between your pinetime and your desktop or phone either. We have no "open source service suite" that a user can just start using on every device. And that's what I mean by ecosystem: a one stop shop, with a single account, that lets you access cloud storage, photo syncing, browser bookmarks and passwords, an email account and calendar, an office suite, text message syncing, basically an open source icloud or Microsoft account.
+
+Ok, now, I think ecosystems are terrible. That's pretty paradoxical, I know, but that's because current ecosystems, that encompass hardware, software and services, are all proprietary, and designed as walled gardens, to lock you in and prevent you from switching.
+
+Once you've bought a Mac, an iPhone, an Apple Watch, and iPad, and AirPods, the cost of switching to anything else becomes way too high. You've bought your apps, you're using Apple services, your hardware works beautifully together. If you just replace one piece of all of that, it all breaks down and the simplicity and ease of use is gone.
+
+Because, yes, these ecosystems bring a lot to the table: everything tends to sync together super easily, you get your files, photos, settings, applications on every device, seamlessly. Stuff just connects together in the most simple way. That's appealing. But the cost is your freedom to decide that a superior product might be worth your money. Instead, you'll buy the product from the company you're beholden to, because anything else will just not work as well. It's a trap, but I think an open source ecosystem would solve that issue.
+
+## An open source Linux ecosystem would solve that
+
+Open source, is, by definition, open. This means that building a walled garden with purely open source software is impossible, anyone could decide to fork and make sure that their device worked with the existing ecosystem.
+
+In terms of hardware, we already have plenty of options: the Pine64 has the mobile devices, with the PineTAb, PinePhone, and PineTime. Any laptop or desktop can basically run Linux, so hardware doesn't matter that much for us. It's already pretty open, and we can switch to another manufacturer without any lock in.
+
+In terms of software, the very philosophy of free software would allow anyone to plug in, or extract their own data from the ecosystem, to reuse it somewhere else. There would be no lockdown, no walled garden, only the simplicity, and seamless connectivity would remain.
+
+## How would that work
+
+We already have a lot of the building blocks available to us. Nextcloud, for example, is a fantastic starting point. It does cloud storage, photo syncing, it offers a calendar and email application, it integrates with an open source office suite easily, and can be extended with apps. That would do for a backend and web interface.
+
+What's missing is an open source email service, not too tricky to deploy, some bookmark and password storage, which Firefox already does with Lockwise and the Firefox account, so there's another building block.
+
+The other missing piece is how to integrate that with our various distros, and that's the trickier part. For that idea to be successful, every desktop environment would have to work to make sure that just entering your credentials would allow you to use your cloud storage as a network drive, syncing your pictures and videos inside the right folder, automatically configure your email account and calendat with their default applications, open access to the integrated office suite, and sync the bookmarks and passwords with whatever browser they ship by default.
+
+I can imagine a provider in the Online Accounts, like in GNOME or elementary OS, that just lets you set all of that up by just entering an email, and a password, obviously with 2 step verification.
+

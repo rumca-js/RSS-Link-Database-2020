@@ -1,0 +1,31 @@
+# Source:AwakenWithJP, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCwUizOU8pPWXdXNniXypQEQ, language:en-US
+
+## How to Get Ripped During the Quarantine (Funny)
+ - [https://www.youtube.com/watch?v=pcz_EtO8l0s](https://www.youtube.com/watch?v=pcz_EtO8l0s)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCwUizOU8pPWXdXNniXypQEQ
+ - date published: 2020-05-05 00:00:00+00:00
+
+For 10% off all Onnit Supplements go to - https://www.onnit.com/jp
+
+Click Here to sign up for my livestream comedy show this Friday! - https://awakenwithjp.com/live
+
+No gym? No problem. You deserve to be ripped anyway, it's your birthright. Here's how to get ripped while you're stuck at home during the quarantine. These fitness influencer exercise tips will have you looking good for summer.
+
+*For Comedy Show schedule and tickets: https://awakenwithjp.com/events/
+-My NEW Awakened Shirts are available! Claim yours here: https://awakenwithjp.com/shop
+
+Click Here to join my PATREON - https://awakenwithjp.com/patron
+---- Want to be the first to see my new videos with 24 hour early access? Just click this to receive the alerts! - https://m.me/awakenwithjp?ref=w6836464
+
+Listen and Subscribe to my NEW Podcast here: 
+https://podcasts.apple.com/ca/podcast/awaken-with-jp-sears-show/id1436938686
+It's also available everywhere else you get podcasts. Just search and subscribe to "Awaken With JP Sears Show"
+
+-Order my new book at: http://HowToBeUltraSpiritual.com/
+
+Connect with me at: 
+http://www.facebook.com/AwakenWithJP
+http://www.Instagram.com/AwakenWithJP
+http://www.twitter.com/AwakenWithJP
+http://www.AwakenWithJP.com
+

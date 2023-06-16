@@ -1,0 +1,33 @@
+# Source:NPR Music, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A, language:en-US
+
+## Kirill Gerstein: NPR Music Tiny Desk Concert
+ - [https://www.youtube.com/watch?v=zJferx79YyU](https://www.youtube.com/watch?v=zJferx79YyU)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A
+ - date published: 2020-03-18 00:00:00+00:00
+
+This performance was recorded on January 28, 2020. We will continue releasing Tiny Desk videos of shows that had already been taped. In light of current events, NPR is postponing new live tapings of Tiny Desk Concerts. In the meantime, check out Tiny Desk (home) concerts! They’re recorded by the artists in their home. It’s the same spirit — stripped-down sets, an intimate setting — just a different space.
+
+March 11, 2020 | Tom Huizenga -- The last time pianist Kirill Gerstein was at NPR we gave him a full-size, grand piano to play in a big recording studio. But for this Tiny Desk performance, we scaled him down to our trusty upright. "What will you ask me to play the next time," he quipped, "a toy piano?"
+
+Even if we had handed him a pint-sized instrument, I'm sure Gerstein could make it sing. Just listen to how Chopin's lyrical melodies, built from rippling notes and flamboyant runs, flow like a song without words in Gerstein's agile hands.
+
+The Chopin Waltz, Op. 42 is one of the composer's hits, but the next two pieces Gerstein offers are rarities. The Berceuse for solo piano was written for Gerstein by Thomas Adès, adapted from his 2016 opera The Exterminating Angel. The work, both brooding and beautiful, receives its premiere recording at the Tiny Desk. Gerstein follows by dusting off a truly neglected – and quirky – Hungarian March by Franz Liszt. To my knowledge it's been recorded only once.
+
+The 40-year-old pianist, born in Voronezh, Russia, taught himself to play jazz by listening to his parents' record collection. A chance meeting with vibraphonist Gary Burton landed him a scholarship to study jazz at Boston's Berklee College of Music. At age 14, Gerstein was the youngest to enroll at the institution.
+
+Although he is among the elite pianists of the classical world (he won the coveted Gilmore Award in 2010), Gerstein's jazz background is still close to his heart. Which brings us to his lovely-rendered closer: Gershwin's "Embraceable You," arranged by the American pianist Earl Wild.
+
+Like all master performers, Gerstein gives you the illusion that he's making it all up as he goes along, even though the virtuosic transcription is intricately mapped out. And somehow, he makes that upright piano sound nine feet long.
+
+SET LIST
+Chopin: "Waltz in A-flat, Op. 42"
+Adès: "Berceuse from The Exterminating Angel"
+Liszt: "Ungarischer Geschwindsmarsch"
+Gershwin-Earl Wild: "Embraceable You"
+
+MUSICIANS
+Kirill Gerstein: piano
+
+CREDITS
+Producers: Tom Huizenga, Morgan Noelle Smith, Kara Frame; Creative director: Bob Boilen; Audio engineer: Josh Rogosin; Editor: Melany Rochester; Videographers: Kara Frame, Melany Rochester, Shanti Hands; Associate Producer: Bobby Carter; Executive producer: Lauren Onkey; VP, programming: Anya Grundmann; Photo: Max Posner/NPR
+

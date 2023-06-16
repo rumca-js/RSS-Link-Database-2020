@@ -1,0 +1,85 @@
+# Source:GameSpot, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw, language:en-US
+
+## How To Become A Millionaire In Animal Crossing: New Horizons
+ - [https://www.youtube.com/watch?v=c9pM0nrryc4](https://www.youtube.com/watch?v=c9pM0nrryc4)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-04-02 00:00:00+00:00
+
+So you want to be a Bellionaire in Animal Crossing: New Horizons? Well you came to the right place--in the video above, Jake Dekker walks through three sure-fire methods for quickly earning large amounts of Bells. 
+
+You'll have to get creative when it comes to making money in New Horizons. There are plenty of small time money-making schemes you can pull off--finding a money rock or growing a money tree--but if you want to make some real cash, you'll have to be a shrewd business tycoon. Pretty much all of the methods that Jake discusses breakdown to one core philosophy: overwhelm the demand with a massive supply. 
+
+That means bugs, arachnids, and the stalk market, ladies and gentlemen. Ignore the fish--too much effort for too little payoff. We're here to make money, not friends with C.J. Selling clothes and furniture also takes too much time, and time is money. 
+
+Here's what you want: Peacock Butterflies and Tarantulas. Watch Jake's video for the best strategies in getting these critters to spawn (prepare yourself, you're going to need to create Tarantula Island). Then take these pricey prizes to Flick. The fellow gives you a swell deal on all things that scitter. 
+
+Now you could just stop there, but you're here because you want to join the 1%. So now isn't the time to stop--the top 1% don't stop when it comes to achieving even greater wealth. Take control of your island's economy by hitting up that Stalk Market. Buy big and sell big. Now you're thinking like a Bellionaire--and with these strategies, you'll eventually be one too.
+
+#AnimalCrossing #NewHorzions #GameSpot
+
+## Let's Play Resident Evil 3 Remake
+ - [https://www.youtube.com/watch?v=nhDlI0UKENk](https://www.youtube.com/watch?v=nhDlI0UKENk)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-04-02 00:00:00+00:00
+
+Today we check out the newest remake in the Resident Evil series. Join Persia as she tackles Resident Evil 3 Remake from where the demo left off.
+
+## Resident Evil 3 Review
+ - [https://www.youtube.com/watch?v=opxGn56I0Y4](https://www.youtube.com/watch?v=opxGn56I0Y4)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-04-02 00:00:00+00:00
+
+The remake of Resident Evil 3 makes a strong first impression, and its online companion game Resistance has some interesting ideas, but they both struggle to follow through.
+
+#ResidentEvil3Remake #RE3 #GameSpotReview
+
+## Call Of Duty: Modern Warfare 2 Campaign Remastered -- Here's What You Get
+ - [https://www.youtube.com/watch?v=oNz0OG6sbTk](https://www.youtube.com/watch?v=oNz0OG6sbTk)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-04-01 00:00:00+00:00
+
+The Modern Warfare 2 campaign is available now on PS4, coming later to Xbox One and PC. Here's what's included in the surprise Call of Duty remaster.
+
+The Call of Duty: Modern Warfare 2 Remastered leak was real, and it's live now on PS4. The remaster revamps the original game with better visuals: that's 4K and HDR support consoles, plus an uncapped framerate and ultrawide monitor support on PC.
+
+That said, the PC and Xbox One versions will launch on April 30. You can pre-order those or pick it up on PS4 for $19.99 / £19.99. Purchasing any version gets you instant access to the Underwater Team Classic Ghost Bundle, which you can learn more about in the video above.
+
+#CallOfDuty #ModernWarfare2 #GameSpot
+
+## Let's Hunt For Eggs In Animal Crossing: New Horizons
+ - [https://www.youtube.com/watch?v=yJGjcP4eRZc](https://www.youtube.com/watch?v=yJGjcP4eRZc)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-04-01 00:00:00+00:00
+
+Animal Crossing: New Horizons has just launched the Bunny Day event! Join Persia as she hunts for all of the Bunny Day eggs and recipes to win Zipper's supery-dupery present!
+
+## Missing Characters, Features, And Buildings In Animal Crossing New Horizons
+ - [https://www.youtube.com/watch?v=iWILbeAELUU](https://www.youtube.com/watch?v=iWILbeAELUU)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-04-01 00:00:00+00:00
+
+Animal Crossing: New Horizons is out now on Nintendo Switch, and it introduces a ton of exciting new features to the series, from the Island Designer--which lets you edit your town's terrain--to the ability to craft your own furniture and tools. However, there are some notable features from the series' previous entry, Animal Crossing: New Leaf for 3DS, that seem to be missing in action.
+
+In the video above, we take a look at some Animal Crossing staples that have been conspicuously absent in New Horizons in the month that we've been playing the game so far, from beloved recurring characters like Rover and Tortimer to popular facilities like Re-Tail and Brewster's Cafe.
+
+While we've yet to encounter these characters and features in New Horizons, that doesn't necessarily mean they've been completely cut from the game. During the recent Nintendo Direct Mini presentation, we got a brief look at New Horizons' first seasonal event, which will see Zipper T. Bunny visit your island for Bunny Day. Nintendo teased that an Earth Day event is also on the way later in the month, and it appears the flower-loving sloth Leif will return for that.
+
+If you're just getting started in New Horizons, we've assembled a ton of different guides to help you out, from what you should be doing every day to how to make Bells fast. We also have guides on how to unlock key buildings like Nook's Cranny, how to add friends, and even how to crossbreed flowers.
+
+#AnimalCrossing #NewHorizons #GameSpot
+
+## Persona 5 Royal: How To Unlock The New Palace And Third Semester (Spoiler-Free)
+ - [https://www.youtube.com/watch?v=pRvkMMhV-YQ](https://www.youtube.com/watch?v=pRvkMMhV-YQ)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-04-01 00:00:00+00:00
+
+P5R features 15 to 20 hours of new content, but you'll need to follow these steps in order to experience it.
+
+Persona 5 Royal has a lot of new content that builds on the original game. However, the biggest chunk of that (the third semester and ninth palace) comes towards the end, but you'll have to do certain things throughout the course of the story to unlock all of it. This mainly consists of leveling up the new Confidants available in P5R.
+
+The three Confidants you should rank up as soon as they're available are Akechi, Kasumi, and Maruki. As long as you take care of your relationships with them, you should be in the clear. However, there are a few things to take note of to make sure you go about it properly, mainly dates for when things happen, deadlines to rank them up, and a few tips to make things easier.
+
+For more on Persona 5 Royal, be sure to check out our video on our experience at about 50 hours in, and stay tuned for our full review.
+
+#Persona5Royal #HowTo #GameSpot
+

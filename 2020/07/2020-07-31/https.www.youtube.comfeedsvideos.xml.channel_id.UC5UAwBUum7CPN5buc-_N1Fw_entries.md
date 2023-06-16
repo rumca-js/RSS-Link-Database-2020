@@ -1,0 +1,79 @@
+# Source:The Linux Experiment, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC5UAwBUum7CPN5buc-_N1Fw, language:en-US
+
+## Ryzen Linux laptops are coming, Microsoft sponsors Blender, and RGB madness - Linux News July 2020
+ - [https://www.youtube.com/watch?v=OnfbRdZBxGw](https://www.youtube.com/watch?v=OnfbRdZBxGw)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC5UAwBUum7CPN5buc-_N1Fw
+ - date published: 2020-08-01 00:00:00+00:00
+
+Visit http://linode.com/linuxexperiment for a 20$ credit on your new Linode account!
+These are some interesting Linux, open source, and privacy news for the end of July 2020. This time, we've got some new AMD powered Linux machines, Microsoft joining the Blender foundation, and better support for RGB under Linux, especially for Asus laptops.
+
+Support the channel on Patreon: 
+https://www.patreon.com/thelinuxexperiment
+
+Follow me on Twitter : http://twitter.com/thelinuxEXP
+
+My Gaming on Linux Channel: https://www.youtube.com/channel/UCaw_Lz7oifDb-PZCAcZ07kw
+
+Follow me on LBRY: https://lbry.tv/@TheLinuxExperiment:e
+
+The Linux Experiment merch: get your goodies there! https://teespring.com/en-GB/stores/the-linux-experiment
+
+
+Mozilla launched its VPN in 6 countries: the United States, Canada, the United Kingdom, Singapore, Malaysia, and New Zealand. This VPN is based on the modern Wireguard protocol, and will cost 5$ a month.
+
+https://blog.mozilla.org/blog/2020/07/15/mozilla-puts-its-trusted-stamp-on-vpn/
+
+Mozilla will fix a bug that was reported a year ago in the Android version of Firefox. This specific bug lets a website keep access to the microphone and camera even while the smartphone is locked and the website is not active. 
+
+https://www.zdnet.com/article/firefox-on-android-camera-remains-active-when-phone-is-locked-or-the-user-switches-apps/
+
+
+Ubuntu 19.10 Eoan Ermine has reached end of life, as did all of its derivatives, like Kubuntu, Xubuntu, or PopOS. 
+http://fridge.ubuntu.com/2020/07/17/ubuntu-19-10-eoan-ermine-end-of-life-reached-on-july-17-2020/
+
+
+Wine 5.13 was released, with a bunch of improvements that I don't understand at all, and 22 bug fixes, including a fix for slow performance in the Witcher 2, Battle.net, Metal Gear Solid V Ground Zeroes, the Warframe Launcher, Call of Duty Black Ops 3, World War2, and Call of Duty Modern Warfare 2.
+
+https://www.winehq.org/announce/5.13
+
+Microsoft released Procmon as open source. Procmo is a Linux version of the Sysinternals tool for Windows, which lets you trace system calls through the command line.
+
+https://github.com/microsoft/ProcMon-for-Linux
+
+Google launched the Open Usage Commons, an initiative to control the trademarks of various projects, all under its own purview. The rationale here is that having an individual own the trademark for an open source project can lead to issues if there's a falling out in the community, but there are issues here as well, namely the fact that a single organisation can own trademarks for multiple projects, especially when it's Google managing it. 
+
+https://news.slashdot.org/story/20/07/19/1723253/open-source-proponents-react-to-googles-open-usage-commons
+
+Support for ASUS ROG laptops is improving thanks to the ROG Core project. This tool allows owners of Asus Republic of Gamers machines to effectively manage the crazy RGB lighting that these machines come with. I
+
+https://www.gamingonlinux.com/2020/07/linux-support-for-asus-rog-laptops-is-coming-along-nicely
+
+Tuxedo, the Linux hardware manufacturer, announced the Tuxedo Pulse 15, a Ryzen Powered machine. It comes with Ryzen 4000 series chips, and it looks amazing.
+
+https://www.tuxedocomputers.com/en/Linux-Hardware/Linux-Notebooks/15-16-inch/TUXEDO-Book-Pulse-15-Gen1.tuxedo
+
+Fedora might move the graphical backend for Wine to DXVK by default. The community has proposed a change from the wine d3D backend to DXVK, as this tool has made strides in the last years, and is now allowing Linux gamers to play most of the latest releases at near native performance. 
+
+https://fedoraproject.org/wiki/Changes/DXVKwined3d
+
+The Open RGB project has a new release out. It's a tool that helps Linux users manage all of their RGB stuff in one place.
+
+https://www.gamingonlinux.com/2020/07/sorting-the-mess-of-vendor-specific-lighting-apps-openrgb-has-a-new-release
+
+KDE and Slimbook partnered up to release the KDE Slimbook, a fully AMD Ryzen based system. It has a KDE logo on the back, and a plasma logo on the Super key. 
+
+https://dot.kde.org/2020/07/22/kde-slimbook-plasma-kde-apps-and-power-amd-ryzen-cpu
+
+Valve hired a new developer, Tony Wasserka, to work on Linux graphics drivers. 
+
+https://www.gamingonlinux.com/2020/07/valve-gets-another-developer-to-work-on-linux-graphics-drivers-starting-with-amd-radv
+
+Microsoft joined the Blender foundation as a Corporate Gold Member.
+
+https://www.blender.org/press/microsoft-joins-the-blender-development-fund/
+
+Facebook, Google, Apple, and Amazon were being heard by the American Congress on various antitrust investigations. The main thing that is getting looked at is the fact that these companies have abused their power in their respective field, either to snuff out competition, to completely lock down a market, or to impose ridiculous pricing to anyone who wants to access their ecosystem. 
+
+https://thenextweb.com/neural/2020/07/30/congress-fumbles-through-antitrust-hearing-with-big-tech-ceos/
+

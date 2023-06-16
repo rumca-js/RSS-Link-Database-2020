@@ -1,0 +1,21 @@
+# Source:Yuri Wong, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCIw5fgJcTtR2Av-0JkZp-xg, language:en-US
+
+## [Full Track] "Solemn" (Coffin Dancers Remix)
+ - [https://www.youtube.com/watch?v=57WLRRX44KY](https://www.youtube.com/watch?v=57WLRRX44KY)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCIw5fgJcTtR2Av-0JkZp-xg
+ - date published: 2020-04-22 00:00:00+00:00
+
+Support my music on Patreon: https://www.patreon.com/yuriwong Watch the making-of: https://youtu.be/o89cxPMXo_I
+Sampled line from The Ghana Coffin Dancers
+"Do you want this solemn, or do you want a big display?"
+
+Original music created on the Teenage Engineering OP-1 and completed in Logic Pro X
+
+Coffin Dance, also known as Dancing Pallbearers or Dancing Coffin, refers to several videos showing Ghanian pallbearers dancing while they are carrying a coffin. In the interview, the leader of the pallbearers say that he asks clients if they want it solemn or if they want a big display.
+
+The first of the three most popular videos that gained popularity in connection with the trend was uploaded to YouTube by Travelin Sister on January 22nd, 2015 and depicted Ghana's cultural phenomenon of dancing pallbearers (shown below, left). The video received over 2.9 million views in five years. Another video, a report by BBC News Africa] was uploaded to YouTube on July 27th, 2017. 
+
+The third video, which depicted pallbearers accidentally dropping a coffin during their dance, was first posted by Facebook user Bigscout Nana Prempeth on May 2nd, 2019, gaining over 2,900 reactions, 4,600 shares and 350,000 views in one year (shown below). On May 3rd, 2019, the video was reuploaded to YouTube[4] where it received over 725,000 views in one year.
+
+The exact first instance of the video being paired with the EDM track "Astronomia" by Tony Igy is unknown. On February 26th, 2020, TikTok user @lawyer_ggmu (previously @khvichagogava) posted the earliest known instance of the meme (made by an unknown author) in which the video, paired with the song, was used as a punchline for a FAIL clip. The TikTok received over 4.5 million views and 474,700 likes in one month.
+

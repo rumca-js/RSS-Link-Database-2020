@@ -1,0 +1,24 @@
+# Source:NPR Music, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A, language:en-US
+
+## Trupa Trupa: Tiny Desk (Home) Concert
+ - [https://www.youtube.com/watch?v=_S80LFnceaE](https://www.youtube.com/watch?v=_S80LFnceaE)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A
+ - date published: 2020-07-03 00:00:00+00:00
+
+The Tiny Desk is working from home for the foreseeable future. Introducing NPR Music's Tiny Desk (home) concerts, bringing you performances from across the country and the world. It's the same spirit — stripped-down sets, an intimate setting — just a different space.
+
+July 3, 2020 | Bob Boilen -- This week we're taking the Tiny Desk (home) concerts international. In a basement in Gdańsk, we find Poland's great rock band Trupa Trupa on lockdown. Had it not been for COVID-19, this band would have been behind my desk this week, but as it is, they've settled into their rehearsal space. Singer Grzegorz Kwiatkowski has dusted off an acoustic guitar. At the same time, Rafał Wojczal plays his homemade instruments, including one that sounds a bit like an ondes Martenot or a theremin, but is as of this recording unnamed. Even with the sound level down, the energetic rhythms of Wojciech Juchniewicz on bass and Tomasz Pawluczuk on drums punch through.
+
+Grzegorz tells us that life in Poland has been difficult in this young democracy, but they are staying optimistic and playing music. Trupa Trupa opens its set with "Another Day," from the 2019 record Of The Sun. I've seen them perform this; it's always had an apocalyptic feel, but now the words "another day, waiting for another," prompts Grzegorz to mention how this has turned into a quarantine song. There's darkness in the basement, yet their music is a bright beacon.
+
+SET LIST
+"Another Day"
+"Dream About"
+"None of Us"
+
+MUSICIANS
+Grzegorz Kwiatkowski: vocals, guitar; Wojciech Juchniewicz: vocals, bass, guitar; Tomasz Pawluczuk: drums; Rafał Wojczal: keys, guitar, ondes Martenot
+
+CREDITS
+Audio by: Michał Kupicz; Producer: Bob Boilen; Audio Mastering Engineer: Josh Rogosin; Video Producer: Morgan Noelle Smith; Associate Producer: Bobby Carter; Executive Producer: Lauren Onkey; Senior VP, Programming: Anya Grundmann
+

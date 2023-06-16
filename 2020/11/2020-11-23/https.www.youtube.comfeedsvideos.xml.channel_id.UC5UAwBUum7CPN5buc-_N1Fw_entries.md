@@ -1,0 +1,48 @@
+# Source:The Linux Experiment, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC5UAwBUum7CPN5buc-_N1Fw, language:en-US
+
+## Could Windows switch to the Linux kernel?
+ - [https://www.youtube.com/watch?v=WvYEC6CgqPw](https://www.youtube.com/watch?v=WvYEC6CgqPw)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC5UAwBUum7CPN5buc-_N1Fw
+ - date published: 2020-11-24 00:00:00+00:00
+
+You guys might have read or heard about conjectures regarding Microsoft and Linux. Specifically, that Microsoft might, in the future, replace the windows kernel with something based on Linux. While I personally don't think this is going to happen, like, not at all, let's see why people might think that it's in the cards.
+
+Join this channel to get access to a monthly patroncast and vote on the next topics I'll cover:
+https://www.youtube.com/channel/UC5UAwBUum7CPN5buc-_N1Fw/join
+
+Support the channel on Patreon: 
+https://www.patreon.com/thelinuxexperiment
+
+Follow me on Twitter : http://twitter.com/thelinuxEXP
+
+My Gaming on Linux Channel: https://www.youtube.com/channel/UCaw_Lz7oifDb-PZCAcZ07kw
+
+Follow me on LBRY: https://lbry.tv/@TheLinuxExperiment:e
+
+The Linux Experiment merch: get your goodies there! https://teespring.com/en-GB/stores/the-linux-experiment
+
+
+So first, Eric Raymond, one of the founders of the open source movement, wrote a blog post explaining that MS will definitely move to Linux as the base for Windows. I'll leave a link to this article in the description, but his arguments boil down to this:
+
+http://esr.ibiblio.org/?p=8764
+
+- PC sales are down and will keep decreasing as more people use tablets and phones. This means that Windows is less and less profitable, and will in time turn into a drag on their business.
+- Windows subsystem for Linux allows to run unmodified Linux binaries on Windows without emulation.
+- Proton and Wine allow people to run Windows software at near performance parity, and if it can run games, it can run anything.
+- Microsoft is porting some of their software to Linux, and it can only make sense if they're trying to test their internal emulation layer.
+
+Now, let's see why I think none of these arguments make sense:
+
+- Financially, Windows isn't a burden to MS. It's free for the user, but not for the manufacturer. Hardware manufacturers that ship windows pay a fee to Microsoft, which is very lucrative. While it's not what they're focusing on right now, it's also a good source of income, and I don't see them just replacing the kernel because Windows doesn't make as much money as other things. The moment where PCs aren't needed in the workspace is far, far away. Manufacturers will keep selling workstations and laptops to companies for the foreseeable future, and this generates money for Microsoft. A lot of money, probably enough, without any other client, to keep developing their own kernel.
+
+- WSL: WSL is the exact opposite of porting windows to use the Linux kernel. It's allowing Windows to use Linux software WITHOUT running the Linux kernel. I personally think this is the route Windows is going to take to cater to developers and sysadmins that prefer working on Linux.
+
+- Wine and Proton: running games is easier than running desktop programs. Games all use one of 3 APIS: DIrectX12, Vulkan, or OpenGL. Vulkan and OpenGL are native to Linux, so getting games that use these is pretty easy, once you get the main windows executable started. Direct X doesn't exist on Linux, but DXVK, a translation layer, allows to transform the calls into Vulkan calls, and this has opened up a huge amount of games to Linux. 
+Desktop programs, on the other hand, are way harder to run. They use their own toolkits, their own frameworks, and they don't look the same at all. Some will make use of a specific graphics API, some will use their own custom solution. Supporting all of these is very complex.
+
+- Porting software: what Microsoft ported is all stuff based on electron, or Chromium. Edge is based on Chromium, which already runs on Linux. Porting it is a low hanging fruit, not a hard development effort. Teams is a webapp, running with electron. It doesn't take any effort to give that to Linux users. What we haven't seen yet, is Office 365, which is the big moneymaker for Microsoft.
+
+- Emulation: Windows is already trying to emulate x86 on ARM, with much less success than Apple: their Surface Pro X is crippled by this, x86 software doesn't run that well, and most review point out it's bad in terms of performance. Sure, emulating Linux on the same architecture might not incur the same performance penalty, but if windows is going to use an emulation layer, wouldn't they contribute to Wine, since it's already super advanced ? They don't seem to be.
+
+- Compatibility: if you switch to a Linux kernel, sure, you could get windows apps running. But not the drivers. Manufacturers have, for decades, created drivers and software suites that only work with Windows and its kernel. This can't really be emulated. They have to be ported. Moving to a Linux kernel would virtually mean that everything that isn't plug and play would have to have their drivers re-developed from the ground up. Once again, I don't see Microsoft doing that and alienating their whole hardware ecosystem.
+

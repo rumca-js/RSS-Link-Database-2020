@@ -1,0 +1,57 @@
+# Source:The Linux Experiment, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC5UAwBUum7CPN5buc-_N1Fw, language:en-US
+
+## KDE Plasma is coming for your TV, Half Life Alyx on Linux - Linux News - March 2020
+ - [https://www.youtube.com/watch?v=Z3nFqNhIGv4](https://www.youtube.com/watch?v=Z3nFqNhIGv4)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC5UAwBUum7CPN5buc-_N1Fw
+ - date published: 2020-04-01 00:00:00+00:00
+
+Here are your Linux, open source, and Privacy news for the end of March 2020, and we have a few interesting topics to cover. KDE Plasma goes for your big screen TV, and Half Life Alyx is announced for Linux!
+
+Support the channel on Patreon: 
+https://www.patreon.com/thelinuxexperiment
+
+Follow me on Twitter : http://twitter.com/thelinuxEXP
+
+My Gaming on Linux Channel: https://www.youtube.com/channel/UCaw_Lz7oifDb-PZCAcZ07kw
+
+Follow me on LBRY: https://lbry.tv/@TheLinuxExperiment:e
+
+WSL2 will ship a microsoft custom kernel through windows update instead of shipping it directly through the OS itself. 
+
+https://linux.slashdot.org/story/20/03/16/0137200/windows-subsystem-for-linux-2-will-include-a-microsoft-written-linux-kernel
+
+Purism announced a new computer, the Librem Mini. It’s a crowdfunded device, sort of. As soon as the number of orders goes past 50 000$, all pre orders will start shipping. 
+https://puri.sm/products/librem-mini/
+
+Half Life Alyx will release natively on Linux using Vulkan. There is not timeline yet for that port, and the game is already fully playable through proton and DXVK but a true Linux port is always welcome. 
+https://www.gamingonlinux.com/articles/half-life-alyx-is-confirmed-for-linux-to-arrive-with-vulkan-support-post-release.16244
+
+System76, the Linux hardware maker, is working on their own keyboard. They seem to favor the mechanical keyboard route, and are also considering using a custom layout, so we’ll have to see how that turns out. https://blog.system76.com/post/612874398967513088/making-a-keyboard-the-system76-approach
+
+The open source community is coming to the rescue of the world’s various medical systems with an open source prototype for a ventilator. https://techcrunch.com/2020/03/19/open-source-project-spins-up-3d-printed-ventilator-validation-prototype-in-just-one-week/
+
+DXVK released version 1.6 of the full direct X to vulkan compatibility layer. It phases out the need for some windows DLLs to be present, using the wine implementation instead. https://github.com/doitsujin/dxvk/releases/tag/v1.6
+
+Proton 5.0-5 was released, with support for the latest openVR sdks, probably for Half Life Alyx, support for some new Vulkan extensions needed by recent titles, and a fix for a crash that was introduced in some games by proton 5.0-4.
+https://github.com/ValveSoftware/Proton/wiki/Changelog
+
+Mozilla launched a test program for a new subscription service. In essence, it blocks ads on partner’s websites, but still pays them if you visit their website. It’s a sort of middle ground between ad blocking, and still rewarding writers and creators for their work. It costs 2.49 a month for a 6 month subscription, and 4.99 if you decide to go monthly.
+https://firstlook.firefox.com/betterweb/
+
+Collabora explained in a blog post how they worked with Microsoft to get DirectX to support OpenGL and OpenCL. 
+https://www.collabora.com/news-and-blog/news-and-events/introducing-opencl-and-opengl-on-directx.html
+
+System76 announced the Lemur Pro, their new pro laptop. It’s also their most open yet, using open source firmware. It will start shipping in early April, and looks like a good machine.
+https://system76.com/laptops/lemur
+
+Kde Plasma announced Plasma Bigscreen, their TV interface. It’s designed, you guessed it, to run a version of the plasma desktop designed for big screens and TVs, and comes with a host of features, like voice recognition using Mycroft, it supports direct input over HDMi, which means your TV remote should be able to operate the interface, and the experience can be upgraded using skills, which are just voice enabled apps.
+https://plasma-bigscreen.org/
+
+Wine 5.5 was released. It uses the new UCRT Base Runtime for its builtin libraries, although there is now word on what that will change. It also fixes 32 bugs, including for Wolcen, Dark Souls 2, Call of Juarez, Might and magic VI, or Fable: the lost chapters.
+
+https://www.winehq.org/announce/5.5
+
+The Linux kernel 5.6 was released. It brings support for the wireguard protocol, which is an open source VPN implementation, as well as support for USB 4. The year 2038 bug, which would see 32 bit architectures reaching the end of their available dates, is also fixed. TO complete, this new kernel brings open source support for the Nvidia RTX2000 series cards, so the first boot experience without proprietary drivers should be a lot better, and it also supports the Amazon Echo, and the F2FS file system.
+
+https://kernelnewbies.org/Linux_5.6
+

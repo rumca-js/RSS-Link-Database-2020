@@ -1,0 +1,26 @@
+# Source:GameSpot, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw, language:en-US
+
+## The History Of Militech, The Biggest Weapons Corp In The World | Cyberpunk 2077 Lore
+ - [https://www.youtube.com/watch?v=L2yj7jvpd5Q](https://www.youtube.com/watch?v=L2yj7jvpd5Q)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-09-05 00:00:00+00:00
+
+Select images courtesy of R. Talsorian Games (https://rtalsoriangames.com)
+
+Artists in order of appearance:
+Eddie Mendoza
+Adrian Marc
+Hélio Frazão
+Alexander Dudar
+Neil Branquinho
+
+Arasaka's number one competitor is the American security corporation known as Militech. Here's a brief look into the company's history.
+
+One of the more exciting parts of Cyberpunk 2077 are the guns and dangerous megacorporations that make them. This video takes a look at the biggest weapon manufacturer in the world, Militech. This company makes top tier guns while also hiring out their private military for assassinations, revolutions, civil wars, and worse. 
+
+In this video we go over the rise of Militech from its start to becoming nationalized by the New United States after the bloody Fourth Corporate War that leveled a huge part of Night City. We’re not sure yet if Militech makes power, tech, or smart weapons yet. It’s been revealed the best weapons in Cyberpunk 2077 will be taken from enemies or found in loot caches. There will be common to legendary variants. Weapons will be able to do things like curve around corners or pierce through walls.
+
+We’re not entirely sure yet how or if Militech might play into the corpo lifepath but we have seen them appear in videos already including the 48 Minute gameplay reveal. In that encounter V is hacked and then tricked into frying a part of the Maelstrom gang. We also saw missions involving other corporate legends including Adam Smasher. You can learn all about his story in another one of our lore videos.
+
+Cyberpunk 2077 releases on November 19th for Xbox Series X, PlayStation 4, Google Staida, Xbox One, and PC. No beta is currently scheduled.
+

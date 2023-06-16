@@ -1,0 +1,42 @@
+# Source:GameSpot, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw, language:en-US
+
+## 10 Biggest Game Installs Of All Time
+ - [https://www.youtube.com/watch?v=RA67Mv5UV6U](https://www.youtube.com/watch?v=RA67Mv5UV6U)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-12-24 00:00:00+00:00
+
+It's pretty amazing how fast you can fill up a PC, PS5, or Xbox Series X/S hard drive. Here are games with massive file sizes clogging up our machines.
+
+Video game install sizes can often weigh in at or above 100 GB. Sony and Microsoft's next-gen consoles have less than 1 TB of usable space, which can fill up quickly. Players may need to invest in external hard drives for their PC or purchase a custom NVMe SSD for their Xbox if they want to keep games installed and updated; PS5 doesn’t currently support storing or playing PS5 games from an external drive.
+
+Some of the largest game installs on this list are popular titles like Rainbow Six Siege, Call Of Duty, and Halo: The Master Chief Collection. This list includes full games with their DLC, expansion, and in some cases high-resolution texture packs installed.
+
+GameSpot has an extensive list of storage options so head on over to our Xbox Series X: Best Solution For Storage Expansion (SSD, Expansion Card, Or Hard Drive) article to read more.
+
+## Elden Ring, Metal Gear Remake, And Final Fantasy 16: Our Hopes For 2021
+ - [https://www.youtube.com/watch?v=hSZbMZ8doeI](https://www.youtube.com/watch?v=hSZbMZ8doeI)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-12-24 00:00:00+00:00
+
+With 2021 upon us, the Generation Next gang discuss the games they're looking forward to playing on Xbox Series X and PlayStation 5 next year. 
+
+
+
+Both Xbox Series X|S and PS5 will have been out in the wild for a few months by the time 2021 kicks off, so we're sure to start seeing more and more announcements for games exclusively releasing for the new console generation. Lucy, Tamoor, and Jordan are already looking forward to the year, especially for the release of the sequel to 2018's God of War as well as the possibility of hearing about more Elden Ring and Hollow Knight: Silksong. 
+
+But let's dream big, yeah? It worked for Tamoor in his prediction that Demon's Souls would launch alongside PS5. The trio talk through their "it probably won't happen but like, what if it did" predictions for 2021, including Anthem 2.0 being surprisingly good and Bluepoint releasing a remake of the original Metal Gear Solid. 
+
+And with that, Generation Next--GameSpot's weekly show dedicated to discussing everything and anything about Xbox Series X|S and PS5--comes to a close. Y'all have been a great audience, and we'll see you in the new year with more original content. Generation Next may not return, but that doesn't preclude the possibility of something else taking its place. Stay tuned!
+
+00:00 - Intro
+00:54 - Hollow Knight: Silksong (Jordan)
+03:41 - Elden Ring (Tam)
+08:07 - God of War sequel (Lucy)
+11:22 - More Xbox badges (Jordan)
+13:13 - PS5 Game Base (Tam)
+14:13 - Discord on consoles (Lucy)
+15:32 - Anthem 2.0 will be good (Jordan)
+18:44 - Metal Gear Solid remake by Bluepoint Games (Tam)
+21:34 - Final Fantasy XVI in 2021 (Lucy)
+23:27 - Outro
+

@@ -1,0 +1,36 @@
+# Source:NPR Music, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A, language:en-US
+
+## D Smoke: Tiny Desk (Home) Concert
+ - [https://www.youtube.com/watch?v=XYZdxSJLg-M](https://www.youtube.com/watch?v=XYZdxSJLg-M)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A
+ - date published: 2020-05-29 00:00:00+00:00
+
+The Tiny Desk is working from home for the foreseeable future. Introducing NPR Music's Tiny Desk (home) concerts, bringing you performances from across the country and the world. It's the same spirit — stripped-down sets, an intimate setting — just a different space.
+
+May 29, 2020 | Abby O'Neill -- This emotional Tiny Desk (home) concert by D Smoke is riveting. Last year, the rapper and pianist, born Daniel Farris, rose to national acclaim when he won Netflix's MC battle show Rhythm + Flow, judged by Chance the Rapper, Cardi B and T.I. Rhythm + Flow shifted the course of his life, allowing him to exit his teaching career and produce music full-time. D Smoke's songs here — taken from his latest album Black Habits, out earlier this year — acknowledge the disparities impacting the black experience that are simultaneously personal and universal. The opening selection, "No Commas," is a heart-wrenching lament on injustice and inequality. The gentle touch of D's fingers moving across the keys complement the song's poignant lyrics, which he raps in English and Spanish. He also performed "Black Habits II," the affecting finale to Black Habits, for the first time in a live setting. It's just one of the many reasons that this Tiny Desk is so special.
+
+
+
+SET LIST
+"No Commas"
+"Closer to God"
+"Seasons Pass"
+"Black Habits II"
+
+## Rhiannon Giddens: Tiny Desk (Home) Concert
+ - [https://www.youtube.com/watch?v=h4luI94cSi8](https://www.youtube.com/watch?v=h4luI94cSi8)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A
+ - date published: 2020-05-28 00:00:00+00:00
+
+The Tiny Desk is working from home for the foreseeable future. Introducing NPR Music's Tiny Desk (home) concerts, bringing you performances from across the country and the world. It's the same spirit — stripped-down sets, an intimate setting — just a different space.
+
+May 28, 2020 | Bob Boilen -- "We're not doing my original songs," Rhiannon Giddens says, before she and her partner, Francesco Turrisi, launch into an old spiritual, "'cause with these kinds of emotions, the old songs say it best."
+
+Though acknowledging their good fortune — a place to live, a bit of savings, their children being safe — Rhiannon Giddens also pauses to tell us how the pandemic has altered their entire way of life. They canceled their tour of Japan and returned home to Ireland; Rhiannon lives in Limerick while Francesco lives a few hours away in Dublin where they recorded this Tiny Desk (home) concert. They're finding comfort in being together, making music together, thinking of their families in both Italy and the United States, and hoping to comfort us all with some down-home tunes. And with banjos, fiddles, a bodhrán, and that stunning voice, it sure worked for me!
+
+SET LIST
+"Black As Crow"
+"Spiritual"
+"Carolina Gals"
+"Last Chance"
+

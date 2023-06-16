@@ -1,0 +1,20 @@
+# Source:UpIsNotJump, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCFLwN7vRu8M057qJF8TsBaA, language:en-US
+
+## Half-Life: Alyx Is NOT An Absolute Nightmare – This Is Why
+ - [https://www.youtube.com/watch?v=NnwsL6BO8ls](https://www.youtube.com/watch?v=NnwsL6BO8ls)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCFLwN7vRu8M057qJF8TsBaA
+ - date published: 2020-04-10 00:00:00+00:00
+
+The first 1000 people to use this link will get a 2 month free trial of Skillshare Premium Membership: https://skl.sh/upisnotjump 
+
+I return to review VR games again, and what better virtual reality game to review than Valve’s Half Life: Alyx. No major story spoilers but I talk about Half Life: Alyx’s gameplay at length.
+
+Virtual Reality finally has a game I think most can agree is a great game that has been made excellent in VR. I may not be a Half Life fan as such, but I have played Half Life 1 and 2, and Half Life: Alyx has made me fall in love with the series.
+
+Half Life Alyx is without a doubt the best virtual reality game I have ever played, I compare it a lot to Boneworks and The Walking Dead: Saint and Sinners because I think it highlights where those games missed the mark a little, and what future games need to try and do to make VR really take off as a platform. 
+
+I played Half Life: Alyx on the Index, but it seems to play just as well on the Vive. I would recommend the Index version as the Index has the best virtual Reality controllers I have used so far. 
+Anyway, that’s enough of me talking about VR, go get Half Life: Alyx if you can!
+
+All my music and sound is from here: https://www.epidemicsound.com/referral/8pficg
+

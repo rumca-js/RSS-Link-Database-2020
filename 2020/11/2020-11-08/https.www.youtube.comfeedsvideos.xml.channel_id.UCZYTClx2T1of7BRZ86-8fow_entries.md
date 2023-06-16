@@ -1,0 +1,124 @@
+# Source:SciShow, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCZYTClx2T1of7BRZ86-8fow, language:en-US
+
+## 3 Fish With Built-In Flashlights
+ - [https://www.youtube.com/watch?v=DwkLd5JGg3U](https://www.youtube.com/watch?v=DwkLd5JGg3U)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCZYTClx2T1of7BRZ86-8fow
+ - date published: 2020-11-09 00:00:00+00:00
+
+If we want to see more clearly in the dark, we shine a light - but we aren't the only species that does that. Some fish use active photolocation to shine their own light in the deep sea!
+
+Hosted by: Michael Aranda
+
+SciShow has a spinoff podcast! It's called SciShow Tangents. Check it out at http://www.scishowtangents.org
+----------
+Support SciShow by becoming a patron on Patreon: https://www.patreon.com/scishow
+----------
+Huge thanks go to the following Patreon supporters for helping us keep SciShow free for everyone forever:
+
+Jb Taishoff, Bd_Tmprd, Harrison Mills, Jeffrey Mckishen, James Knight, Christoph Schwanke, Jacob, Matt Curls, Sam Buck, Christopher R Boucher, Eric Jensen, Lehel Kovacs, Adam Brainard, Greg, Ash, Sam Lutfi, Piya Shedden, KatieMarie Magnone, Scott Satovsky Jr, Charles Southerland, charles george, Alex Hackman, Chris Peters, Kevin Bealer
+----------
+Looking for SciShow elsewhere on the internet?
+Facebook: http://www.facebook.com/scishow
+Twitter: http://www.twitter.com/scishow
+Tumblr: http://scishow.tumblr.com
+Instagram: http://instagram.com/thescishow
+----------
+Sources:
+https://doi.org/10.1098/rspb.2019.2292 
+https://doi.org/10.1038/s41598-019-44529-0 
+https://doi.org/10.1098/rsos.170838 
+https://doi.org/10.1098/rsos.161009 
+https://doi.org/10.1371/journal.pone.0198765 
+https://doi.org/10.1371/journal.pone.0170489 
+https://doi.org/10.1016/0042-6989(92)90191-K 
+https://doi.org/10.1371/journal.pone.0219852 
+https://doi.org/10.1111/j.1096-3642.1988.tb00882.x 
+https://doi.org/10.1371/journal.pone.0155154 
+https://doi.org/10.1007/s00227-005-0085-3 
+https://doi.org/10.1038/30871 
+https://doi.org/10.1016/S0042-6989(98)00332-0 
+
+Image Sources:
+https://www.eurekalert.org/multimedia/pub/117062.php?from=329582
+https://commons.wikimedia.org/wiki/File:Photostomias.jpg
+https://www.eurekalert.org/multimedia/pub/117061.php?from=329582
+https://www.eurekalert.org/multimedia/pub/202379.php?from=431363
+https://www.eurekalert.org/multimedia/pub/237392.php?from=470560
+https://commons.wikimedia.org/wiki/File:Malacosteus.svg
+https://eol.org/media/6152301
+https://eol.org/media/7712362
+https://www.inaturalist.org/observations/5857684
+https://commons.wikimedia.org/wiki/File:Tripterygion_delaisi_Koufonissi.JPG
+https://commons.wikimedia.org/wiki/File:Tripterygion_delaisi.jpg
+https://commons.wikimedia.org/wiki/File:Tripterygion_delaisi_m%C3%A2le_et_femelle.jpg
+https://royalsocietypublishing.org/doi/10.1098/rsos.170838
+https://royalsocietypublishing.org/doi/full/10.1098/rspb.2019.2292
+https://www.nature.com/articles/s41598-019-44529-0/figures/1
+https://www.eurekalert.org/multimedia/pub/132256.php?from=349351
+https://www.eurekalert.org/multimedia/pub/208679.php?from=438323
+https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0170489
+https://commons.wikimedia.org/wiki/File:Anomalops_sp.jpg
+https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0170489
+https://commons.wikimedia.org/wiki/File:NOAA_Deep_Light_diagram3.jpg
+https://commons.wikimedia.org/wiki/File:Thai_cats_eyeshine.JPG
+
+## 5 Ways Humans Make It Rain
+ - [https://www.youtube.com/watch?v=uvkBjtdlXbI](https://www.youtube.com/watch?v=uvkBjtdlXbI)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCZYTClx2T1of7BRZ86-8fow
+ - date published: 2020-11-08 00:00:00+00:00
+
+There are quite a few ways that humans influence the weather, and even on local levels, human activity can produce more rain. Whether by accident or on purpose, increasing rainfall isn't as far-fetched as it sounds.
+
+Hosted by: Hank Green
+
+SciShow has a spinoff podcast! It's called SciShow Tangents. Check it out at http://www.scishowtangents.org
+----------
+Support SciShow by becoming a patron on Patreon: https://www.patreon.com/scishow
+----------
+Huge thanks go to the following Patreon supporters for helping us keep SciShow free for everyone forever:
+
+Bd_Tmprd, Harrison Mills, Jeffrey Mckishen, James Knight, Christoph Schwanke, Jacob, Matt Curls, Sam Buck, Christopher R Boucher, Eric Jensen, Lehel Kovacs, Adam Brainard, Greg, Ash, Sam Lutfi, Piya Shedden, KatieMarie Magnone, Scott Satovsky Jr, Charles Southerland, charles george, Alex Hackman, Chris Peters, Kevin Bealer
+----------
+Looking for SciShow elsewhere on the internet?
+Facebook: http://www.facebook.com/scishow
+Twitter: http://www.twitter.com/scishow
+Tumblr: http://scishow.tumblr.com
+Instagram: http://instagram.com/thescishow
+----------
+Sources:
+https://journals.ametsoc.org/doi/pdf/10.1175/1520-0477%281985%29066%3C0505%3APSASC%3E2.0.CO%3B2
+https://climate.ncsu.edu/edu/Composition
+https://phys.org/news/2017-04-cooling-effect-agricultural-irrigation.html
+https://phys.org/news/2018-05-higher-temperature-heavier.html
+https://journals.ametsoc.org/jhm/article/19/4/715/69337/Intensification-of-Convective-Rain-Cells-at-Warmer
+https://www.smhi.se/en/research/research-news/higher-temperatures-affect-intensive-rain-showers-1.28948
+https://earthobservatory.nasa.gov/features/UrbanRain/urbanrain2.php
+https://www.sciencedaily.com/releases/2002/06/020619074019.htm
+https://www.epa.gov/heatislands/learn-about-heat-islands
+https://www.internationalscholarsjournals.org/download.php?id=528130810742519182.pdf&type=application/pdf&op=1
+https://rmets.onlinelibrary.wiley.com/doi/pdfdirect/10.1256/qj.05.199
+https://www.scientificamerican.com/article/cities-can-alter-hurricanes-intensifying-their-rainfall/
+https://earthobservatory.nasa.gov/features/UrbanRain/urbanrain2.php
+https://journals.aps.org/prl/abstract/10.1103/PhysRevLett.124.198701
+https://www.eurekalert.org/pub_releases/2020-05/uor-cwn050820.php
+https://www.wired.com/story/nuking-hurricanes-polar-ice-caps-climate-change/
+https://climate.ncsu.edu/edu/Aerosols
+https://www.nasa.gov/centers/langley/news/factsheets/Aerosols.html
+https://volcanoes.usgs.gov/vhp/gas_climate.html
+https://link.springer.com/content/pdf/bfm%3A978-1-4020-8690-8%2F1.pdf
+https://rmets.onlinelibrary.wiley.com/doi/full/10.1002/met.1724
+https://www.pnas.org/content/115/6/1168
+https://www.theatlantic.com/technology/archive/2015/02/the-science-behind-human-controlled-weather/385601/
+https://www.eurekalert.org/pub_releases/2020-02/uoia-lis022120.php
+https://www.sciencemag.org/news/2018/01/does-cloud-seeding-really-work-experiment-above-idaho-suggests-humans-can-turbocharge#
+A Review of Cloud Seeding Experiments to Enhance Precipitation and Some New Prospects
+https://www.sciencedirect.com/science/article/pii/S0169809516302332
+https://acp.copernicus.org/articles/19/14967/2019/
+https://journals.ametsoc.org/jamc/article/49/7/1548/13287/A-Quest-for-Effective-Hygroscopic-Cloud-Seeding
+https://www.reuters.com/article/us-china-snow/chinas-artificially-induced-snow-closes-12-highways-idUSTRE51I10X20090219
+https://www.scientificamerican.com/article/cloud-seeding-china-snow/
+https://cen.acs.org/articles/94/i22/Does-cloud-seeding-really-work.html
+
+Images:
+https://earthobservatory.nasa.gov/images/7205/urban-heat-island-atlanta-georgia
+

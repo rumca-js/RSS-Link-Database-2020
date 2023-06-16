@@ -1,0 +1,88 @@
+# Source:SciShow, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCZYTClx2T1of7BRZ86-8fow, language:en-US
+
+## Humpbacks Might Be the Superheroes of the Sea
+ - [https://www.youtube.com/watch?v=v2IkmPtsaMY](https://www.youtube.com/watch?v=v2IkmPtsaMY)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCZYTClx2T1of7BRZ86-8fow
+ - date published: 2020-10-31 00:00:00+00:00
+
+We don’t expect animals to act in a way that doesn’t directly benefit their species. But humpback whales are willing to take on one of their few natural predators to become the heroes of the ocean!
+
+Hosted by: Rose Bear Don't Walk
+
+SciShow has a spinoff podcast! It's called SciShow Tangents. Check it out at http://www.scishowtangents.org
+----------
+Support SciShow by becoming a patron on Patreon: https://www.patreon.com/scishow
+----------
+Huge thanks go to the following Patreon supporters for helping us keep SciShow free for everyone forever:
+
+Bd_Tmprd, Harrison Mills, Jeffrey Mckishen, James Knight, Christoph Schwanke, Jacob, Matt Curls, Sam Buck, Christopher R Boucher, Eric Jensen, Lehel Kovacs, Adam Brainard, Greg, Ash, Sam Lutfi, Piya Shedden, KatieMarie Magnone, Scott Satovsky Jr, Charles Southerland, charles george, Alex Hackman, Chris Peters, Kevin Bealer
+----------
+Looking for SciShow elsewhere on the internet?
+Facebook: http://www.facebook.com/scishow
+Twitter: http://www.twitter.com/scishow
+Tumblr: http://scishow.tumblr.com
+Instagram: http://instagram.com/thescishow
+----------
+Sources:
+https://onlinelibrary.wiley.com/doi/full/10.1111/mms.12343
+https://www.nationalgeographic.com/news/2016/08/humpback-whales-save-animals-killer-whales-explained/
+https://www.britannica.com/animal/humpback-whale
+https://phys.org/news/2018-11-humpback-whale-survivors-orca-southeastern.html
+https://www.hakaimagazine.com/news/killer-whales-are-bullies-and-humpbacks-are-bouncers/
+https://www.sciencemag.org/news/2016/07/why-did-humpback-whale-just-save-seals-life
+https://www.sciencealert.com/humpback-whales-around-the-world-keep-saving-other-animals-from-orcas
+https://www.int-res.com/articles/esr2008/4/n004p247.pdf
+https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4006263/
+
+Images:
+https://commons.wikimedia.org/wiki/File:My_Whale_Captures_(7846805436).jpg
+https://commons.wikimedia.org/wiki/File:Humpback_whale_size_(color).svg
+https://www.eurekalert.org/multimedia/pub/185263.php?from=411484
+https://www.eurekalert.org/multimedia/pub/185262.php?from=411484
+https://www.flickr.com/photos/50979393@N00/12389517865
+https://www.flickr.com/photos/20417698@N00/640255747
+https://www.istockphoto.com/vector/whale-humpback-various-poses-cartoon-cute-vector-gm1127209166-297014138
+https://www.istockphoto.com/vector/192a-gm1166809592-321551024
+https://www.istockphoto.com/photo/baby-and-mama-humpback-whale-touching-and-loving-vavau-tonga-gm1201711680-344737072
+https://www.istockphoto.com/vector/whales-species-size-comparison-set-cartoon-vector-illustration-gm1127209180-297014139
+https://www.istockphoto.com/photo/aerial-view-of-huge-humpback-whale-iceland-gm1181274210-331255141
+
+## The New Human Organ Discovered by Cancer Research
+ - [https://www.youtube.com/watch?v=_fVDyPdhj3U](https://www.youtube.com/watch?v=_fVDyPdhj3U)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCZYTClx2T1of7BRZ86-8fow
+ - date published: 2020-10-30 00:00:00+00:00
+
+We may have found a new organ, thanks to Cancer therapy! Join us as Hank Green explains these new human body discoveries, plus a new look at how anxiety and depression affect the brain, thanks to marmosets!
+
+SciShow is supported by Brilliant.org. Go to https://Brilliant.org/SciShow to get 20% off of an annual Premium subscription. 
+
+SciShow has a spinoff podcast! It's called SciShow Tangents. Check it out at http://www.scishowtangents.org
+----------
+Support SciShow by becoming a patron on Patreon: https://www.patreon.com/scishow
+----------
+Huge thanks go to the following Patreon supporters for helping us keep SciShow free for everyone forever:
+
+Bd_Tmprd, Harrison Mills, Jeffrey Mckishen, James Knight, Christoph Schwanke, Jacob, Matt Curls, Sam Buck, Christopher R Boucher, Eric Jensen, Lehel Kovacs, Adam Brainard, Greg, Ash, Sam Lutfi, Piya Shedden, KatieMarie Magnone, Scott Satovsky Jr, Charles Southerland, charles george, Alex Hackman, Chris Peters, Kevin Bealer
+----------
+Looking for SciShow elsewhere on the internet?
+Facebook: http://www.facebook.com/scishow
+Twitter: http://www.twitter.com/scishow
+Tumblr: http://scishow.tumblr.com
+Instagram: http://instagram.com/thescishow
+----------
+Sources:
+New glands
+Valstar et al 2020 (https://www.sciencedirect.com/science/article/pii/S0167814020308094) 
+Asfhar-Oromieh et al 2015 (establishes technique can be used for PET and that it detects salivary glands) http://jnm.snmjournals.org/content/56/11/1697.full.pdf 
+Nulent et al 2018 (previous work done by the group that further confirms ability to see salivary glands in PET scans using PMSA) https://www.sciencedirect.com/science/article/abs/pii/S2212440318300476  
+
+ Marmosets
+Alexander et al 2020 (http://dx.doi.org/10.1038/s41467-020-19167-0) 
+
+Image Sources:
+https://www.istockphoto.com/photo/common-marmoset-callithrix-jacchus-adults-standing-on-branch-gm1251686751-365372958
+https://www.istockphoto.com/vector/adult-vector-illustration-of-common-marmosets-gm1272748274-374923006
+https://www.istockphoto.com/photo/the-girl-clings-to-the-inflamed-salivary-gland-in-which-pain-concept-of-salivary-gm1221344075-357961764
+https://www.istockphoto.com/vector/4-insert-the-swab-into-the-nostril-gm1279399379-378031381
+https://www.istockphoto.com/photo/human-brain-with-colored-regions-gm184849805-18406670
+

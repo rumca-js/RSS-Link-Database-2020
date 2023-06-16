@@ -1,0 +1,119 @@
+# Source:GameSpot, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw, language:en-US
+
+## Halo 3 Finally Comes To PC | Save State
+ - [https://www.youtube.com/watch?v=c6kDsgxLYqg](https://www.youtube.com/watch?v=c6kDsgxLYqg)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-08 00:00:00+00:00
+
+On Today's Save State, Persia talks about Halo 3 joining the Master Chief Collection on PC, the delay of Mafia: Definite Edition, and a new 3D game from Shovel Knight developer Yacht Club Games.
+
+Persia talks about Halo 3 finally coming to PC on July 14. The update will be live at 10 AM PST / 1 PM EST and will also include changes to the game's battle pass: you will be able to select rewards instead of earning them at certain tiers. With Halo 3 on the PC roster, this just leaves Halo 3: ODST and Halo 4 to join the collection at a later date. The full series is available on the Master Chief Collection on Xbox One. 
+
+Persia also goes over 2K Games' recent announcement that Mafia: Definite Edition has been delayed. The release date has been shifted from August 28 to September 25, after complications due to the COVID-19 pandemic. Developer Hangar 13 and 2K want to ensure the quality of the remaster by delaying the game but promised to show off gameplay on July 23 to hold fans over for the extra month.
+
+Lastly, Persia talks about a new job listing from Shovel Knight developer Yacht Club Games, which suggests a new 3D title may be in production. Yacht Club is known for retro-style, 2D games like the upcoming Shovel Knight Dig and Shovel Knight Pocket Dungeon. We don't currently know anything about this 3D title, but the listing also mentions the use of a custom engine.
+
+We are in the final week of #PlayForAll, where we've been bringing you all of the news and action this summer has to offer while raising money for #BlackLivesMatter and COVID-19 relief efforts. Although our summer coverage will be coming to a close, there will still be ways for you to support these cause through to the end of July. Snag all of your Play For All merch at store.gamespot.com, and the proceeds will be donated to our causes. 
+
+This is your Save State for Tuesday, July 7.
+
+## Massive Sci-Fi MMO Dual Universe Gets New Details And Beta Release Date
+ - [https://www.youtube.com/watch?v=9mOxMuPis4U](https://www.youtube.com/watch?v=9mOxMuPis4U)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-08 00:00:00+00:00
+
+Michael Higham sits down with JC Baillie, the creator of Dual Universe, to talk about the upcoming beta and the game's rich, player created economy.
+
+## The Dark Pictures Anthology: Little Hope -  How Film And Game Acting Differs
+ - [https://www.youtube.com/watch?v=mqnIxbAYrNU](https://www.youtube.com/watch?v=mqnIxbAYrNU)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-08 00:00:00+00:00
+
+We sit down with professional actor Will Poulter with his experiences working in both the game and film industry with his upcoming game The Dark Pictures Anthology: Little Hope.
+
+## Three Little Sims Challenge With Elyse and James Willems
+ - [https://www.youtube.com/watch?v=9FlNxcIdmVk](https://www.youtube.com/watch?v=9FlNxcIdmVk)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-08 00:00:00+00:00
+
+On today's Play For All charity stream, Elyse and James Willems from Funhaus join us for some Sims 4 funtimes!
+
+## World of Warcraft Shadowlands Developer Update Livestream
+ - [https://www.youtube.com/watch?v=8TvX6KbqCWk](https://www.youtube.com/watch?v=8TvX6KbqCWk)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-08 00:00:00+00:00
+
+Tune in as we learn more about the new content coming in Shadowlands, the next expansion for Blizzard's WoW.
+
+## Assassin's Creed Valhalla Footage Leaked! | Save State
+ - [https://www.youtube.com/watch?v=9EaiO5J1gNw](https://www.youtube.com/watch?v=9EaiO5J1gNw)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-07 00:00:00+00:00
+
+Thirty minutes of Assassin's Creed Valhalla has found its way online, revealing a first look at the female version of Eivor. The footage is from what appears to be an early build of the game, so it's likely we'll see a much more polished portion of the game during this weekend's Ubisoft Forward event. That's happening on Sunday, July 12 at 12 PM PT / 3 PM ET.
+
+Take-Two is currently working on a new BioShock without its creator, designer, and writer Ken Levine. He, however, is, working on a new game within Take-Two that will have "some weird sh** in it." We don't know much else about the game other than it's being developed by Ghost Story Games, which Levine runs as president. In the meantime, the next BioShock is being developed by Cloud Chamber.
+
+Lastly, the next Xbox Series X stream officially got a date and time: Thursday, July at 9 AM PT / noon ET.  There are still Xbox 20/20 events to come, and we still don't have an official price or release date.
+
+Meanwhile, Play For All keeps on trucking. Play For All is a multi-week summer gaming celebration and charity event featuring special guests like Troy Baker, Danny O'Dwyer, and many familiar GameSpot faces. We've already raised thousands of dollars for #BlackLivesMatter and COVID-19 Relief Efforts thanks to all of you! Be sure to tune in every day between 12 PM and 2 PM PDT for interviews, livestreams, and everything in between. 
+
+Play For All schedule: https://www.gamespot.com/play-for-all
+
+Where to donate: 
+BLACK LIVES MATTER: http://bit.ly/gs-blm
+ 
+COVID-19 Direct Relief: http://bit.ly/gs-covid
+
+## Dual Universe - Exclusive Cinematic Trailer
+ - [https://www.youtube.com/watch?v=CtBbXnVynh0](https://www.youtube.com/watch?v=CtBbXnVynh0)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-07 00:00:00+00:00
+
+Ahead of Dual Universe's beta release in August 2020, the developers at Novaquark have released a new cinematic trailer that teases the new adventures in deep space to come. For more on our exclusive with Dual Universe, check out GameSpot's coverage of the game.
+
+## Earth Defense Force: World Brothers - Exclusive Western Release Trailer
+ - [https://www.youtube.com/watch?v=vWK1qwf5gt0](https://www.youtube.com/watch?v=vWK1qwf5gt0)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-07 00:00:00+00:00
+
+In this exclusive for GameSpot's Play For All charity event, Earth Defense Force: World Brothers will make its debut in the west on PS4 and Nintendo Switch in 2021. Unite new members of the Earth Defense Force to save a Voxel Earth from an alien invasion.
+
+## Ed Boon On Making A Mortal Kombat Universe And Letting Others Take Charge
+ - [https://www.youtube.com/watch?v=cS-DW_S_9Yo](https://www.youtube.com/watch?v=cS-DW_S_9Yo)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-07 00:00:00+00:00
+
+Tamoor Hussain sat down to talk with Mortal Kombat co-creator Ed Boon about the Mortal Kombat Universe and the next-gen consoles.
+
+## Movie Trivia With Jack Pattillo
+ - [https://www.youtube.com/watch?v=_eWnA1Uulzo](https://www.youtube.com/watch?v=_eWnA1Uulzo)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-07 00:00:00+00:00
+
+Where to donate:
+BLACK LIVES MATTER: http://bit.ly/gs-blm
+
+COVID-19 Direct Relief: http://bit.ly/gs-covid
+
+Special guest Jack Pattillo joins us for a new round of Movie Trivia! Quizmaster Chastity will test Jack and the GameSpot crew on their knowledge of Sci-Fi, Fantasy and Comedy. Plus, lightning rounds for movie posters and taglines!
+
+## Sky Beneath - Exclusive Trailer For The Gravity-Defying Puzzle Platformer
+ - [https://www.youtube.com/watch?v=dVfpU2W9P7g](https://www.youtube.com/watch?v=dVfpU2W9P7g)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-07 00:00:00+00:00
+
+Coming from Mindhaven Games, Sky Beneath is a unique platformer where you'll bend gravity to explore a complex alien planet filled with lost technology. This gravity-defying puzzle platformer is set for release on PC and consoles in 2021.
+
+## Top 5 Skyrim Mods Of ALL TIME With Seb And Cam
+ - [https://www.youtube.com/watch?v=uxv_5Q-xSeg](https://www.youtube.com/watch?v=uxv_5Q-xSeg)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-07-07 00:00:00+00:00
+
+Where to donate:
+BLACK LIVES MATTER: http://bit.ly/gs-blm
+
+COVID-19 Direct Relief: http://bit.ly/gs-covid
+
+We're joined by GameSpot alumni Seb Ford and Cam Robinson (and Kevin Van Nord) to bring us their top five favourite Skyrim mods of all time.
+

@@ -1,0 +1,58 @@
+# Source:NPR Music, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A, language:en-US
+
+## Sudan Archives: NPR Music Tiny Desk Concert
+ - [https://www.youtube.com/watch?v=fFUbOnT2gCg](https://www.youtube.com/watch?v=fFUbOnT2gCg)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A
+ - date published: 2020-06-29 00:00:00+00:00
+
+This performance was recorded on March 11, 2020. We will continue releasing Tiny Desk videos of shows that had already been taped. In light of current events, NPR is postponing new live tapings of Tiny Desk Concerts. In the meantime, check out Tiny Desk (home) concerts! They’re recorded by the artists in their home. It’s the same spirit — stripped-down sets, an intimate setting — just a different space.
+
+June 22, 2020 | Bob Boilen -- Sudan Archives is a truly singular artist, inspired by Irish and African music, especially Sudanese music. The first time I saw her was in a crowd of people at Cheer Up Charlies during SXSW in March of 2018. The show was wild and wonderful: effects pedals transformed her violin into a full-on band, with electronic beats keeping it all moving.
+
+Almost exactly two years later, things couldn't be more different. On March 6, SXSW 2020 was canceled due to COVID-19. By the time Sudan Archives arrived at NPR in Washington, D.C., on March 11, everyone was concerned about the coronavirus threat. So we sanitized the desk, the mics and the cameras. We also kept our distance.
+
+She came not with an array of electronics, but with violinist Jessica McJunkins, violist Dominic Johnson and cellist Khari Joyner. The new arrangement at the top of "Confessions" was the perfect tension queller. And those arrangements also heighten the lyrics. Listening again three months later, three weeks into police brutality protests, the words — "There is a place that I call home / But it's not where I am welcome / And if I saw all the angels / Why is my presence so painful?" — take on new meaning.
+
+When the show was over and the small, socially-distant crowd of NPR employees dispersed, our crew began to wipe everything down with disinfectant wipes. Our incredible audio engineer, Josh Rogosin, started to set up for what we thought would be the next Tiny Desk show, the Pulitzer Prize-winning opera p r i s m by Ellen Reid and Roxie Perkins.
+
+Josh Rogosin remembers the day clearly. "After the Sudan Archives concert, I optimistically went about setting up for a string quartet plus an eight-person choir and two vocal soloists, plus harp and conductor," he told me. "About halfway through my set-up, our boss gathered us around the Tiny Desk and made the painful but obvious decision. No more Tiny Desks until further notice."
+
+Three months later, things are not looking much better. I miss it madly. There will be Tiny Desk concerts again and the celebration will be joyous. We'll do it as soon as it feels safe. Stay tuned and enjoy the nearly 1,000 concerts in our archives.
+
+SET LIST
+"Confessions"
+"Glorious"
+"Nont For Sale"
+
+MUSICIANS
+Sudan Archives: vocals, violin; Dominic Johnson: viola; Jessica McJunkins: violin; Khari Joyner: cello
+
+CREDITS
+Producers: Bob Boilen, Morgan Noelle Smith, Jack Corbett; Creative director: Bob Boilen; Audio engineers: Josh Rogosin, Natasha Branch; Videographers: Bronson Arcuri, Jack Corbett, Kara Frame, Melany Rochester; Associate Producer: Bobby Carter; Executive producer: Lauren Onkey; VP, programming: Anya Grundmann; Photo: Kisha Ravi/NPR
+
+## 'Weird Al' Yankovic: NPR Music Tiny Desk Concert From The Archives
+ - [https://www.youtube.com/watch?v=6v9D1nf1p_Y](https://www.youtube.com/watch?v=6v9D1nf1p_Y)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A
+ - date published: 2020-06-28 00:00:00+00:00
+
+We've been filming Tiny Desk concerts for more than 10 years. While revisiting our archives, we discovered that some of our earliest concerts never made it to YouTube! 
+Watch 'Weird Al' Yankovic's’s Tiny Desk concert from 2010: https://www.npr.org/2010/06/22/127983640/-weird-al-yankovic-tiny-desk-concert
+
+
+Stephen Thompson | June 22, 2010
+
+Several generations of nerds can chart the course of their lives against the career trajectory of "Weird Al" Yankovic. For me, his 1984 album In 3-D was the first record I ever owned, and his appearance at the Wausau County Fair in 1985 was the second concert I ever attended. I spent my 17th birthday being driven to the movie theater — by my mother, of course — to watch UHF, Yankovic's debut as a leading man, by myself. (And I mean by myself; my ticket marked a significant percentage of the film's theatrical grosses.) The night before I turned 20, I jumped into a makeshift mosh pit when Yankovic and his band played "Smells Like Nirvana" at a concert; when I staggered back to my seat, winded, it was the first time I'd ever felt old.
+
+Sorry for the self-indulgent reminiscences, but Yankovic has had a profoundly positive impact on my life for nearly 30 years. Not only did he seem like a kindred oddball during that horrible stretch of adolescence when everyone feels like their pants are falling down at all times; he also taught me to look at pop music in a different way — to take it apart, analyze it, laugh at the cliches and put it back together in funny and playful ways. He took my youthful obsession with pop music and fed it like no one else.
+
+Last fall, I was honored to write the liner notes to a two-disc greatest-hits package called The Essential "Weird Al" Yankovic, in which I laid out the case for the man's enshrinement in the Rock and Roll Hall of Fame. More than three decades of pop-cultural relevance, during which time many of the stars he parodied came and went. Twelve million albums sold, with the highest-charting one (2006's Straight Outta Lynwood) arriving more than a quarter of a century into his career. A band talented enough to slide seamlessly into dozens of pitch-perfect personae.
+
+But even after all those accomplishments, Yankovic and his band had one milestone yet to reach: They hadn't yet played their first Tiny Desk Concert. For a band accustomed to perfectionism on stage and in the studio — knowing how to get every note right is, after all, a vital component of any good parody — the modest surroundings and single microphone necessitated some adjustment. But in these three Yankovic originals (1988's "Good Old Days," 1992's "You Don't Love Me Anymore" and the new White Stripes pastiche "CNR"), it's remarkable how quickly the singer and his band adjust and thrive. Now can they get into the Hall of Fame?
+
+Set List:
+"You Don't Love Me Anymore"
+
+"Good Old Days"
+
+"CNR"
+

@@ -1,0 +1,129 @@
+# Source:GameSpot, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw, language:en-US
+
+## Pikmin 3 Deluxe Review
+ - [https://www.youtube.com/watch?v=xLWXMf0nmrI](https://www.youtube.com/watch?v=xLWXMf0nmrI)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-10-28 00:00:00+00:00
+
+One of Wii U's earliest gems remains a delight to play on Nintendo Switch. Nintendo's action-adventure strategy game Pikmin 3 Deluxe will be available on Nintendo Switch on October 30, 2020. You can read the full written Pikmin 3 Deluxe review by Kevin Knezevic on GameSpot: https://www.gamespot.com/reviews/pikmin-3-deluxe-review-nintendo-switch/1900-6417595/
+
+## Xbox Series S Unboxing
+ - [https://www.youtube.com/watch?v=WSu2CgSvCCo](https://www.youtube.com/watch?v=WSu2CgSvCCo)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-10-28 00:00:00+00:00
+
+Join us as we unbox the brand new Xbox Series S console.
+
+## Xbox Series X Unboxing
+ - [https://www.youtube.com/watch?v=5FzhqAepP84](https://www.youtube.com/watch?v=5FzhqAepP84)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-10-28 00:00:00+00:00
+
+Join us as we unbox the brand new Xbox Series X console.
+
+## Xbox Series X/S Compared To Every Launch Xbox
+ - [https://www.youtube.com/watch?v=DJE1o3f6O8w](https://www.youtube.com/watch?v=DJE1o3f6O8w)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-10-28 00:00:00+00:00
+
+With a retail Xbox Series X and S in our hands, we stack an Xbox tower, and compare Microsoft's newest console to every launch Xbox console.
+
+The next generation is just around the corner, and we've had our hands on the new Xbox Series X and Series S for a while now. The new consoles from Microsoft are relatively understated, with black and white boxes that look simple and clean. But how do they compare to prior Xboxes? Time to do science!
+
+We took the Xbox Series X and Series S and stacked them up against every prior Xbox, from the original Xbox all the way to the Xbox One X. In fact, thanks to the relatively squared edges in every generation of Xbox, we were also able to literally stack them against each other, making a gigantic Xbox sandwich. It's a sight to behold, but we don't recommend taking a bite. Check out the full console size comparison.
+
+## Astro's Playroom - Cooling Springs | PS5 4K Gameplay
+ - [https://www.youtube.com/watch?v=wS3__5Etcaw](https://www.youtube.com/watch?v=wS3__5Etcaw)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-10-27 00:00:00+00:00
+
+See in action a level of Astro's Playroom, the platformer that comes free with your PlayStation 5 and shows off the cool new features of the DuelSense controller.
+
+The very first game you'll get for PlayStation 5 is Astro's Playroom--because it comes preinstalled on the console. Even if you've got Spider-Man: Miles Morales or Demon's Souls waiting in the wings, you're going to want to check it out. Team Asobi's 3D platformer is a pretty hearty showcase for what developers can do with the piece of PS5 tech you're likely going to be using with the next-gen console the most: the DualSense controller.
+
+Check out the video above, where we play through Cooling Springs, one of the four main areas of Astro's Playroom. Though the platformer gameplay is pretty familiar to fans of similar games like Super Mario Odyssey or Super Lucky's Tale, it does a solid job of showing off some of the graphical capabilities of the PS5. What's tougher to convey in a video is just how extensively Astro's Playroom uses the DualSense's features, like its haptic feedback capabilities and adaptive triggers, to create an extremely tactile gameplay experience.
+
+But while you can't feel what the controller is doing in this video, you can see what a love letter to PlayStation history Team Asobi has created. Part of the focus of the game is on hunting down collectible pieces of PlayStation history: models of hardware like the PlayStation Portable, DualShock 3 controller, and EyeToy Camera. There are also tons of PlayStation easter eggs scattered throughout the level that are a whole lot of fun to track down. For more, check out our written preview of the Cooling Springs level.
+
+## Here's How Big The PS5 Is Compared To Every Launch PlayStation
+ - [https://www.youtube.com/watch?v=KMY6BnClzx0](https://www.youtube.com/watch?v=KMY6BnClzx0)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-10-27 00:00:00+00:00
+
+We've got our hands on the PlayStation 5 and we compared it's size and shape to every PlayStation from the PS1, all the way to the PS4 Pro.
+
+We've gotten our hands on the PlayStation 5, fins and all. Much has been made of the new console's overall size, since it is a bit bigger than some past PlayStations. But how much bigger? This calls for an investigation.
+
+We took the PS5 and stacked it up against every prior PlayStation, from the PS1 all the way to the PS4 Pro. And perhaps not surprisingly, we find that it is in fact a big boy. The only PlayStation that even comes close is the equally curvalicious original PlayStation 3. If you want to get a better idea of just how much bigger the PS5 is, check out the video above. Don't body-shame, all consoles are beautiful.
+
+## PS5 DualSense Controller Hands-on
+ - [https://www.youtube.com/watch?v=PkGmh4Yy2gU](https://www.youtube.com/watch?v=PkGmh4Yy2gU)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-10-27 00:00:00+00:00
+
+The DualShock controller has been an iconic part of the PlayStation family for over 20 years. But for the PlayStation 5, it's been replaced with the DualSense wireless controller. 
+
+In this video, Lucy unboxes the DualSense controller and talks you through its striking design. She also examines its new features, in addition to describing how the controller feels what the button presses are like to press, and takes a look at the new Create button. The controller is USB-C powered and features a microphone and speaker built in, so you can chat to your friends using just the controller. 
+
+We can't comment on the haptic feedback or adaptive triggers just yet, but keep your eyes on GameSpot for all of our PlayStation 5 coverage. The console releases on November 12 in the US, Canada, Japan, Mexico, Australia, New Zealand, and South Korea, and on November 19 in the rest of the world.
+
+## PS5 Launch Exclusive Delayed | Save State
+ - [https://www.youtube.com/watch?v=pJLyZ-ogPs4](https://www.youtube.com/watch?v=pJLyZ-ogPs4)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-10-27 00:00:00+00:00
+
+In this video, Persia talks about the delay of Destruction All-Stars, which was supposed to be a PS5-exclusive launch title.  The game will now be releasing in February 2021 and will be available on PlayStation Plus for two months at launch.
+
+Persia also talks about a recent interview with Phil Spencer that mentioned an Xbox streaming stick could be on the way, with the possibility of being bundled with Game Pass. The discussion demonstrated Microsoft's attempt to meet consumer expectations for lower-priced services and hardware.
+
+Lastly, Persia talks about the new details for Season 7 of Apex Legends. There will be a new champion known as Horizon, a new map called Olympus, a squad vehicle dubbed The Trident, and much more. Season 7 startson November 4, and the battle royale game will also be launching on Steam the same day, featuring the ability to transfer your progress over from Origin.
+
+This is your Save State for Monday, October 26th.
+
+00:00 - Intro
+00:17 - PS5 Launch Exclusive Delayed
+00:48 - Will We See An Xbox Streaming Stick?
+01:23 - Apex Legends Season 7 Details
+
+## PlayStation 5 Unboxing
+ - [https://www.youtube.com/watch?v=t4kvryi4Ms4](https://www.youtube.com/watch?v=t4kvryi4Ms4)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-10-27 00:00:00+00:00
+
+Join us as we unbox the brand new PlayStation 5 console, attach the base, and give our first impressions of the DualSense controller.
+
+PlayStation 5 launches on November 12 and, ahead of this very exciting date, Sony has sent us the final retail version of its brand new next-gen console, which we've unboxed. The PS5 looks very different to the other members of the PlayStation family, and its striking appearance and size is certainly eye-catching.
+
+In this video, Lucy talks you through everything that comes in the PS5 box, including the new DualSense wireless controller, HDMI cable, AC power adapter, USB cable, base, and of course, the console itself. We received the PlayStation 5 unit with the Ultra HD Blu-ray drive.
+
+We can't show you the PlayStation 5 turned on quite yet, but keep your eyes peeled to GameSpot and youtube.com/gamespot for that in the future. The PlayStation 5 launches on November 12 in the US, Canada, Japan, Mexico, Australia, New Zealand, and South Korea, and on November 19 in the rest of the world.
+
+0:00 Intro
+0:50 Power & HDMI
+1:52 DualSense Controller
+4:25 Console & Base
+
+## Watch Dogs: Legion Early Livestream
+ - [https://www.youtube.com/watch?v=ChDE1PZfJEs](https://www.youtube.com/watch?v=ChDE1PZfJEs)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-10-27 00:00:00+00:00
+
+Join Jake as he explores the dystopian streets of London in Ubisoft's Watch Dogs: Legion.
+
+## What Cyberpunk’s Delay Means For Next-Gen
+ - [https://www.youtube.com/watch?v=jrSFW4Zhsys](https://www.youtube.com/watch?v=jrSFW4Zhsys)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-10-27 00:00:00+00:00
+
+Jake and Jean-Luc breakdown why Cyberpunk 2077 is delayed again, and what that means to the general schedule of game releases this year.
+
+The title really says it all, doesn't it? Cyberpunk 2077 has been delayed once again, pushing CD Projekt Red's upcoming open-world RPG to December 10. 
+
+In the video above, Jake Dekker and Jean-Luc Siepke talk through the delay--both in what it might mean for the game as well as how it impacts GameSpot's coverage of Cyberpunk 2077. Don't worry, we're still going to be covering the game up until launch. In fact, you'll be getting an extra three weeks of preview coverage than we previously had planned, as a result of the delay.
+
+There's also the matter of Game of the Year conversations. Cyberpunk 2077 is one of the biggest games of 2020--it was widely assumed the game would at least factor in to many outlets' end of the year discussions/debates for the best games of the year. The game is already being pushed out of the running for the Game Awards 2020, after all. So will that be the case for GameSpot's Top 10 of 2020? Honestly, we don't know--but Cyberpunk 2077 is cutting it very close for our end of the conversation. That will be a conversation we need to hold for December.
+
+And, of course, there's also the important labor issue surrounding a delay like this. How is CD Projekt Red managing crunch for the game (if at all?). How do the developers responsible for Cyberpunk 2077 feel about working on the game for another three weeks on top of the effort they've put in already all year long? There's a lot more to a delay like this than just, "Oh, I'm sure the developers just need a little more time."
+
+Cyberpunk 2077 is scheduled to release for Xbox One, PS4, and PC. Next-gen versions for Xbox Series X|S and PS5 are in the works, but they won't be ready at either consoles' launch.
+

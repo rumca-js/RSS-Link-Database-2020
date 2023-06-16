@@ -1,0 +1,117 @@
+# Source:GameSpot, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw, language:en-US
+
+## 9 Things I Wish I Knew Before Starting Animal Crossing: New Horizons
+ - [https://www.youtube.com/watch?v=BqvmDvaVT_E](https://www.youtube.com/watch?v=BqvmDvaVT_E)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-03-27 00:00:00+00:00
+
+Animal Crossing: New Horizons has finally arrived on Nintendo Switch. Even if you're a series veteran, New Horizons introduces a lot of new elements to the mix that shake up the usual day-to-day gameplay in some interesting and unexpected ways. Nintendo has shown off some of these in trailers and presentations in the lead up to the game's release, but there are still many others that you may not be familiar with, so we're here to help.
+
+In the video above, we go over nine things in New Horizons that you'll definitely want to know about before settling down on your new deserted island home, from how to get the handy new ladder to how to move buildings and add best friends. We also share some more helpful tips, including a good trick to use when you're trying to catch fish.
+
+New Horizons has been receiving great reviews from critics, including GameSpot. We gave the title an 8/10 in our Animal Crossing: New Horizons review-in-progress. Reviewer Kallie Plagge wrote, "So far, I've played Animal Crossing: New Horizons for 80 hours over 17 days, and that anticipation hasn't yet gone away. While I've spent a lot of time developing my island so far, I still feel as if there's plenty left for me to do and see--there's a lot in New Horizons to occupy your time with."
+
+If you're looking for more tips to help you settle into your virtual island, we've rounded up lots of guides for New Horizons. Be sure to check out what you should be doing every day, how to get the all-important shovel, and how to make money. We also have an explainer on how to upgrade your inventory space, which you'll definitely want to do to hold more items.
+
+#AnimalCrossing #NewHorizons #GameSpot
+
+## Come Chill With Us In Animal Crossing: New Horizons | GameSpot Community Fridays
+ - [https://www.youtube.com/watch?v=o-VsflR_73g](https://www.youtube.com/watch?v=o-VsflR_73g)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-03-27 00:00:00+00:00
+
+It's Friday and we're looking to relax after a long weekend with some Animal Crossing on the Nintendo Switch. Visit our Island and come hang with us!
+
+## Half-Life: Alyx And Bleeding Edge - GameSpot After Dark #34
+ - [https://www.youtube.com/watch?v=mJ7GmkC5lDQ](https://www.youtube.com/watch?v=mJ7GmkC5lDQ)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-03-27 00:00:00+00:00
+
+On this episode of GameSpot After Dark, Jake goes in depth with his Half-Life: Alyx experience and Tamoor shares his first impressions of Ninja Theory's Bleeding Edge.
+
+TIMESTAMPS:
+00:00:14 - Intro
+00:01:55 - What We've Been Playing
+00:23:26 - Bleeding Edge Impressions
+00:33:02 - Half-Life: Alyx Impressions
+00:48:51 - Listener Questions
+01:05:34 - Outro
+
+## Nintendo Direct Highlights: Animal Crossing, Super Smash Bros, & More
+ - [https://www.youtube.com/watch?v=ywzXpFVhqhs](https://www.youtube.com/watch?v=ywzXpFVhqhs)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-03-27 00:00:00+00:00
+
+A surprise Nintendo Direct Mini just aired, and we learned about new game releases and updates for titles available now on Nintendo Switch. 
+
+Animal Crossing: New Horizons is getting an April event and update with Bunny Day, which will run April 1-12. The Easter equivalent will involve searching for Zipper T. Bunny's hidden eggs on your island.
+
+The next Super Smash Bros. Ultimate fighter was teased, and it's a character from Arms. They weren't named specifically, but they'll be joining the roster in June. Alongside this announcement comes a free trial of Arms: Nintendo Switch Online members can play the springy fighting game from now through April 6th at no cost.
+
+Also out today is a Bravely Default 2 demo--the full game is still slated for a 2020 release date. BioShock, Borderlands, and XCOM 2 collections are also headed to Switch. That trio launches on May 29. Catherine: Full Body will arrive on July 7, and Burnout Paradise Remastered will be available this year too.
+
+The Direct ended with more Pokemon Sword & Shield DLC details about the first expansion, Isle of Armor. You can learn about the legendary Pokemon Kubfu in the video above.
+
+## Resident Evil 3 - Official Jill Valentine Story Trailer
+ - [https://www.youtube.com/watch?v=F4Ix4eyNYps](https://www.youtube.com/watch?v=F4Ix4eyNYps)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-03-27 00:00:00+00:00
+
+Jill Valentine’s escape from Raccoon City is fraught with danger, but she still has some dependable allies to rely on… as well as some enemies to watch out for. Jill won’t just be the star of Resident Evil 3, though – she’ll also be added as a playable Survivor in Resident Evil Resistance in a future update.
+
+#RE3Remake #JillValentine #GameSpot
+
+## Being A Jerk In Animal Crossing: New Horizons - The Vile Villager Episode 1
+ - [https://www.youtube.com/watch?v=lJ5D8lSMLw0](https://www.youtube.com/watch?v=lJ5D8lSMLw0)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-03-26 00:00:00+00:00
+
+In this new series, Jake and Rob try and create the biggest, meanest, good-for-nothing jerk in Animal Crossing: New Horizons.
+
+Animal Crossing: New Horizons is the next big Switch exclusive, and people are loving it for its cutesy charm and how it can help you relax and unwind during these stressful times. Basically, New Horizons is a family friendly delight that we couldn't enjoy more. But what if you play like a jerk and try to wreak havoc and just be a general nuisance on the island?
+
+That's exactly the good work that GameSpot's Rob Handerly and Jake Dekker did in a new GameSpot video. Check out our first installment of "Vile Villager" to see Handerly and Dekker rekindle the spirit of Dirty Arty to bring you what we can only describe as essential viewing.
+
+Rob and Jake begin by creating a very unsettling character before building an island that they most lovingly named "MeatHouse." It only gets more absurd from there, so be sure to watch the full video to see all of their hijinks in action. 
+
+Don't forget to check out all of GameSpot's other Animal Crossing: New Horizons guides and features covering everything you need to know about the game. 
+
+#TheVileVillager #AnimalCrossing #NewHorizons #GameSpot
+
+## Call Of Duty Warzone & Modern Warfare Updates: Everything You Need To Know In Under 3 Minutes
+ - [https://www.youtube.com/watch?v=dimqSOpmV4k](https://www.youtube.com/watch?v=dimqSOpmV4k)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-03-26 00:00:00+00:00
+
+Activision is rolling out new Call of Duty content across the series this week, with fresh updates for Warzone, Modern Warfare, and Mobile. The video above details what's coming to each game.
+
+Warzone is getting four new weapons, which can be found across the map in common in uncommon variants. New Operator Talon is also joining the fray, alongside his faithful dog companion Indiana.
+
+The Talon bundle is also available for Modern Warfare, which is getting a new free multiplayer map, Khandor Hideout. The 6v6 map is ideal for snipers, shotguns, and SMGs.
+
+Finally, Mobile is getting two new games modes, called Rapid Fire and Sticks and Stones. Zombies mode is being removed as the two new ones come in.
+
+## Let's Revisit BioShock Infinite On Its 7th Birthday
+ - [https://www.youtube.com/watch?v=eFbVFiM4iSI](https://www.youtube.com/watch?v=eFbVFiM4iSI)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-03-26 00:00:00+00:00
+
+BioShock Infinite turns 7 years old and we're celebrating by jumping back in! Would you kindly join Persia as she revisits Irrational Games' third installment to the BioShock series.
+
+## Why Time Travel In Animal Crossing Is A Bad Idea
+ - [https://www.youtube.com/watch?v=YgOk3yC3fQE](https://www.youtube.com/watch?v=YgOk3yC3fQE)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-03-26 00:00:00+00:00
+
+Time skipping may seem like a good way to speed things up in Animal Crossing, but if you aren't careful it can screw up your island. Here's why you shouldn't time skip.
+
+Animal Crossing: New Horizons has finally arrived on Nintendo Switch. Nintendo's charming life sim series has always had a very leisurely pace compared to other games, but even by these standards, New Horizons gets off to a slow start. You'll spend your first few days gradually transforming your deserted island into a bustling town, and this entails gathering lots of materials to build bridges, picking out plots of land for new residents, and setting up a museum and general store.
+
+Given how long it takes to develop your island, you may be tempted to set your Switch clock forward and skip time to unlock things more quickly. We wouldn't recommend that, however. As Jake explains in the video above, time traveling may be an alluring way to get your town up and running, but you should resist the temptation and let the game unfold naturally.
+
+New Horizons has received very positive reviews from critics. GameSpot's Kallie Plagge gave it an 8/10 in our Animal Crossing: New Horizons review-in-progress, writing, "So far, I've played Animal Crossing: New Horizons for 80 hours over 17 days, and that anticipation hasn't yet gone away. While I've spent a lot of time developing my island so far, I still feel as if there's plenty left for me to do and see--there's a lot in New Horizons to occupy your time with."
+
+If you're just settling into your new island home, we've rounded up lots of tips and guides for New Horizons to help you out, including what you should be doing every day, how to get the all-important shovel, and how to make money. We also have explainers on how to unlock the ladder and upgrade your inventory space.
+
+#AnimalCrossing #NewHorizons #GameSpot
+

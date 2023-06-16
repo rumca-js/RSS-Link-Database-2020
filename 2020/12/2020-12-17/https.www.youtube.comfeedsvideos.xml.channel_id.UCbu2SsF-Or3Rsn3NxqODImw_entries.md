@@ -1,0 +1,102 @@
+# Source:GameSpot, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw, language:en-US
+
+## Cyberpunk 2077: Demo vs Retail Gameplay
+ - [https://www.youtube.com/watch?v=4w8TLBIwcBo](https://www.youtube.com/watch?v=4w8TLBIwcBo)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-12-18 00:00:00+00:00
+
+Take a look at this video comparing the first ever gameplay demo of Cyberpunk 2077 with its final retail version captured on PC. 
+
+Cyberpunk 2077 has been a long time coming. Since the game was first revealed in 2012, we had to wait six years before we saw a 48-minute long work in progress gameplay video. 
+
+Now, Cyberpunk 2077 has finally been released, and we can compare those work in progress visuals to the finished product. In the above video we compare scenes from two key moments in the game, an early mission where V and their friend Jackie Welles are on a job to rescue a wealthy woman who has been kidnapped by scavengers, before visiting the Ripperdoc to enhance V's cybernetics. Then, we take a look at a second mission, where V and Jackie met Militech agent Stout, and infiltrate the Maelstrom gang hideout to pick up an advanced bot for fixer Dexter DeShawn. 
+ 
+For more graphics comparisons, check out our look at the game running on a base PS4 and a PS5. Cyberpunk 2077 is available now on PS4, PS5, Xbox One, Xbox Series X/S, PC, and Stadia.
+
+## Cyberpunk 2077: Top 5 Cybernetics You Need
+ - [https://www.youtube.com/watch?v=9AI217MnfiU](https://www.youtube.com/watch?v=9AI217MnfiU)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-12-18 00:00:00+00:00
+
+There is a lot to buy in Cyberpunk 2077: Cars, guns, consumables, and--most importantly--cybernetics. Here are the best ones we've found so far.
+
+There's a lot to buy in Cyberpunk 2077--cars, guns, consumables, clothes--but there's one thing that you should be investing your hard earned eddies into as soon as you can: cybernetics. Most offer passive buffs, but there are a few that can fundamentally change the way you play.
+
+In the above video, we list the coolest cybernetics in Cyberpunk 2077 as well as where to get them and how much they cost. From giving V a handy double jump so they can traverse Night City with ease and Bullet Time to help out when situations get a little overwhelming to wrist rockets. Yes, you read that right. 
+
+For more Cyberpunk 2077, make sure to subscribe to youtube.com/gamespot. Cyberpunk 2077 is available now for PS4, PS5 (via backwards compatibility), Xbox One, Xbox Series X/S (via backwards compatibility), PC, and Stadia.
+
+0:00 - Intro
+0:22 - Reinforced Tendons
+1:24 - Gorilla Arms
+2:36 - Projectile Launch System
+3:12 - Kerenzikov
+4:02 - Cyberdecks
+4:42 - Outro
+
+## Official Sephiroth Gameplay Walkthrough By Mr. Sakurai - Super Smash Bros. Ultimate
+ - [https://www.youtube.com/watch?v=CerQhwS6Ih8](https://www.youtube.com/watch?v=CerQhwS6Ih8)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-12-18 00:00:00+00:00
+
+Watch the full Super Smash Bros. Ultimate presentation featuring Sephiroth and see what the One-Winged Angel can do! Sephiroth arrives 12/22 and is available as a part of the Fighters Pass Vol. 2!
+
+## PS5 And Xbox Series X: Fixes, Improvements, And Error Codes
+ - [https://www.youtube.com/watch?v=oO95ubklQts](https://www.youtube.com/watch?v=oO95ubklQts)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-12-18 00:00:00+00:00
+
+We've had the PlayStation 5 and Xbox Series X consoles for just over a month, and while there were widespread reports of issues, have the teething problems been fixed?
+
+We've been in the "next console generation" for a little over a month now, considering Xbox Series X|S released November 10 and PS5 launched November 12. Guess we should start referring to the new consoles as the current generation, huh? Still sounds weird though, to be honest.
+
+In the weeks following their launch, Xbox and PlayStation have released updates for their respective new consoles, ranging from bug fixes to quality of life adjustments. Even Xbox Series X|S and PS5 are hard to find, at least both Microsoft and Sony have shown a commitment to improving the experience on their consoles for those who do happen to have one.
+
+Several games have received significant upgrades on the new consoles as well, such as Marvel's Spider-Man: Miles Morales and Borderlands 3. It all pretty much boils down to 4k support at 60fps but a few titles have received other notable improvements, such as splitscreen co-op and 120fps.
+
+On this episode of Generation Next, Lucy, Tamoor, and Jordan go over all of this. The Gen Next crew is thankful that it hasn't run into any major issues with their Xbox Series X|S and PS5 consoles just yet--hopefully their luck extends into 2021.
+
+00:00 - Intro
+00:54 - PS5 DualSense USB charging fixed
+02:26 - Next-Gen game patches (Miles Morales, Borderlands 3, etc.)
+05:49 - PS5 stability issues (game crashes, cloud saves, etc.)
+10:47 - Xbox Series X/S Update (Auto HDR, Badges, etc.)
+13:24 - Outro
+
+## Back 4 Blood Closed Alpha Gameplay Livestream
+ - [https://www.youtube.com/watch?v=jCjlW90uRbQ](https://www.youtube.com/watch?v=jCjlW90uRbQ)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-12-17 00:00:00+00:00
+
+Tune in as Turtle Rock Studios, the developers behind Left 4 Dead show off closed alpha gameplay of their new game, Back 4 Blood.
+
+## Back 4 Blood: First Look At The Left 4 Dead Successor
+ - [https://www.youtube.com/watch?v=QaFIL2fC7G8](https://www.youtube.com/watch?v=QaFIL2fC7G8)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-12-17 00:00:00+00:00
+
+We played through one of Back 4 Blood's co-op campaigns and got a sense of how developer Turtle Rock is expanding on its tried-and-true Left 4 Dead formula.
+
+Developer Turtle Rock Studios created a cooperative gaming phenomenon back in 2008 with Left 4 Dead. Twelve years later, it returns to that zombie apocalypse well with Back 4 Blood, another four-player co-op game about working together to fight a horde of mutated former humans. In a lot of ways, Back 4 Blood is a mutation itself--the core is very much Left 4 Dead, but with new additions injecting some fresh blood into the formula.
+
+GameSpot editor Phil Hornshaw and video producer Jean-Luc Seipke got to play through one of Back 4 Blood's campaign levels, in which players fight through the horde as they travel from safe room to safe room, during an early look at the game's closed alpha. Check out the video above, in which we talk about our impressions of Back 4 Blood and the way it draws and expands on Left 4 Dead.
+
+The discussion outlines the similarities between Back 4 Blood and Left 4 Dead--including level structure, enemies, and gameplay--as well as the differences Turtle Rock has baked in as well. These include a progression system that doesn't just benefit players who put in a lot of time, but powers up the whole team, adding more replayability to the entire structure.
+
+We've got more Back 4 Blood coverage from our time checking out the closed alpha, so be sure to check it all out on GameSpot.com.
+
+## GameSpot's Game Of The Year 2020 | Half-Life: Alyx
+ - [https://www.youtube.com/watch?v=6dgJCnkZoTg](https://www.youtube.com/watch?v=6dgJCnkZoTg)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCbu2SsF-Or3Rsn3NxqODImw
+ - date published: 2020-12-17 00:00:00+00:00
+
+Half-Life: Alyx is an incredible blend of the best VR concepts with expert execution, and it paints the storied franchise in a whole new light. There's just nothing like it.
+
+It wasn't easy choosing our Game of the Year here at GameSpot, especially considering the roster of incredible games that came out this year, many of which affected us profoundly. You can see in our list of the 10 best games of 2020 that each had a special place in the hearts and minds of the GameSpot staff. After hours of deliberations, though, we can only choose one, and we came to the conclusion to award our Game of the Year to the one that stood out the most, which is Half-Life: Alyx.
+
+In the video above, Kurt Indovina is joined by Jake Dekker and Michael Higham to sort through our thoughts and feelings about Half-Life: Alyx and discuss what made it such an incredible and innovative game. Part of that involves the seamless marriage of several VR concepts that are integrated and expertly executed to create a superb gameplay experience. Whether it was intense firefights or terrifying encounters, the level of immersion is unmatched in Half-Life: Alyx They also discuss the wild implications that the game poses for the Half-Life universe, how the impact of its narrative twists and turns are amplified by VR, and why its conclusion such a powerful thing (without spoilers).
+
+We didn't ignore the question of accessibility, both physical and financial. VR poses some inherent barriers to entry, which unfortunately means some may not be able to experience Half-Life: Alyx, or at least not yet. However, we acknowledge the lengths Valve went to to accommodate some limitations--you can play the whole game seated, or with one controller, or even if you have limited playing space. Several other options for movement, crouching, and interaction can also help mitigate potential issues. While the game can't cover every limitation, it represents significant progress being made in VR.
+
+Half-Life: Alyx is a top-notch gaming experience on its own merits, and the feeling we had when we essentially forgot we were playing a VR game is testament to its magnificent level design and gameplay mechanics, and the various ways it challenges you with puzzles and combat encounters. It's also the fact that Half-Life's best qualities shine like never before in VR, where the nuances in the environments and interactions within the world speak volumes to its world design and storytelling. Half-Life: Alyx leverages VR to deliver some of gaming's most unforgettable moments, especially in its final chapters. Accounting for all that, the GameSpot team recognizes it as our Game of the Year.
+

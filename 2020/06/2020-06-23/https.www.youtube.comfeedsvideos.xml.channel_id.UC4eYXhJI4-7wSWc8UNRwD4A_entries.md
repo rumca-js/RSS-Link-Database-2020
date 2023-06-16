@@ -1,0 +1,20 @@
+# Source:NPR Music, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A, language:en-US
+
+## Madame Gandhi: Tiny Desk (Home) Concert
+ - [https://www.youtube.com/watch?v=7Sc34WvNxp8](https://www.youtube.com/watch?v=7Sc34WvNxp8)
+ - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UC4eYXhJI4-7wSWc8UNRwD4A
+ - date published: 2020-06-24 00:00:00+00:00
+
+The Tiny Desk is working from home for the foreseeable future. Introducing NPR Music's Tiny Desk (home) concerts, bringing you performances from across the country and the world. It's the same spirit — stripped-down sets, an intimate setting — just a different space.
+
+Kara Frame | June 24, 2020 
+With one quick glance, you can guess Madame Gandhi's favorite color. Surrounded by her yellow bongos and congas, a yellow desk from her youth and a yellow nightstand, her Tiny Desk (home) concert lighting nods to the lavender-lemon artwork of her 2019 Visions EP. She's intentional with everything she does, including activism that focuses primarily on gender liberation. She uses music to help elevate and celebrate female voices, from working with primarily queer women BIPOC on tour and video sets, to writing socially-conscious lyrics that challenge the white male-dominated music industry.. Madame Gandhi's clear, soft voice and swells of percussion give you the necessary space to meditate on her message of inclusion and equality.
+
+SET LIST
+"Waiting For Me"
+"Moon in the Sky"
+"Bad Habits"
+
+CREDITS
+Videographer: Aroy Productions; Audio Engineer: Aroy Productions; Producer: Kara Frame; Video Producer: Maia Stern; Audio Mastering Engineer: Josh Rogosin; Associate Producer: Bobby Carter; Executive Producer: Lauren Onkey; Senior VP, Programming: Anya Grundmann
+
