@@ -1,9 +1,0 @@
-# Source:Luke Smith - Not Related, URL:https://notrelated.xyz/rss, language:en-US
-
-## Stoicism and Christianity: Trust the Logos!
- - [https://notrelated.xyz/audio/s02/S02E02_-_Stoicism_and_Christianity_Trust_the_Logos.ogg](https://notrelated.xyz/audio/s02/S02E02_-_Stoicism_and_Christianity_Trust_the_Logos.ogg)
- - RSS feed: https://notrelated.xyz/rss
- - date published: 2020-07-31 04:00:00+00:00
-
-<p><em>The Word became flesh and dwelt among us.</em></p><p>Christian theology has a mostly dusty and forgotten belonging among the Pagan philosophy of the Greek east and the early Roman Empire. While Platonic, Hermetic and Gnostic thought all reinforced or butted heads with the Early Church, Stoic thought provides some of the most important vocabulary used in the Bible, particularly by John the Evangelist.</p><p>This viewpoint presents Jesus as not the incarnation of <em>Logos</em>, the rational order of the universe itself, but also as the Stoic ideal. The plan of Christ is to reunite man with God's order, in the same way that Stoics attempted to submit to divine <em>Logos</em>.</p><h1>More...</h1><ul><li>The <em>Not Related!</em> website: <a href="https://notrelated.xyz"></a>notrelated.xyz</a></li><li>Donations will be read in the middle of each episode: <a href="https://donate.notrelated.xyz">donate.notrelated.xyz</a></li></ul>
-

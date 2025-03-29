@@ -1,9 +1,0 @@
-# Source:Julie Nolke, URL:https://www.youtube.com/feeds/videos.xml?channel_id=UCy0Pr5u-MwGXXzp_GDd4m_g, language:en-US
-
-## Confronting Fear... literally
- - [https://www.youtube.com/watch?v=-ZG7W5XvYnU](https://www.youtube.com/watch?v=-ZG7W5XvYnU)
- - RSS feed: https://www.youtube.com/feeds/videos.xml?channel_id=UCy0Pr5u-MwGXXzp_GDd4m_g
- - date published: 2020-01-10 00:00:00+00:00
-
-Huge thanks to Bree for acting in this sketch with me :)
-
